@@ -88,7 +88,7 @@ var obj = app.create({
     complete: function () {
       // console.log('thing created: ' + this.id);
       // 单资源加载模型，摄像机看向目标物体
-      obj.scale = [0.01,0.01,0.01]
+    //   obj.scale = [0.01,0.01,0.01]
       app.camera.fit(obj);
       obj.addControl(new THING.AxisTransformControl(obj), 'axisControl');
     }
