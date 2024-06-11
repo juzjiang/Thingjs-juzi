@@ -40,6 +40,22 @@
 //     url: '/api/scene/7066231708311440937'  // 场景地址
 // });
 // 离线开发引入园区场景
-var app = new THING.App({
-    url: '/api/scene/production_277032'  // 场景地址
+// var app = new THING.App({
+//     url: '/api/scene/production_277032'  // 场景地址
+// });
+// 创建Thing
+var app = new THING.App();
+
+var obj = app.create({
+    type: 'Thing',
+    name: '01hou01', 
+    url:'/Resources/Model/admin/39e7a01c022747518a479548380c32f0',
+    position: [0, 0, 0],
+    angle: 0,
+    complete: function () {
+      // console.log('thing created: ' + this.id);
+      // 单资源加载模型，摄像机看向目标物体
+      app.camera.fit(obj);
+      obj.addControl(new THING.AxisTransformControl(obj), 'axisControl');
+    }
 });
