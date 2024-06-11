@@ -43,13 +43,30 @@
 // var app = new THING.App({
 //     url: '/api/scene/production_277032'  // 场景地址
 // });
+// // 创建Thing
+// var app = new THING.App();
+
+// var obj = app.create({
+//     type: 'Thing',
+//     name: '01hou01', 
+//     url:'/Resources/Model/admin/39e7a01c022747518a479548380c32f0',
+//     position: [0, 0, 0],
+//     angle: 0,
+//     complete: function () {
+//       // console.log('thing created: ' + this.id);
+//       // 单资源加载模型，摄像机看向目标物体
+//       app.camera.fit(obj);
+//       obj.addControl(new THING.AxisTransformControl(obj), 'axisControl');
+//     }
+// });
+
 // 创建Thing
 var app = new THING.App();
 
 var obj = app.create({
     type: 'Thing',
-    name: '01hou01', 
-    url:'/Resources/Model/admin/39e7a01c022747518a479548380c32f0',
+    name: '01', 
+    url:'/Resources/Model/admin//model-dir/nova/upload/4fa167ca26074aaf82c848ea167fd9b2/4fa167ca26074aaf82c848ea167fd9b2.FBX',
     position: [0, 0, 0],
     angle: 0,
     complete: function () {
