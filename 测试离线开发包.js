@@ -77,18 +77,34 @@
 //     }
 // });
 
+// // 创建Thing
+// var app = new THING.App();
+// var obj = app.create({
+//     type: 'Thing',
+//     name: '02(1)', 
+//     url:'/Resources/Model/admin//model-dir/nova/upload/003dfee671884d418ef240d68cc62cc9/003dfee671884d418ef240d68cc62cc9.FBX',
+//     position: [0, 0, 0],
+//     angle: 0,
+//     complete: function () {
+//       // console.log('thing created: ' + this.id);
+//       // 单资源加载模型，摄像机看向目标物体
+//     //   obj.scale = [0.01,0.01,0.01]
+//       app.camera.fit(obj);
+//       obj.addControl(new THING.AxisTransformControl(obj), 'axisControl');
+//     }
+// });
+
 // 创建Thing
 var app = new THING.App();
 var obj = app.create({
     type: 'Thing',
-    name: '02(1)', 
-    url:'/Resources/Model/admin//model-dir/nova/upload/003dfee671884d418ef240d68cc62cc9/003dfee671884d418ef240d68cc62cc9.FBX',
+    name: '01_1_-1qian1', 
+    url:'/Resources/Model/admin/5d290f27c3404aa89f8c09388b59981e',
     position: [0, 0, 0],
     angle: 0,
     complete: function () {
       // console.log('thing created: ' + this.id);
       // 单资源加载模型，摄像机看向目标物体
-    //   obj.scale = [0.01,0.01,0.01]
       app.camera.fit(obj);
       obj.addControl(new THING.AxisTransformControl(obj), 'axisControl');
     }
