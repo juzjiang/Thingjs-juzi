@@ -10,7 +10,7 @@
     //      第二个场景URL为 "/api/scene/b422fd26d4c7874df3992068"，
     //      为能正确打包上述两个场景，需配置如下：
      "scenes": [
-         "/api/scene/production_211848",
+         "/api/scene/pro_282753",
      ],
     // 举例：项目中动态引用了模型 "/api/models/8CF6171F7EE046968B16E10181E8D941/0/gltf/"，
     //      为能正确打包该引用模型，需配置如下：
