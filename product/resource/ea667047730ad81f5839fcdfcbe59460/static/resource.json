@@ -1,0 +1,16 @@
+{
+   "date": "2024-08-01 14:33:59",
+   "extend": {
+      "authorName": "969828",
+      "rTypeGroup": "园区"
+   },
+   "license": "优锘科技版权所有",
+   "author": "969828",
+   "name": "修改白天08",
+   "description": "用户自定义",
+   "themePath": "效果模板/园区/默认/标准",
+   "theme": "",
+   "type": "theme_campus",
+   "version": "1.0.0",
+   "uuid": "ea667047730ad81f5839fcdfcbe59460"
+}

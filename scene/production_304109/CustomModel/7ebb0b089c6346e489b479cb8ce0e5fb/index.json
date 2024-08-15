@@ -1,0 +1,25 @@
+{
+  "sourceFile": "E:\\processor\\work\\d4cfdd12390e4b079722ab981f1acb2c_7ebb0b089c6346e489b479cb8ce0e5fb_999_转换中\\MAX\\25000广播.maxbk0.max",
+  "gltfFiles": [
+    "EWIXOW1CUZSMJDNRDEDQYTTUPZDITT4CG.model"
+  ],
+  "texFiles": {
+    "TYKCU86511KYA2NDDQJQIJ01I1WNTZTU2": ".bin",
+    "84ST3N7D4AJ7D1WOGEPWI3PNXHJQDZN7E": "smd_1.jpg",
+    "QNSDOZNOEE0W5381Q32COQ80PF6V5HD65": "smd_2.jpg"
+  },
+  "size": [
+    0.227,
+    0.129,
+    0.86
+  ],
+  "faces": 76,
+  "verts": 40,
+  "nodes": 1,
+  "createTime": "2024-07-22 9:28:14",
+  "author": "9777",
+  "computer": "XTZJ-20220928QY",
+  "max": "#(22000, 55, 0, 22, 0, 0, 757, 2020, \"\")",
+  "version": "2.1",
+  "extensionsFile": "extensions.ext"
+}

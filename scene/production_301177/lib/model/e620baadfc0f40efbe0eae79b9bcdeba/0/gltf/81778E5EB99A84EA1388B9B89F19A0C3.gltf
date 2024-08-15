@@ -1,0 +1,364 @@
+{
+  "materials": [
+    {
+      "name": "Std_水泵_卧式_水泵_卧式_jpgLightingMap_20190110设备模型_独立设备_水泵_卧式_水泵_卧式_1.bmp",
+      "occlusionTexture": {
+        "index": 0,
+        "texCoord": 1
+      },
+      "pbrMetallicRoughness": {
+        "baseColorTexture": {
+          "index": 1,
+          "texCoord": 0
+        },
+        "baseColorFactor": [
+          1.0,
+          1.0,
+          1.0,
+          1.0
+        ],
+        "metallicFactor": 0,
+        "roughnessFactor": 0.95
+      },
+      "alphaMode": "OPAQUE"
+    },
+    {
+      "name": "Std_水泵_卧式_水泵_卧式_jpg",
+      "pbrMetallicRoughness": {
+        "baseColorTexture": {
+          "index": 1,
+          "texCoord": 0
+        },
+        "baseColorFactor": [
+          1.0,
+          1.0,
+          1.0,
+          1.0
+        ],
+        "metallicFactor": 0,
+        "roughnessFactor": 0.95
+      },
+      "alphaMode": "OPAQUE"
+    }
+  ],
+  "images": [
+    {
+      "uri": "TJ8PJU8M12SI8YQDEADKEJ72DT0QMZ0O4.jpg"
+    },
+    {
+      "uri": "F0NQW1D05QTKR16KY3YKGEZVDWWSCZYNE.jpg"
+    }
+  ],
+  "textures": [
+    {
+      "name": "LightingMap_20190110设备模型_独立设备_水泵_卧式_水泵_卧式_1_f_bmp.jpg",
+      "sampler": 0,
+      "source": 0
+    },
+    {
+      "name": "smd_1.jpg",
+      "sampler": 0,
+      "source": 1
+    }
+  ],
+  "meshes": [
+    {
+      "name": "Lo-BODY_01",
+      "primitives": [
+        {
+          "material": 0,
+          "mode": 4,
+          "indices": 0,
+          "attributes": {
+            "COLOR_0": 3,
+            "NORMAL": 2,
+            "POSITION": 1,
+            "TEXCOORD_0": 4,
+            "TEXCOORD_1": 5
+          }
+        }
+      ]
+    },
+    {
+      "name": "Lo-ELEMENT_01",
+      "primitives": [
+        {
+          "material": 1,
+          "mode": 4,
+          "indices": 6,
+          "attributes": {
+            "NORMAL": 8,
+            "POSITION": 7,
+            "TEXCOORD_0": 9,
+            "TEXCOORD_1": 10
+          }
+        }
+      ]
+    }
+  ],
+  "buffers": [
+    {
+      "byteLength": 469011,
+      "uri": "WY2DHNVQUN8I72CGUD70E9TOY9Z2X96SG.bin"
+    }
+  ],
+  "bufferViews": [
+    {
+      "buffer": 0,
+      "target": 34963,
+      "byteLength": 30386,
+      "byteOffset": 0
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 72168,
+      "byteOffset": 30588
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 72828,
+      "byteOffset": 102756
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 95968,
+      "byteOffset": 175740
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 48352,
+      "byteOffset": 271708
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 48184,
+      "byteOffset": 320068
+    },
+    {
+      "buffer": 0,
+      "target": 34963,
+      "byteLength": 10340,
+      "byteOffset": 368252
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 26700,
+      "byteOffset": 378704
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 26880,
+      "byteOffset": 405404
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 17848,
+      "byteOffset": 432276
+    },
+    {
+      "buffer": 0,
+      "target": 34962,
+      "byteLength": 18024,
+      "byteOffset": 450124
+    }
+  ],
+  "accessors": [
+    {
+      "componentType": 5123,
+      "type": "SCALAR",
+      "bufferView": 0,
+      "byteOffset": 0,
+      "byteType": 393,
+      "count": 15193
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC3",
+      "bufferView": 1,
+      "byteOffset": 0,
+      "byteType": 1947,
+      "count": 6014,
+      "min": [
+        -115.0,
+        -46.7206420898438,
+        0.0
+      ],
+      "max": [
+        115.0,
+        45.0000038146973,
+        150.0
+      ]
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC3",
+      "bufferView": 2,
+      "byteOffset": 0,
+      "byteType": 1788,
+      "count": 6069
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC4",
+      "bufferView": 3,
+      "byteOffset": 0,
+      "byteType": 1379,
+      "count": 5998
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC2",
+      "bufferView": 4,
+      "byteOffset": 0,
+      "byteType": 693,
+      "count": 6044
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC2",
+      "bufferView": 5,
+      "byteOffset": 0,
+      "byteType": 1089,
+      "count": 6023
+    },
+    {
+      "componentType": 5123,
+      "type": "SCALAR",
+      "bufferView": 6,
+      "byteOffset": 0,
+      "byteType": 1494,
+      "count": 5170
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC3",
+      "bufferView": 7,
+      "byteOffset": 0,
+      "byteType": 375,
+      "count": 2225,
+      "min": [
+        -16.1583518981934,
+        -46.8529968261719,
+        -0.434005737304688
+      ],
+      "max": [
+        49.4643211364746,
+        16.1583366394043,
+        61.0373992919922
+      ]
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC3",
+      "bufferView": 8,
+      "byteOffset": 0,
+      "byteType": 1839,
+      "count": 2240
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC2",
+      "bufferView": 9,
+      "byteOffset": 0,
+      "byteType": 1307,
+      "count": 2231
+    },
+    {
+      "componentType": 5126,
+      "type": "VEC2",
+      "bufferView": 10,
+      "byteOffset": 0,
+      "byteType": 1167,
+      "count": 2253
+    }
+  ],
+  "nodes": [
+    {
+      "name": "RootNode",
+      "translation": [
+        0.0,
+        0.0,
+        0.0
+      ],
+      "rotation": [
+        0.0,
+        0.0,
+        0.0,
+        1.0
+      ],
+      "scale": [
+        1.0,
+        1.0,
+        1.0
+      ],
+      "children": [
+        1,
+        2
+      ]
+    },
+    {
+      "name": "Lo-BODY_01",
+      "translation": [
+        0.0,
+        0.0,
+        0.0
+      ],
+      "rotation": [
+        -0.70710676908493,
+        0.0,
+        0.0,
+        0.70710676908493
+      ],
+      "scale": [
+        0.00999999977648258,
+        0.00999999977648258,
+        0.00999999977648258
+      ],
+      "mesh": 0
+    },
+    {
+      "name": "Lo-ELEMENT_01",
+      "translation": [
+        -0.678771913051605,
+        1.42402601242065,
+        0.276323407888412
+      ],
+      "rotation": [
+        0.541675269603729,
+        0.454519540071487,
+        -0.454519361257553,
+        0.541675269603729
+      ],
+      "scale": [
+        0.00999999977648258,
+        0.00999999977648258,
+        0.00999999977648258
+      ],
+      "mesh": 1
+    }
+  ],
+  "asset": {
+    "generator": "FBX2glTF",
+    "version": "2.0"
+  },
+  "scene": 0,
+  "scenes": [
+    {
+      "name": "Root Scene",
+      "nodes": [
+        0
+      ]
+    }
+  ],
+  "samplers": [
+    {}
+  ]
+}

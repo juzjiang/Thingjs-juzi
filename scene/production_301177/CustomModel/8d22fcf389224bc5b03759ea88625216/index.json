@@ -1,0 +1,25 @@
+{
+  "sourceFile": "E:\\processor\\work\\68f7ba3c3d9644b7b5995943150dece9_8d22fcf389224bc5b03759ea88625216_999_转换中\\MAX\\25000psd屏.maxbk0.max",
+  "gltfFiles": [
+    "8JQXTYCDME0WX3JS4F0S4JPKCA6SDJ8KD.model"
+  ],
+  "texFiles": {
+    "808C70QDMZ0SIQ4UYU67T34OGUWOIH0I4": ".bin",
+    "UTWI3W041DTIC3UNE3YIQWZ05UU2X3UQQ": "smd_1.jpg",
+    "AD12TE8OITD2CATI47ZUYW6I4T10EE02X": "smd_2_f_png.jpg"
+  },
+  "size": [
+    2.04536,
+    0.0705299,
+    2.99057
+  ],
+  "faces": 34,
+  "verts": 20,
+  "nodes": 1,
+  "createTime": "2024-07-22 9:54:47",
+  "author": "9777",
+  "computer": "XTZJ-20220928QY",
+  "max": "#(22000, 55, 0, 22, 0, 0, 757, 2020, \"\")",
+  "version": "2.1",
+  "extensionsFile": "extensions.ext"
+}

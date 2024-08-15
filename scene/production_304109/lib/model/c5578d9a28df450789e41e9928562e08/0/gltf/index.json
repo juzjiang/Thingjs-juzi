@@ -1,0 +1,24 @@
+{
+  "sourceFile": "D:\\work\\c5578d9a28df450789e41e9928562e08_999_转换中\\MAX\\21000火01.maxbk0.max",
+  "gltfFiles": [
+    "IWW8GU76EQU7QWZV2OWP2M3U8PFT7I9YN.gltf"
+  ],
+  "texFiles": {
+    "T9TOOEYO2UUSR1ZW25JU0PE0V577NOJW0": ".bin",
+    "GJWVQT1OCQ71QAT7RWW7VC88UTWZ7YQU2": "smd_1_com.png"
+  },
+  "size": [
+    1.0,
+    0.001,
+    1.0
+  ],
+  "faces": 2,
+  "verts": 4,
+  "nodes": 1,
+  "createTime": "2021-01-08 15:56:09",
+  "author": "1854",
+  "computer": "SK-20190826NVSG",
+  "max": "#(22000, 55, 0, 22, 0, 0, 757, 2020, \"\")",
+  "version": "2.1",
+  "extensionsFile": "extensions.json"
+}

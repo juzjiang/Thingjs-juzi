@@ -1,1 +1,4427 @@
-!Cr*//%/%F`vlph%(%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph%/%/%Fju|wlbmq%7544(7542%F`vlph%Fjkqwlgpqjwv%/%/%Ilf`kv`a%pka`w%qm`%Dudfm`%Ilf`kv`)%S`wvljk%7+5%-qm`%'Ilf`kv`',>%/%|jp%hd|%kjq%pv`%qmlv%cli`%`}f`uq%lk%fjhuildkf`%rlqm%qm`%Ilf`kv`+%/%\jp%hd|%jgqdlk%d%fju|%jc%qm`%Ilf`kv`%dq%/%/%mqqu?**rrr+dudfm`+jwb*ilf`kv`v*ILF@KV@(7+5%/%/%Pki`vv%w`tplw`a%g|%duuilfdgi`%idr%jw%dbw``a%qj%lk%rwlqlkb)%vjcqrdw`%/%alvqwlgpq`a%pka`w%qm`%Ilf`kv`%lv%alvqwlgpq`a%jk%dk%'DV%LV'%GDVLV)%/%RLQMJPQ%RDWWDKQL@V%JW%FJKALQLJKV%JC%DK\%NLKA)%`lqm`w%`}uw`vv%jw%lhuil`a+%/%V``%qm`%Ilf`kv`%cjw%qm`%vu`flclf%idkbpdb`%bjs`wklkb%u`whlvvljkv%dka%/%ilhlqdqljkv%pka`w%qm`%Ilf`kv`+%/%/%Fjiphgpv%Sl`r%-Udq+%U`ka+,%/%/%Ujwqljkv%ilf`kv`a%v`udwdq`i|+%/%V``%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph*gijg*hdvq`w*ILF@KV@+ha%cjw%cpii%ilf`kvlkb%a`qdliv+%/*-cpkfqljk%-,%~a`clk`-"Fjw`*a`clk`a")^X)cpkfqljk-,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%E`}ujwqv%a`clk`a%%%%%/%%%%%/%Eudwdh%~/x%sdip`%Qm`%jgo`fq+%%%%%/%Ew`qpwkv%~Gjji`dkx%W`qpwkv%qwp`%lc%qm`%jgo`fq%lv%a`clk`a)%w`qpwkv%cdiv`%jqm`wrlv`+%%%%%/%%%%%/%E`}dhui`%%%%%/%lc%-F`vlph+a`clk`a-ujvlqljkv,,%~%%%%%/%%%%%%ajVjh`qmlkb-,>%%%%%/%x%`iv`%~%%%%%/%%%%%%ajVjh`qmlkb@iv`-,>%%%%%/%x%%%%%/*%%%%cpkfqljk%a`clk`a-sdip`,%~%%%%%%%%w`qpwk%sdip`%$88%pka`clk`a%##%sdip`%$88%kpii>%%%%x%%%%w`qpwk%a`clk`a>x,>a`clk`-"Fjw`*cw```Jgo`fq")^%%%%%%%%"+*a`clk`a"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%Cw```v%dk%jgo`fq)%pvlkb%Jgo`fq+cw```%lc%dsdlidgi`)%jqm`wrlv`%w`qpwkv%%%%%/%qm`%jgo`fq%pkfmdkb`a+%%Qmlv%cpkfqljk%vmjpia%g`%pv`a%lk%v`qpu%fja`%qj%uw`s`kq%%%%%/%`wwjwv%cwjh%fjhui`q`i|%mdiqlkb%OdsdVfwluq%`}`fpqljk%lk%i`bdf|%gwjrv`wv+%%%%%/%%%%%/%Euwlsdq`%%%%%/%%%%%/%E`}ujwqv%cw```Jgo`fq%%%%%/*%%%%sdw%cw```Jgo`fq%8%Jgo`fq+cw```>%%%%lc%-$a`clk`a-cw```Jgo`fq,,%~%%%%%%%%cw```Jgo`fq%8%cpkfqljk-j,%~%%%%%%%%%%%%w`qpwk%j>%%%%%%%%x>%%%%x%%%%w`qpwk%cw```Jgo`fq>x,>a`clk`-"Fjw`*a`cdpiqSdip`")^%%%%%%%%"+*cw```Jgo`fq"%%%%X)%cpkfqljk-%%%%%%%%cw```Jgo`fq,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%W`qpwkv%qm`%clwvq%udwdh`q`w%lc%kjq%pka`clk`a)%jqm`wrlv`%qm`%v`fjka%udwdh`q`w+%%%%%/%Pv`cpi%cjw%v`qqlkb%d%a`cdpiq%sdip`%cjw%d%udwdh`q`w+%%%%%/%%%%%/%E`}ujwqv%a`cdpiqSdip`%%%%%/%%%%%/%Eudwdh%~/x%d%%%%%/%Eudwdh%~/x%g%%%%%/%Ew`qpwkv%~/x%W`qpwkv%qm`%clwvq%udwdh`q`w%lc%kjq%pka`clk`a)%jqm`wrlv`%qm`%v`fjka%udwdh`q`w+%%%%%/%%%%%/%E`}dhui`%%%%%/%udwdh%8%F`vlph+a`cdpiqSdip`-udwdh)%"a`cdpiq",>%%%%%/*%%%%cpkfqljk%a`cdpiqSdip`-d)%g,%~%%%%%%%%lc%-d%$88%pka`clk`a%##%d%$88%kpii,%~%%%%%%%%%%%%w`qpwk%d>%%%%%%%%x%%%%%%%%w`qpwk%g>%%%%x%%%%*//%%%%%/%D%cwj`k%`huq|%jgo`fq%qmdq%fdk%g`%pv`a%dv%qm`%a`cdpiq%sdip`%cjw%juqljkv%udvv`a%dv%%%%%/%dk%jgo`fq%ilq`wdi+%%%%%/%Eq|u`%~Jgo`fqx%%%%%/*%%%%a`cdpiqSdip`+@HUQ\ZJGO@FQ%8%cw```Jgo`fq-~x,>%%%%w`qpwk%a`cdpiqSdip`>x,>a`clk`-"Fjw`*A`s`iju`w@wwjw")^%%%%%%%%"+*a`clk`a"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%Fjkvqwpfqv%dk%`}f`uqljk%jgo`fq%qmdq%lv%qmwjrk%ap`%qj%d%a`s`iju`w%`wwjw)%`+b+)%lksdila%dwbph`kq)%%%%%/%dwbph`kq%jpq%jc%wdkb`)%`qf+%%Qmlv%`}f`uqljk%vmjpia%jki|%g`%qmwjrk%apwlkb%a`s`ijuh`kq>%%%%%/%lq%pvpdii|%lkalfdq`v%d%gpb%lk%qm`%fdiilkb%fja`+%%Qmlv%`}f`uqljk%vmjpia%k`s`w%g`%%%%%/%fdpbmq>%lkvq`da%qm`%fdiilkb%fja`%vmjpia%vqwls`%kjq%qj%b`k`wdq`%lq+%%%%%/%9gw%*;9gw%*;%%%%%/%Jk%qm`%jqm`w%mdka)%d%~Eilkn%Wpkqlh`@wwjwx%lkalfdq`v%dk%`}f`uqljk%qmdq%hd|%%%%%/%g`%qmwjrk%dq%wpkqlh`)%`+b+)%jpq%jc%h`hjw|)%qmdq%qm`%fdiilkb%fja`%vmjpia%g`%uw`udw`a%%%%%/%qj%fdqfm+%%%%%/%%%%%/%Edildv%A`s`iju`w@wwjw%%%%%/%Efjkvqwpfqjw%%%%%/%E`}q`kav%@wwjw%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%^h`vvdb`X%Qm`%`wwjw%h`vvdb`%cjw%qmlv%`}f`uqljk+%%%%%/%%%%%/%Ev``%Wpkqlh`@wwjw%%%%%/*%%%%cpkfqljk%A`s`iju`w@wwjw-h`vvdb`,%~%%%%%%%%*//%%%%%%%%%/%"A`s`iju`w@wwjw"%lkalfdqlkb%qmdq%qmlv%`}f`uqljk%rdv%qmwjrk%ap`%qj%d%a`s`iju`w%`wwjw+%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%qmlv+kdh`%8%"A`s`iju`w@wwjw">%%%%%%%%*//%%%%%%%%%/%Qm`%`}uidkdqljk%cjw%rm|%qmlv%`}f`uqljk%rdv%qmwjrk+%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%qmlv+h`vvdb`%8%h`vvdb`>%%%%%%%%**Gwjrv`wv%vpfm%dv%L@%ajk"q%mds`%d%vqdfn%uwju`wq|%pkqli%|jp%dfqpdii|%qmwjr%qm`%`wwjw+%%%%%%%%sdw%vqdfn>%%%%%%%%qw|%~%%%%%%%%%%%%qmwjr%k`r%@wwjw-,>%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%vqdfn%8%`+vqdfn>%%%%%%%%x%%%%%%%%*//%%%%%%%%%/%Qm`%vqdfn%qwdf`%jc%qmlv%`}f`uqljk)%lc%dsdlidgi`+%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%qmlv+vqdfn%8%vqdfn>%%%%x%%%%lc%-a`clk`a-Jgo`fq+fw`dq`,,%~%%%%%%%%A`s`iju`w@wwjw+uwjqjq|u`%8%Jgo`fq+fw`dq`-@wwjw+uwjqjq|u`,>%%%%%%%%A`s`iju`w@wwjw+uwjqjq|u`+fjkvqwpfqjw%8%A`s`iju`w@wwjw>%%%%x%%%%A`s`iju`w@wwjw+uwjqjq|u`+qjVqwlkb%8%cpkfqljk-,%~%%%%%%%%sdw%vqw%8%qmlv+kdh`%.%"?%"%.%qmlv+h`vvdb`>%%%%%%%%lc%-a`clk`a-qmlv+vqdfn,,%~%%%%%%%%%%%%vqw%.8%"Yk"%.%qmlv+vqdfn+qjVqwlkb-,>%%%%%%%%x%%%%%%%%w`qpwk%vqw>%%%%x>%%%%*//%%%%%/%Euwlsdq`%%%%%/*%%%%A`s`iju`w@wwjw+qmwjrLkvqdkqldqljk@wwjw%8%cpkfqljk-,%~%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"Qmlv%cpkfqljk%a`clk`v%dk%lkq`wcdf`%dka%vmjpia%kjq%g`%fdii`a%alw`fqi|+",>%%%%x>%%%%w`qpwk%A`s`iju`w@wwjw>x,>a`clk`-"Fjw`*a`clk`Uwju`wql`v")^%%%%%%%%"+*a`clk`a"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a,%~%%%%"pv`%vqwlfq">%%%%sdw%a`clk`Uwju`wq|Rjwnv%8%-cpkfqljk-,%~%%%%%%%%qw|%~%%%%%%%%%%%%w`qpwk%"}"%lk%Jgo`fq+a`clk`Uwju`wq|-~x)%"}")%~x,>%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%w`qpwk%cdiv`>%%%%%%%%x%%%%x,-,>%%%%*//%%%%%/%A`clk`v%uwju`wql`v%jk%dk%jgo`fq)%pvlkb%Jgo`fq+a`clk`Uwju`wql`v%lc%dsdlidgi`)%%%%%/%jqm`wrlv`%w`qpwkv%qm`%jgo`fq%pkfmdkb`a+%%Qmlv%cpkfqljk%vmjpia%g`%pv`a%lk%%%%%/%v`qpu%fja`%qj%uw`s`kq%`wwjwv%cwjh%fjhui`q`i|%mdiqlkb%OdsdVfwluq%`}`fpqljk%%%%%/%lk%i`bdf|%gwjrv`wv+%%%%%/%%%%%/%Euwlsdq`%%%%%/%%%%%/%E`}ujwqv%a`clk`Uwju`wql`v%%%%%/*%%%%sdw%a`clk`Uwju`wql`v%8%Jgo`fq+a`clk`Uwju`wql`v>%%%%lc%-$a`clk`Uwju`wq|Rjwnv%yy%$a`clk`a-a`clk`Uwju`wql`v,,%~%%%%%%%%a`clk`Uwju`wql`v%8%cpkfqljk-j,%~%%%%%%%%%%%%w`qpwk%j>%%%%%%%%x>%%%%x%%%%w`qpwk%a`clk`Uwju`wql`v>x,>a`clk`-"Fjw`*Cpiivfw``k")^%%%%%%%%"+*a`clk`a")%%%%%%%%"+*a`clk`Uwju`wql`v"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a)%%%%%%%%a`clk`Uwju`wql`v,%~%%%%"pv`%vqwlfq">%%%%sdw%ZvpuujwqvCpiivfw``k>%%%%sdw%Zkdh`v%8%~%%%%%%%%w`tp`vqCpiivfw``k%?%pka`clk`a)%%%%%%%%`}lqCpiivfw``k%?%pka`clk`a)%%%%%%%%cpiivfw``k@kdgi`a%?%pka`clk`a)%%%%%%%%cpiivfw``k@i`h`kq%?%pka`clk`a)%%%%%%%%cpiivfw``kfmdkb`%?%pka`clk`a)%%%%%%%%cpiivfw``k`wwjw%?%pka`clk`a%%%%x>%%%%*//%%%%%/%Gwjrv`w(lka`u`ka`kq%cpkfqljkv%cjw%rjwnlkb%rlqm%qm`%vqdkadwa%cpiivfw``k%DUL+%%%%%/%%%%%/%E`}ujwqv%Cpiivfw``k%%%%%/%%%%%/%Ev``%~Eilkn%mqqu?**asfv+r6+jwb*mb*cpiivfw``k*wdr(cli`*qlu*Js`wsl`r+mqhiyR6F%Cpiivfw``k%Ilslkb%Vu`flclfdqljkx%%%%%/*%%%%sdw%Cpiivfw``k%8%~x>%%%%a`clk`Uwju`wql`v-Cpiivfw``k)%~%%%%%%%%*//%%%%%%%%%/%Qm`%`i`h`kq%qmdq%lv%fpww`kqi|%cpiivfw``k)%lc%dk|+%%Qj%vlhui|%fm`fn%lc%qm`%%%%%%%%%/%gwjrv`w%lv%lk%cpiivfw``k%hja`%jw%kjq)%pv`%~Eilkn%Cpiivfw``k&cpiivfw``kx+%%%%%%%%%/%Eh`hg`wjc%Cpiivfw``k%%%%%%%%%/%Eq|u`%~Jgo`fqx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%`i`h`kq%?%~%%%%%%%%%%%%b`q%?%cpkfqljk-,%~%%%%%%%%%%%%%%%%lc%-$Cpiivfw``k+vpuujwqvCpiivfw``k-,,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%pka`clk`a>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%ajfph`kq^Zkdh`v+cpiivfw``k@i`h`kqX>%%%%%%%%%%%%x%%%%%%%%x)%%%%%%%%*//%%%%%%%%%/%Qm`%kdh`%jc%qm`%`s`kq%jk%qm`%ajfph`kq%qmdq%lv%clw`a%rm`k%cpiivfw``k%lv%%%%%%%%%/%`kq`w`a%jw%`}lq`a+%%Qmlv%`s`kq%kdh`%lv%lkq`ka`a%cjw%pv`%rlqm%daa@s`kqIlvq`k`w+%%%%%%%%%/%Lk%|jpw%`s`kq%mdkai`w)%qj%a`q`whlk`%lc%qm`%gwjrv`w%lv%lk%cpiivfw``k%hja`%jw%kjq)%%%%%%%%%/%pv`%~Eilkn%Cpiivfw``k&cpiivfw``kx+%%%%%%%%%/%Eh`hg`wjc%Cpiivfw``k%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%fmdkb`@s`kqKdh`%?%~%%%%%%%%%%%%b`q%?%cpkfqljk-,%~%%%%%%%%%%%%%%%%lc%-$Cpiivfw``k+vpuujwqvCpiivfw``k-,,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%pka`clk`a>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%Zkdh`v+cpiivfw``kfmdkb`>%%%%%%%%%%%%x%%%%%%%%x)%%%%%%%%*//%%%%%%%%%/%Qm`%kdh`%jc%qm`%`s`kq%qmdq%lv%clw`a%rm`k%d%cpiivfw``k%`wwjw%%%%%%%%%/%jffpwv+%%Qmlv%`s`kq%kdh`%lv%lkq`ka`a%cjw%pv`%rlqm%daa@s`kqIlvq`k`w+%%%%%%%%%/%Eh`hg`wjc%Cpiivfw``k%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%`wwjw@s`kqKdh`%?%~%%%%%%%%%%%%b`q%?%cpkfqljk-,%~%%%%%%%%%%%%%%%%lc%-$Cpiivfw``k+vpuujwqvCpiivfw``k-,,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%pka`clk`a>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%Zkdh`v+cpiivfw``k`wwjw>%%%%%%%%%%%%x%%%%%%%%x)%%%%%%%%*//%%%%%%%%%/%A`q`whlk`%rm`qm`w%qm`%gwjrv`w%rlii%diijr%dk%`i`h`kq%qj%g`%hda`%cpiivfw``k)%jw%kjq+%%%%%%%%%/%Cjw%`}dhui`)%g|%a`cdpiq)%lcwdh`v%fdkkjq%bj%cpiivfw``k%pki`vv%qm`%fjkqdlklkb%udb`%%%%%%%%%/%daav%dk%'diijrcpiivfw``k'%dqqwlgpq`%-jw%uw`cl}`a%`tplsdi`kq,+%%%%%%%%%/%Eh`hg`wjc%Cpiivfw``k%%%%%%%%%/%Eq|u`%~Gjji`dkx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%`kdgi`a%?%~%%%%%%%%%%%%b`q%?%cpkfqljk-,%~%%%%%%%%%%%%%%%%lc%-$Cpiivfw``k+vpuujwqvCpiivfw``k-,,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%pka`clk`a>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%ajfph`kq^Zkdh`v+cpiivfw``k@kdgi`aX>%%%%%%%%%%%%x%%%%%%%%x)%%%%%%%%*//%%%%%%%%%/%A`q`whlk`v%lc%qm`%gwjrv`w%lv%fpww`kqi|%lk%cpiivfw``k%hja`+%%%%%%%%%/%Eh`hg`wjc%Cpiivfw``k%%%%%%%%%/%Eq|u`%~Gjji`dkx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%cpiivfw``k%?%~%%%%%%%%%%%%b`q%?%cpkfqljk-,%~%%%%%%%%%%%%%%%%lc%-$Cpiivfw``k+vpuujwqvCpiivfw``k-,,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%pka`clk`a>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%Cpiivfw``k+`i`h`kq%$88%kpii>%%%%%%%%%%%%x%%%%%%%%x%%%%x,>%%%%*//%%%%%/%A`q`fqv%rm`qm`w%qm`%gwjrv`w%vpuujwqv%qm`%vqdkadwa%cpiivfw``k%DUL+%%%%%/%%%%%/%Ew`qpwkv%~Gjji`dkx%9fja`;qwp`9*fja`;%lc%qm`%gwjrv`w%vpuujwqv%qm`%vqdkadwa%cpiivfw``k%DUL)%%%%%/%9fja`;cdiv`9*fja`;%jqm`wrlv`+%%%%%/*%%%%Cpiivfw``k+vpuujwqvCpiivfw``k%8%cpkfqljk-,%~%%%%%%%%lc%-a`clk`a-ZvpuujwqvCpiivfw``k,,%~%%%%%%%%%%%%w`qpwk%ZvpuujwqvCpiivfw``k>%%%%%%%%x%%%%%%%%ZvpuujwqvCpiivfw``k%8%cdiv`>%%%%%%%%sdw%gja|%8%ajfph`kq+gja|>%%%%%%%%lc%-q|u`jc%gja|+w`tp`vqCpiivfw``k%888%"cpkfqljk",%~%%%%%%%%%%%%**%bj%rlqm%qm`%pkuw`cl}`a)%vqdkadwa%v`q%jc%kdh`v%%%%%%%%%%%%Zkdh`v+w`tp`vqCpiivfw``k%8%"w`tp`vqCpiivfw``k">%%%%%%%%%%%%Zkdh`v+`}lqCpiivfw``k%8%"`}lqCpiivfw``k">%%%%%%%%%%%%Zkdh`v+cpiivfw``k@kdgi`a%8%"cpiivfw``k@kdgi`a">%%%%%%%%%%%%Zkdh`v+cpiivfw``k@i`h`kq%8%"cpiivfw``k@i`h`kq">%%%%%%%%%%%%Zkdh`v+cpiivfw``kfmdkb`%8%"cpiivfw``kfmdkb`">%%%%%%%%%%%%Zkdh`v+cpiivfw``k`wwjw%8%"cpiivfw``k`wwjw">%%%%%%%%%%%%ZvpuujwqvCpiivfw``k%8%qwp`>%%%%%%%%%%%%w`qpwk%ZvpuujwqvCpiivfw``k>%%%%%%%%x%%%%%%%%**fm`fn%cjw%qm`%fjww`fq%fjhglkdqljk%jc%uw`cl}%uipv%qm`%sdwljpv%kdh`v%qmdq%gwjrv`wv%pv`%%%%%%%%sdw%uw`cl}`v%8%^"r`gnlq")%"hj")%"j")%"hv")%"nmqhi"X>%%%%%%%%sdw%kdh`>%%%%%%%%cjw%-sdw%l%8%5)%i`k%8%uw`cl}`v+i`kbqm>%l%9%i`k>%..l,%~%%%%%%%%%%%%sdw%uw`cl}%8%uw`cl}`v^lX>%%%%%%%%%%%%**%fdvlkb%jc%Cpiivfw``k%alcc`wv%dfwjvv%gwjrv`wv%%%%%%%%%%%%kdh`%8%uw`cl}%.%"W`tp`vqCpiivfw``k">%%%%%%%%%%%%lc%-q|u`jc%gja|^kdh`X%888%"cpkfqljk",%~%%%%%%%%%%%%%%%%Zkdh`v+w`tp`vqCpiivfw``k%8%kdh`>%%%%%%%%%%%%%%%%ZvpuujwqvCpiivfw``k%8%qwp`>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%kdh`%8%uw`cl}%.%"W`tp`vqCpiiVfw``k">%%%%%%%%%%%%%%%%lc%-q|u`jc%gja|^kdh`X%888%"cpkfqljk",%~%%%%%%%%%%%%%%%%%%%%Zkdh`v+w`tp`vqCpiivfw``k%8%kdh`>%%%%%%%%%%%%%%%%%%%%ZvpuujwqvCpiivfw``k%8%qwp`>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%**%alvdbw``h`kq%dgjpq%rm`qm`w%lq"v%'`}lq'%dv%u`w%vu`f)%jw%'fdkf`i'%%%%%%%%%%%%kdh`%8%uw`cl}%.%"@}lqCpiivfw``k">%%%%%%%%%%%%lc%-q|u`jc%ajfph`kq^kdh`X%888%"cpkfqljk",%~%%%%%%%%%%%%%%%%Zkdh`v+`}lqCpiivfw``k%8%kdh`>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%kdh`%8%uw`cl}%.%"Fdkf`iCpiiVfw``k">%%%%%%%%%%%%%%%%lc%-q|u`jc%ajfph`kq^kdh`X%888%"cpkfqljk",%~%%%%%%%%%%%%%%%%%%%%Zkdh`v+`}lqCpiivfw``k%8%kdh`>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%**%fdvlkb%jc%Cpiivfw``k%alcc`wv%dfwjvv%gwjrv`wv%%%%%%%%%%%%kdh`%8%uw`cl}%.%"Cpiivfw``k@kdgi`a">%%%%%%%%%%%%lc%-ajfph`kq^kdh`X%$88%pka`clk`a,%~%%%%%%%%%%%%%%%%Zkdh`v+cpiivfw``k@kdgi`a%8%kdh`>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%kdh`%8%uw`cl}%.%"CpiiVfw``k@kdgi`a">%%%%%%%%%%%%%%%%lc%-ajfph`kq^kdh`X%$88%pka`clk`a,%~%%%%%%%%%%%%%%%%%%%%Zkdh`v+cpiivfw``k@kdgi`a%8%kdh`>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%**%fdvlkb%jc%Cpiivfw``k%alcc`wv%dfwjvv%gwjrv`wv%%%%%%%%%%%%kdh`%8%uw`cl}%.%"Cpiivfw``k@i`h`kq">%%%%%%%%%%%%lc%-ajfph`kq^kdh`X%$88%pka`clk`a,%~%%%%%%%%%%%%%%%%Zkdh`v+cpiivfw``k@i`h`kq%8%kdh`>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%kdh`%8%uw`cl}%.%"CpiiVfw``k@i`h`kq">%%%%%%%%%%%%%%%%lc%-ajfph`kq^kdh`X%$88%pka`clk`a,%~%%%%%%%%%%%%%%%%%%%%Zkdh`v+cpiivfw``k@i`h`kq%8%kdh`>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%**%qmdkncpii|)%`s`kq%kdh`v%dw`%dii%ijr`wfdv`%u`w%vu`f%%%%%%%%%%%%kdh`%8%uw`cl}%.%"cpiivfw``kfmdkb`">%%%%%%%%%%%%**%`s`kq%kdh`v%aj%kjq%mds`%"jk"%lk%qm`%cwjkq)%gpq%qm`%uwju`wq|%jk%qm`%ajfph`kq%aj`v%%%%%%%%%%%%lc%-ajfph`kq^"jk"%.%kdh`X%$88%pka`clk`a,%~%%%%%%%%%%%%%%%%**`}f`uq%jk%L@%%%%%%%%%%%%%%%%lc%-uw`cl}%888%"hv",%~%%%%%%%%%%%%%%%%%%%%kdh`%8%"HVCpiivfw``kFmdkb`">%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%Zkdh`v+cpiivfw``kfmdkb`%8%kdh`>%%%%%%%%%%%%x%%%%%%%%%%%%kdh`%8%uw`cl}%.%"cpiivfw``k`wwjw">%%%%%%%%%%%%lc%-ajfph`kq^"jk"%.%kdh`X%$88%pka`clk`a,%~%%%%%%%%%%%%%%%%**`}f`uq%jk%L@%%%%%%%%%%%%%%%%lc%-uw`cl}%888%"hv",%~%%%%%%%%%%%%%%%%%%%%kdh`%8%"HVCpiivfw``k@wwjw">%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%Zkdh`v+cpiivfw``k`wwjw%8%kdh`>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%ZvpuujwqvCpiivfw``k>%%%%x>%%%%*//%%%%%/%Dv|kfmwjkjpvi|%w`tp`vqv%qm`%gwjrv`w%qj%`kq`w%cpiivfw``k%hja`%jk%qm`%bls`k%`i`h`kq+%%%%%/%Lc%cpiivfw``k%hja`%lv%kjq%vpuujwq`a%g|%qm`%gwjrv`w)%aj`v%kjqmlkb+%%%%%/%%%%%/%Eudwdh%~Jgo`fqx%`i`h`kq%Qm`%MQHI%`i`h`kq%rmlfm%rlii%g`%uidf`a%lkqj%cpiivfw``k%hja`+%%%%%/%Eudwdh%~MHASWA`slf`x%^swA`slf`X%Qm`%SW%a`slf`+%%%%%/%%%%%/%E`}dhui`%%%%%/%**%Upq%qm`%`kqlw`%udb`%lkqj%cpiivfw``k+%%%%%/%F`vlph+Cpiivfw``k+w`tp`vqCpiivfw``k-ajfph`kq+gja|,%%%%%/%%%%%/%**%Uidf`%jki|%qm`%F`vlph%fdksdv%lkqj%cpiivfw``k+%%%%%/%F`vlph+Cpiivfw``k+w`tp`vqCpiivfw``k-vf`k`+fdksdv,%%%%%/*%%%%Cpiivfw``k+w`tp`vqCpiivfw``k%8%cpkfqljk-`i`h`kq)%swA`slf`,%~%%%%%%%%lc%-$Cpiivfw``k+vpuujwqvCpiivfw``k-,,%~%%%%%%%%%%%%w`qpwk>%%%%%%%%x%%%%%%%%`i`h`kq^Zkdh`v+w`tp`vqCpiivfw``kX-~%swAlvuid|?%swA`slf`%x,>%%%%x>%%%%*//%%%%%/%Dv|kfmwjkjpvi|%`}lqv%cpiivfw``k%hja`+%%Lc%qm`%gwjrv`w%lv%kjq%fpww`kqi|%%%%%/%lk%cpiivfw``k)%jw%lc%cpiivfw``k%hja`%lv%kjq%vpuujwq`a%g|%qm`%gwjrv`w)%aj`v%kjqmlkb+%%%%%/*%%%%Cpiivfw``k+`}lqCpiivfw``k%8%cpkfqljk-,%~%%%%%%%%lc%-$Cpiivfw``k+vpuujwqvCpiivfw``k-,,%~%%%%%%%%%%%%w`qpwk>%%%%%%%%x%%%%%%%%ajfph`kq^Zkdh`v+`}lqCpiivfw``kX-,>%%%%x>%%%%w`qpwk%Cpiivfw``k>x,>a`clk`-"Fjw`*C`dqpw`A`q`fqljk")^%%%%%%%%"+*a`cdpiqSdip`")%%%%%%%%"+*a`clk`a")%%%%%%%%"+*Cpiivfw``k"%%%%X)%cpkfqljk-%%%%%%%%a`cdpiqSdip`)%%%%%%%%a`clk`a)%%%%%%%%Cpiivfw``k,%~%%%%"pv`%vqwlfq">%%%%*/bijgdi%FdksdvUl}`iDwwd|/*%%%%sdw%qm`Kdslbdqjw>%%%%lc%-q|u`jc%kdslbdqjw%$88%"pka`clk`a",%~%%%%%%%%qm`Kdslbdqjw%8%kdslbdqjw>%%%%x%`iv`%~%%%%%%%%qm`Kdslbdqjw%8%~x>%%%%x%%%%cpkfqljk%`}qwdfqS`wvljk-s`wvljkVqwlkb,%~%%%%%%%%sdw%udwqv%8%s`wvljkVqwlkb+vuilq-"+",>%%%%%%%%cjw%-sdw%l%8%5)%i`k%8%udwqv+i`kbqm>%l%9%i`k>%..l,%~%%%%%%%%%%%%udwqv^lX%8%udwv`Lkq-udwqv^lX)%45,>%%%%%%%%x%%%%%%%%w`qpwk%udwqv>%%%%x%%%%sdw%lvFmwjh`W`vpiq>%%%%sdw%fmwjh`S`wvljkW`vpiq>%%%%cpkfqljk%lvFmwjh`-,%~%%%%%%%%lc%-$a`clk`a-lvFmwjh`W`vpiq,,%~%%%%%%%%%%%%lvFmwjh`W`vpiq%8%cdiv`>%%%%%%%%%%%%**%@ab`%fjkqdlkv%Fmwjh`%lk%qm`%pv`w%db`kq%qjj%%%%%%%%%%%%lc%-$lv@ab`-,,%~%%%%%%%%%%%%%%%%sdw%cl`iav%8%-*%Fmwjh`Y*-^Y+5(<X.,*,+`}`f-qm`Kdslbdqjw+pv`wDb`kq,>%%%%%%%%%%%%%%%%lc%-cl`iav%$88%kpii,%~%%%%%%%%%%%%%%%%%%%%lvFmwjh`W`vpiq%8%qwp`>%%%%%%%%%%%%%%%%%%%%fmwjh`S`wvljkW`vpiq%8%`}qwdfqS`wvljk-cl`iav^4X,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%lvFmwjh`W`vpiq>%%%%x%%%%cpkfqljk%fmwjh`S`wvljk-,%~%%%%%%%%w`qpwk%lvFmwjh`-,%##%fmwjh`S`wvljkW`vpiq>%%%%x%%%%sdw%lvVdcdwlW`vpiq>%%%%sdw%vdcdwlS`wvljkW`vpiq>%%%%cpkfqljk%lvVdcdwl-,%~%%%%%%%%lc%-$a`clk`a-lvVdcdwlW`vpiq,,%~%%%%%%%%%%%%lvVdcdwlW`vpiq%8%cdiv`>%%%%%%%%%%%%**%Fmwjh`%dka%@ab`%fjkqdlk%Vdcdwl%lk%qm`%pv`w%db`kq%qjj%%%%%%%%%%%%lc%-$lvFmwjh`-,%##%$lv@ab`-,%##%-*%VdcdwlY*^Y+5(<X.*,+q`vq-qm`Kdslbdqjw+pv`wDb`kq,,%~%%%%%%%%%%%%%%%%sdw%cl`iav%8%-*%S`wvljkY*-^Y+5(<X.,*,+`}`f-qm`Kdslbdqjw+pv`wDb`kq,>%%%%%%%%%%%%%%%%lc%-cl`iav%$88%kpii,%~%%%%%%%%%%%%%%%%%%%%lvVdcdwlW`vpiq%8%qwp`>%%%%%%%%%%%%%%%%%%%%vdcdwlS`wvljkW`vpiq%8%`}qwdfqS`wvljk-cl`iav^4X,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%lvVdcdwlW`vpiq>%%%%x%%%%cpkfqljk%vdcdwlS`wvljk-,%~%%%%%%%%w`qpwk%lvVdcdwl-,%##%vdcdwlS`wvljkW`vpiq>%%%%x%%%%sdw%lvR`gnlqW`vpiq>%%%%sdw%r`gnlqS`wvljkW`vpiq>%%%%cpkfqljk%lvR`gnlq-,%~%%%%%%%%lc%-$a`clk`a-lvR`gnlqW`vpiq,,%~%%%%%%%%%%%%lvR`gnlqW`vpiq%8%cdiv`>%%%%%%%%%%%%sdw%cl`iav%8%-*%Duui`R`gNlqY*-^Y+5(<X.,-Y.:,*,+`}`f-qm`Kdslbdqjw+pv`wDb`kq,>%%%%%%%%%%%%lc%-cl`iav%$88%kpii,%~%%%%%%%%%%%%%%%%lvR`gnlqW`vpiq%8%qwp`>%%%%%%%%%%%%%%%%r`gnlqS`wvljkW`vpiq%8%`}qwdfqS`wvljk-cl`iav^4X,>%%%%%%%%%%%%%%%%r`gnlqS`wvljkW`vpiq+lvKlbmqi|%8%$$cl`iav^7X>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%lvR`gnlqW`vpiq>%%%%x%%%%cpkfqljk%r`gnlqS`wvljk-,%~%%%%%%%%w`qpwk%lvR`gnlq-,%##%r`gnlqS`wvljkW`vpiq>%%%%x%%%%sdw%lvLkq`wk`q@}uijw`wW`vpiq>%%%%sdw%lkq`wk`q@}uijw`wS`wvljkW`vpiq>%%%%cpkfqljk%lvLkq`wk`q@}uijw`w-,%~%%%%%%%%lc%-$a`clk`a-lvLkq`wk`q@}uijw`wW`vpiq,,%~%%%%%%%%%%%%lvLkq`wk`q@}uijw`wW`vpiq%8%cdiv`>%%%%%%%%%%%%sdw%cl`iav>%%%%%%%%%%%%lc%-qm`Kdslbdqjw+duuKdh`%888%"Hlfwjvjcq%Lkq`wk`q%@}uijw`w",%~%%%%%%%%%%%%%%%%cl`iav%8%*HVL@%-^5(<X~4)x^Y+5(<X~5)x,*+`}`f-qm`Kdslbdqjw+pv`wDb`kq,>%%%%%%%%%%%%%%%%lc%-cl`iav%$88%kpii,%~%%%%%%%%%%%%%%%%%%%%lvLkq`wk`q@}uijw`wW`vpiq%8%qwp`>%%%%%%%%%%%%%%%%%%%%lkq`wk`q@}uijw`wS`wvljkW`vpiq%8%`}qwdfqS`wvljk-cl`iav^4X,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%`iv`%lc%-qm`Kdslbdqjw+duuKdh`%888%"K`qvfdu`",%~%%%%%%%%%%%%%%%%cl`iav%8%*Qwla`kqY*+/ws?-^5(<X~4)x^Y+5(<X~5)x,*+`}`f-qm`Kdslbdqjw+pv`wDb`kq,>%%%%%%%%%%%%%%%%lc%-cl`iav%$88%kpii,%~%%%%%%%%%%%%%%%%%%%%lvLkq`wk`q@}uijw`wW`vpiq%8%qwp`>%%%%%%%%%%%%%%%%%%%%lkq`wk`q@}uijw`wS`wvljkW`vpiq%8%`}qwdfqS`wvljk-cl`iav^4X,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%lvLkq`wk`q@}uijw`wW`vpiq>%%%%x%%%%cpkfqljk%lkq`wk`q@}uijw`wS`wvljk-,%~%%%%%%%%w`qpwk%lvLkq`wk`q@}uijw`w-,%##%lkq`wk`q@}uijw`wS`wvljkW`vpiq>%%%%x%%%%sdw%lv@ab`W`vpiq>%%%%sdw%`ab`S`wvljkW`vpiq>%%%%cpkfqljk%lv@ab`-,%~%%%%%%%%lc%-$a`clk`a-lv@ab`W`vpiq,,%~%%%%%%%%%%%%lv@ab`W`vpiq%8%cdiv`>%%%%%%%%%%%%sdw%cl`iav%8%-*%@ab`Y*-^Y+5(<X.,*,+`}`f-qm`Kdslbdqjw+pv`wDb`kq,>%%%%%%%%%%%%lc%-cl`iav%$88%kpii,%~%%%%%%%%%%%%%%%%lv@ab`W`vpiq%8%qwp`>%%%%%%%%%%%%%%%%`ab`S`wvljkW`vpiq%8%`}qwdfqS`wvljk-cl`iav^4X,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%lv@ab`W`vpiq>%%%%x%%%%cpkfqljk%`ab`S`wvljk-,%~%%%%%%%%w`qpwk%lv@ab`-,%##%`ab`S`wvljkW`vpiq>%%%%x%%%%sdw%lvClw`cj}W`vpiq>%%%%sdw%clw`cj}S`wvljkW`vpiq>%%%%cpkfqljk%lvClw`cj}-,%~%%%%%%%%lc%-$a`clk`a-lvClw`cj}W`vpiq,,%~%%%%%%%%%%%%lvClw`cj}W`vpiq%8%cdiv`>%%%%%%%%%%%%sdw%cl`iav%8%*Clw`cj}Y*-^Y+5(<X.,*+`}`f-qm`Kdslbdqjw+pv`wDb`kq,>%%%%%%%%%%%%lc%-cl`iav%$88%kpii,%~%%%%%%%%%%%%%%%%lvClw`cj}W`vpiq%8%qwp`>%%%%%%%%%%%%%%%%clw`cj}S`wvljkW`vpiq%8%`}qwdfqS`wvljk-cl`iav^4X,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%lvClw`cj}W`vpiq>%%%%x%%%%sdw%lvRlkajrvW`vpiq>%%%%cpkfqljk%lvRlkajrv-,%~%%%%%%%%lc%-$a`clk`a-lvRlkajrvW`vpiq,,%~%%%%%%%%%%%%lvRlkajrvW`vpiq%8%*Rlkajrv*l+q`vq-qm`Kdslbdqjw+duuS`wvljk,>%%%%%%%%x%%%%%%%%w`qpwk%lvRlkajrvW`vpiq>%%%%x%%%%cpkfqljk%clw`cj}S`wvljk-,%~%%%%%%%%w`qpwk%lvClw`cj}-,%##%clw`cj}S`wvljkW`vpiq>%%%%x%%%%sdw%mdvUjlkq`w@s`kqv>%%%%cpkfqljk%vpuujwqvUjlkq`w@s`kqv-,%~%%%%%%%%lc%-$a`clk`a-mdvUjlkq`w@s`kqv,,%~%%%%%%%%%%%%**Rmli`%kdslbdqjw+ujlkq`w@kdgi`a%lv%a`uw`fdq`a%lk%qm`%R6F%vu`flclfdqljk%%%%%%%%%%%%**r`%vqlii%k``a%qj%pv`%lq%lc%lq%`}lvqv%lk%jwa`w%qj%vpuujwq%gwjrv`wv%%%%%%%%%%%%**qmdq%w`i|%jk%lq)%vpfm%dv%qm`%Rlkajrv%R`gGwjrv`w%fjkqwji%rmlfm%a`clk`v%%%%%%%%%%%%**Ujlkq`w@s`kq%gpq%v`qv%kdslbdqjw+ujlkq`w@kdgi`a%qj%cdiv`+%%%%%%%%%%%%**Clw`cj}%alvdgi`a%g`fdpv`%jc%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph*lvvp`v*3627%%%%%%%%%%%%mdvUjlkq`w@s`kqv%8%$lvClw`cj}-,%##%q|u`jc%Ujlkq`w@s`kq%$88%"pka`clk`a"%##%-$a`clk`a-qm`Kdslbdqjw+ujlkq`w@kdgi`a,%yy%qm`Kdslbdqjw+ujlkq`w@kdgi`a,>%%%%%%%%x%%%%%%%%w`qpwk%mdvUjlkq`w@s`kqv>%%%%x%%%%sdw%lhdb`W`ka`wlkbSdip`W`vpiq>%%%%sdw%vpuujwqvLhdb`W`ka`wlkbUl}`idq`aW`vpiq>%%%%cpkfqljk%vpuujwqvLhdb`W`ka`wlkbUl}`idq`a-,%~%%%%%%%%lc%-$a`clk`a-vpuujwqvLhdb`W`ka`wlkbUl}`idq`aW`vpiq,,%~%%%%%%%%%%%%sdw%fdksdv%8%ajfph`kq+fw`dq`@i`h`kq-"fdksdv",>%%%%%%%%%%%%fdksdv+v`qDqqwlgpq`-"vq|i`")%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%"lhdb`(w`ka`wlkb?%(hj(fwlvu(`ab`v>"%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%"lhdb`(w`ka`wlkb?%ul}`idq`a>",>%%%%%%%%%%%%**fdksdv+vq|i`+lhdb`W`ka`wlkb%rlii%g`%pka`clk`a)%kpii%jw%dk%`huq|%vqwlkb%jk%pkvpuujwq`a%gwjrv`wv+%%%%%%%%%%%%sdw%qhu%8%fdksdv+vq|i`+lhdb`W`ka`wlkb>%%%%%%%%%%%%vpuujwqvLhdb`W`ka`wlkbUl}`idq`aW`vpiq%8%a`clk`a-qhu,%##%qhu%$88%"">%%%%%%%%%%%%lc%-vpuujwqvLhdb`W`ka`wlkbUl}`idq`aW`vpiq,%~%%%%%%%%%%%%%%%%lhdb`W`ka`wlkbSdip`W`vpiq%8%qhu>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%vpuujwqvLhdb`W`ka`wlkbUl}`idq`aW`vpiq>%%%%x%%%%cpkfqljk%lhdb`W`ka`wlkbSdip`-,%~%%%%%%%%w`qpwk%vpuujwqvLhdb`W`ka`wlkbUl}`idq`a-,%:%lhdb`W`ka`wlkbSdip`W`vpiq%?%pka`clk`a>%%%%x%%%%sdw%q|u`aDwwd|Q|u`v%8%^X>%%%%lc%-q|u`jc%Dwwd|Gpcc`w%$88%"pka`clk`a",%~%%%%%%%%q|u`aDwwd|Q|u`v+upvm-Lkq=Dwwd|)%Plkq=Dwwd|)%Lkq43Dwwd|)%Plkq43Dwwd|)%Lkq67Dwwd|)%Plkq67Dwwd|)%Cijdq67Dwwd|)%Cijdq31Dwwd|,>%%%%%%%%lc%-q|u`jc%Plkq=Fidhu`aDwwd|%$88%"pka`clk`a",%~%%%%%%%%%%%%q|u`aDwwd|Q|u`v+upvm-Plkq=Fidhu`aDwwd|,>%%%%%%%%x%%%%%%%%lc%-q|u`jc%FdksdvUl}`iDwwd|%$88%"pka`clk`a",%~%%%%%%%%%%%%q|u`aDwwd|Q|u`v+upvm-FdksdvUl}`iDwwd|,>%%%%%%%%x%%%%x%%%%*//%%%%%/%D%v`q%jc%cpkfqljkv%qj%a`q`fq%rm`qm`w%qm`%fpww`kq%gwjrv`w%vpuujwqv%%%%%/%sdwljpv%c`dqpw`v+%%%%%/%%%%%/%E`}ujwqv%C`dqpw`A`q`fqljk%%%%%/*%%%%sdw%C`dqpw`A`q`fqljk%8%~%%%%%%%%lvFmwjh`%?%lvFmwjh`)%%%%%%%%fmwjh`S`wvljk%?%fmwjh`S`wvljk)%%%%%%%%lvVdcdwl%?%lvVdcdwl)%%%%%%%%vdcdwlS`wvljk%?%vdcdwlS`wvljk)%%%%%%%%lvR`gnlq%?%lvR`gnlq)%%%%%%%%r`gnlqS`wvljk%?%r`gnlqS`wvljk)%%%%%%%%lvLkq`wk`q@}uijw`w%?%lvLkq`wk`q@}uijw`w)%%%%%%%%lkq`wk`q@}uijw`wS`wvljk%?%lkq`wk`q@}uijw`wS`wvljk)%%%%%%%%lv@ab`%?%lv@ab`)%%%%%%%%`ab`S`wvljk%?%`ab`S`wvljk)%%%%%%%%lvClw`cj}%?%lvClw`cj})%%%%%%%%clw`cj}S`wvljk%?%clw`cj}S`wvljk)%%%%%%%%lvRlkajrv%?%lvRlkajrv)%%%%%%%%mdwardw`Fjkfpww`kf|%?%a`cdpiqSdip`-qm`Kdslbdqjw+mdwardw`Fjkfpww`kf|)%6,)%%%%%%%%vpuujwqvUjlkq`w@s`kqv%?%vpuujwqvUjlkq`w@s`kqv)%%%%%%%%vpuujwqvLhdb`W`ka`wlkbUl}`idq`a?%vpuujwqvLhdb`W`ka`wlkbUl}`idq`a)%%%%%%%%lhdb`W`ka`wlkbSdip`?%lhdb`W`ka`wlkbSdip`)%%%%%%%%q|u`aDwwd|Q|u`v?%q|u`aDwwd|Q|u`v%%%%x>%%%%*//%%%%%/%A`q`fqv%rm`qm`w%qm`%fpww`kq%gwjrv`w%vpuujwqv%qm`%cpii%vfw``k%vqdkadwa+%%%%%/%%%%%/%Ew`qpwkv%~Gjji`dkx%qwp`%lc%qm`%gwjrv`w%vpuujwqv%qm`%cpii%vfw``k%vqdkadwa)%cdiv`%lc%kjq+%%%%%/%%%%%/%Ev``%Cpiivfw``k%%%%%/%Ev``%~Eilkn%mqqu?**asfv+r6+jwb*mb*cpiivfw``k*wdr(cli`*qlu*Js`wsl`r+mqhiyR6F%Cpiivfw``k%Ilslkb%Vu`flclfdqljkx%%%%%/*%%%%C`dqpw`A`q`fqljk+vpuujwqvCpiivfw``k%8%cpkfqljk-,%~%%%%%%%%w`qpwk%Cpiivfw``k+vpuujwqvCpiivfw``k-,>%%%%x>%%%%*//%%%%%/%A`q`fqv%rm`qm`w%qm`%fpww`kq%gwjrv`w%vpuujwqv%q|u`a%dwwd|v+%%%%%/%%%%%/%Ew`qpwkv%~Gjji`dkx%qwp`%lc%qm`%gwjrv`w%vpuujwqv%q|u`a%dwwd|v)%cdiv`%lc%kjq+%%%%%/%%%%%/%Ev``%~Eilkn%mqqu?**rrr+nmwjkjv+jwb*w`blvqw|*q|u`adwwd|*vu`fv*idq`vq*yQ|u`a%Dwwd|%Vu`flclfdqljkx%%%%%/*%%%%C`dqpw`A`q`fqljk+vpuujwqvQ|u`aDwwd|v%8%cpkfqljk-,%~%%%%%%%%w`qpwk%q|u`jc%Dwwd|Gpcc`w%$88%"pka`clk`a">%%%%x>%%%%*//%%%%%/%A`q`fqv%rm`qm`w%qm`%fpww`kq%gwjrv`w%vpuujwqv%R`g%Rjwn`wv+%%%%%/%%%%%/%Ew`qpwkv%~Gjji`dkx%qwp`%lc%qm`%gwjrv`wv%vpuujwqv%R`g%Rjwn`wv)%cdiv`%lc%kjq+%%%%%/%%%%%/%Ev``%~Eilkn%mqqu?**rrr+r6+jwb*QW*rjwn`wv*x%%%%%/*%%%%C`dqpw`A`q`fqljk+vpuujwqvR`gRjwn`wv%8%cpkfqljk-,%~%%%%%%%%w`qpwk%q|u`jc%Rjwn`w%$88%"pka`clk`a">%%%%x>%%%%*//%%%%%/%A`q`fqv%rm`qm`w%qm`%fpww`kq%gwjrv`w%vpuujwqv%R`g%Dvv`hgi|+%%%%%/%%%%%/%Ew`qpwkv%~Gjji`dkx%qwp`%lc%qm`%gwjrv`wv%vpuujwqv%R`g%Dvv`hgi|)%cdiv`%lc%kjq+%%%%%/%%%%%/%Ev``%~Eilkn%mqquv?**a`s`iju`w+hjliid+jwb*`k(PV*ajfv*R`gDvv`hgi|x%%%%%/*%%%%C`dqpw`A`q`fqljk+vpuujwqvR`gDvv`hgi|%8%cpkfqljk-,%~%%%%%%%%w`qpwk%q|u`jc%R`gDvv`hgi|%$88%"pka`clk`a"%##%$C`dqpw`A`q`fqljk+lv@ab`-,>%%%%x>%%%%w`qpwk%C`dqpw`A`q`fqljk>x,>a`clk`-"Fjw`*R`gBIFjkvqdkqv")^%%%%%%%%"+*cw```Jgo`fq"%%%%X)%cpkfqljk-%%%%%%%%cw```Jgo`fq,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%@kph%fjkqdlklkb%R`gBI%Fjkvqdkq%sdip`v%g|%kdh`+%%%%%/%cjw%pv`%rlqmjpq%dk%dfqls`%R`gBI%fjkq`}q)%jw%lk%fdv`v%rm`w`%f`wqdlk%fjkvqdkqv%dw`%pkdsdlidgi`%pvlkb%qm`%R`gBI%fjkq`}q%%%%%/%-Cjw%`}dhui`)%lk%^Vdcdwl%<X~Eilkn%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph*lvvp`v*7<=<x,+%%%%%/%%%%%/%Qm`v`%hdqfm%qm`%fjkvqdkqv%cwjh%qm`%^R`gBI%4+5X~Eilkn%mqquv?**rrr+nmwjkjv+jwb*w`blvqw|*r`gbi*vu`fv*idq`vq*4+5*x%%%%%/%dka%^R`gBI%7+5X~Eilkn%mqquv?**rrr+nmwjkjv+jwb*w`blvqw|*r`gbi*vu`fv*idq`vq*7+5*x%%%%%/%vu`flclfdqljkv+%%%%%/%%%%%/%E`}ujwqv%R`gBIFjkvqdkqv%%%%%/*%%%%sdw%R`gBIFjkvqdkqv%8%~%%%%%%%%A@UQMZGPCC@WZGLQ%?%5}55555455)%%%%%%%%VQ@KFLIZGPCC@WZGLQ%?%5}55555155)%%%%%%%%FJIJWZGPCC@WZGLQ%?%5}55551555)%%%%%%%%UJLKQV%?%5}5555)%%%%%%%%ILK@V%?%5}5554)%%%%%%%%ILK@ZIJJU%?%5}5557)%%%%%%%%ILK@ZVQWLU%?%5}5556)%%%%%%%%QWLDKBI@V%?%5}5551)%%%%%%%%QWLDKBI@ZVQWLU%?%5}5550)%%%%%%%%QWLDKBI@ZCDK%?%5}5553)%%%%%%%%_@WJ%?%5)%%%%%%%%JK@%?%4)%%%%%%%%VWFZFJIJW%?%5}5655)%%%%%%%%JK@ZHLKPVZVWFZFJIJW%?%5}5654)%%%%%%%%VWFZDIUMD%?%5}5657)%%%%%%%%JK@ZHLKPVZVWFZDIUMD%?%5}5656)%%%%%%%%AVQZDIUMD%?%5}5651)%%%%%%%%JK@ZHLKPVZAVQZDIUMD%?%5}5650)%%%%%%%%AVQZFJIJW%?%5}5653)%%%%%%%%JK@ZHLKPVZAVQZFJIJW%?%5}5652)%%%%%%%%VWFZDIUMDZVDQPWDQ@%?%5}565=)%%%%%%%%CPKFZDAA%?%5}=553)%%%%%%%%GI@KAZ@TPDQLJK%?%5}=55<)%%%%%%%%GI@KAZ@TPDQLJKZWBG%?%5}=55<)%**%vdh`%dv%GI@KAZ@TPDQLJK%%%%%%%%GI@KAZ@TPDQLJKZDIUMD%?%5}==6A)%%%%%%%%CPKFZVPGQWDFQ%?%5}=55D)%%%%%%%%CPKFZW@S@WV@ZVPGQWDFQ%?%5}=55G)%%%%%%%%GI@KAZAVQZWBG%?%5}=5F=)%%%%%%%%GI@KAZVWFZWBG%?%5}=5F<)%%%%%%%%GI@KAZAVQZDIUMD%?%5}=5FD)%%%%%%%%GI@KAZVWFZDIUMD%?%5}=5FG)%%%%%%%%FJKVQDKQZFJIJW%?%5}=554)%%%%%%%%JK@ZHLKPVZFJKVQDKQZFJIJW%?%5}=557)%%%%%%%%FJKVQDKQZDIUMD%?%5}=556)%%%%%%%%JK@ZHLKPVZFJKVQDKQZDIUMD%?%5}=551)%%%%%%%%GI@KAZFJIJW%?%5}=550)%%%%%%%%DWWD\ZGPCC@W%?%5}==<7)%%%%%%%%@I@H@KQZDWWD\ZGPCC@W%?%5}==<6)%%%%%%%%DWWD\ZGPCC@WZGLKALKB%?%5}==<1)%%%%%%%%@I@H@KQZDWWD\ZGPCC@WZGLKALKB%?%5}==<0)%%%%%%%%VQW@DHZAWDR%?%5}==@5)%%%%%%%%VQDQLFZAWDR%?%5}==@1)%%%%%%%%A\KDHLFZAWDR%?%5}==@=)%%%%%%%%GPCC@WZVL_@%?%5}=231)%%%%%%%%GPCC@WZPVDB@%?%5}=230)%%%%%%%%FPWW@KQZS@WQ@]ZDQQWLG%?%5}=373)%%%%%%%%CWJKQ%?%5}5151)%%%%%%%%GDFN%?%5}5150)%%%%%%%%CWJKQZDKAZGDFN%?%5}515=)%%%%%%%%FPIIZCDF@%?%5}5G11)%%%%%%%%GI@KA%?%5}5G@7)%%%%%%%%ALQM@W%?%5}5GA5)%%%%%%%%VQ@KFLIZQ@VQ%?%5}5G<5)%%%%%%%%A@UQMZQ@VQ%?%5}5G24)%%%%%%%%VFLVVJWZQ@VQ%?%5}5F44)%%%%%%%%UJI\BJKZJCCV@QZCLII%?%5}=562)%%%%%%%%VDHUI@ZDIUMDZQJZFJS@WDB@%?%5}=5<@)%%%%%%%%VDHUI@ZFJS@WDB@%?%5}=5D5)%%%%%%%%KJZ@WWJW%?%5)%%%%%%%%LKSDILAZ@KPH%?%5}5055)%%%%%%%%LKSDILAZSDIP@%?%5}5054)%%%%%%%%LKSDILAZJU@WDQLJK%?%5}5057)%%%%%%%%JPQZJCZH@HJW\%?%5}5050)%%%%%%%%FR%?%5}5<55)%%%%%%%%FFR%?%5}5<54)%%%%%%%%ILK@ZRLAQM%?%5}5G74)%%%%%%%%DILDV@AZUJLKQZVL_@ZWDKB@%?%5}=13A)%%%%%%%%DILDV@AZILK@ZRLAQMZWDKB@%?%5}=13@)%%%%%%%%FPIIZCDF@ZHJA@%?%5}5G10)%%%%%%%%CWJKQZCDF@%?%5}5G13)%%%%%%%%A@UQMZWDKB@%?%5}5G25)%%%%%%%%A@UQMZRWLQ@HDVN%?%5}5G27)%%%%%%%%A@UQMZFI@DWZSDIP@%?%5}5G26)%%%%%%%%A@UQMZCPKF%?%5}5G21)%%%%%%%%VQ@KFLIZFI@DWZSDIP@%?%5}5G<4)%%%%%%%%VQ@KFLIZCPKF%?%5}5G<7)%%%%%%%%VQ@KFLIZCDLI%?%5}5G<1)%%%%%%%%VQ@KFLIZUDVVZA@UQMZCDLI%?%5}5G<0)%%%%%%%%VQ@KFLIZUDVVZA@UQMZUDVV%?%5}5G<3)%%%%%%%%VQ@KFLIZW@C%?%5}5G<2)%%%%%%%%VQ@KFLIZSDIP@ZHDVN%?%5}5G<6)%%%%%%%%VQ@KFLIZRWLQ@HDVN%?%5}5G<=)%%%%%%%%VQ@KFLIZGDFNZCPKF%?%5}==55)%%%%%%%%VQ@KFLIZGDFNZCDLI%?%5}==54)%%%%%%%%VQ@KFLIZGDFNZUDVVZA@UQMZCDLI%?%5}==57)%%%%%%%%VQ@KFLIZGDFNZUDVVZA@UQMZUDVV%?%5}==56)%%%%%%%%VQ@KFLIZGDFNZW@C%?%5}=FD6)%%%%%%%%VQ@KFLIZGDFNZSDIP@ZHDVN%?%5}=FD1)%%%%%%%%VQ@KFLIZGDFNZRWLQ@HDVN%?%5}=FD0)%%%%%%%%SL@RUJWQ%?%5}5GD7)%%%%%%%%VFLVVJWZGJ]%?%5}5F45)%%%%%%%%FJIJWZFI@DWZSDIP@%?%5}5F77)%%%%%%%%FJIJWZRWLQ@HDVN%?%5}5F76)%%%%%%%%PKUDFNZDILBKH@KQ%?%5}5FC0)%%%%%%%%UDFNZDILBKH@KQ%?%5}5A50)%%%%%%%%HD]ZQ@]QPW@ZVL_@%?%5}5A66)%%%%%%%%HD]ZSL@RUJWQZALHV%?%5}5A6D)%%%%%%%%VPGUL]@IZGLQV%?%5}5A05)%%%%%%%%W@AZGLQV%?%5}5A07)%%%%%%%%BW@@KZGLQV%?%5}5A06)%%%%%%%%GIP@ZGLQV%?%5}5A01)%%%%%%%%DIUMDZGLQV%?%5}5A00)%%%%%%%%A@UQMZGLQV%?%5}5A03)%%%%%%%%VQ@KFLIZGLQV%?%5}5A02)%%%%%%%%UJI\BJKZJCCV@QZPKLQV%?%5}7D55)%%%%%%%%UJI\BJKZJCCV@QZCDFQJW%?%5}=56=)%%%%%%%%Q@]QPW@ZGLKALKBZ7A%?%5}=53<)%%%%%%%%VDHUI@ZGPCC@WV%?%5}=5D=)%%%%%%%%VDHUI@V%?%5}=5D<)%%%%%%%%VDHUI@ZFJS@WDB@ZSDIP@%?%5}=5DD)%%%%%%%%VDHUI@ZFJS@WDB@ZLKS@WQ%?%5}=5DG)%%%%%%%%FJHUW@VV@AZQ@]QPW@ZCJWHDQV%?%5}=3D6)%%%%%%%%AJKQZFDW@%?%5}4455)%%%%%%%%CDVQ@VQ%?%5}4454)%%%%%%%%KLF@VQ%?%5}4457)%%%%%%%%B@K@WDQ@ZHLUHDUZMLKQ%?%5}=4<7)%%%%%%%%G\Q@%?%5}4155)%%%%%%%%PKVLBK@AZG\Q@%?%5}4154)%%%%%%%%VMJWQ%?%5}4157)%%%%%%%%PKVLBK@AZVMJWQ%?%5}4156)%%%%%%%%LKQ%?%5}4151)%%%%%%%%PKVLBK@AZLKQ%?%5}4150)%%%%%%%%CIJDQ%?%5}4153)%%%%%%%%A@UQMZFJHUJK@KQ%?%5}4<57)%%%%%%%%DIUMD%?%5}4<53)%%%%%%%%WBG%?%5}4<52)%%%%%%%%WBGD%?%5}4<5=)%%%%%%%%IPHLKDKF@%?%5}4<5<)%%%%%%%%IPHLKDKF@ZDIUMD%?%5}4<5D)%%%%%%%%PKVLBK@AZVMJWQZ1Z1Z1Z1%?%5}=566)%%%%%%%%PKVLBK@AZVMJWQZ0Z0Z0Z4%?%5}=561)%%%%%%%%PKVLBK@AZVMJWQZ0Z3Z0%?%5}=636)%%%%%%%%CWDBH@KQZVMDA@W%?%5}=G65)%%%%%%%%S@WQ@]ZVMDA@W%?%5}=G64)%%%%%%%%HD]ZS@WQ@]ZDQQWLGV%?%5}==3<)%%%%%%%%HD]ZS@WQ@]ZPKLCJWHZS@FQJWV%?%5}=ACG)%%%%%%%%HD]ZSDW\LKBZS@FQJWV%?%5}=ACF)%%%%%%%%HD]ZFJHGLK@AZQ@]QPW@ZLHDB@ZPKLQV%?%5}=G1A)%%%%%%%%HD]ZS@WQ@]ZQ@]QPW@ZLHDB@ZPKLQV%?%5}=G1F)%%%%%%%%HD]ZQ@]QPW@ZLHDB@ZPKLQV%?%5}==27)%%%%%%%%HD]ZCWDBH@KQZPKLCJWHZS@FQJWV%?%5}=ACA)%%%%%%%%VMDA@WZQ\U@%?%5}=G1C)%%%%%%%%A@I@Q@ZVQDQPV%?%5}=G=5)%%%%%%%%ILKNZVQDQPV%?%5}=G=7)%%%%%%%%SDILADQ@ZVQDQPV%?%5}=G=6)%%%%%%%%DQQDFM@AZVMDA@WV%?%5}=G=0)%%%%%%%%DFQLS@ZPKLCJWHV%?%5}=G=3)%%%%%%%%DFQLS@ZDQQWLGPQ@V%?%5}=G=<)%%%%%%%%VMDALKBZIDKBPDB@ZS@WVLJK%?%5}=G=F)%%%%%%%%FPWW@KQZUWJBWDH%?%5}=G=A)%%%%%%%%K@S@W%?%5}5755)%%%%%%%%I@VV%?%5}5754)%%%%%%%%@TPDI%?%5}5757)%%%%%%%%I@TPDI%?%5}5756)%%%%%%%%BW@DQ@W%?%5}5751)%%%%%%%%KJQ@TPDI%?%5}5750)%%%%%%%%B@TPDI%?%5}5753)%%%%%%%%DIRD\V%?%5}5752)%%%%%%%%N@@U%?%5}4@55)%%%%%%%%W@UIDF@%?%5}4@54)%%%%%%%%LKFW%?%5}4@57)%%%%%%%%A@FW%?%5}4@56)%%%%%%%%LKS@WQ%?%5}405D)%%%%%%%%LKFWZRWDU%?%5}=052)%%%%%%%%A@FWZRWDU%?%5}=05=)%%%%%%%%S@KAJW%?%5}4C55)%%%%%%%%W@KA@W@W%?%5}4C54)%%%%%%%%S@WVLJK%?%5}4C57)%%%%%%%%K@DW@VQ%?%5}7355)%%%%%%%%ILK@DW%?%5}7354)%%%%%%%%K@DW@VQZHLUHDUZK@DW@VQ%?%5}7255)%%%%%%%%ILK@DWZHLUHDUZK@DW@VQ%?%5}7254)%%%%%%%%K@DW@VQZHLUHDUZILK@DW%?%5}7257)%%%%%%%%ILK@DWZHLUHDUZILK@DW%?%5}7256)%%%%%%%%Q@]QPW@ZHDBZCLIQ@W%?%5}7=55)%%%%%%%%Q@]QPW@ZHLKZCLIQ@W%?%5}7=54)%%%%%%%%Q@]QPW@ZRWDUZV%?%5}7=57)%%%%%%%%Q@]QPW@ZRWDUZQ%?%5}7=56)%%%%%%%%Q@]QPW@Z7A%?%5}5A@4)%%%%%%%%Q@]QPW@%?%5}4257)%%%%%%%%Q@]QPW@ZFPG@ZHDU%?%5}=046)%%%%%%%%Q@]QPW@ZGLKALKBZFPG@ZHDU%?%5}=041)%%%%%%%%Q@]QPW@ZFPG@ZHDUZUJVLQLS@Z]%?%5}=040)%%%%%%%%Q@]QPW@ZFPG@ZHDUZK@BDQLS@Z]%?%5}=043)%%%%%%%%Q@]QPW@ZFPG@ZHDUZUJVLQLS@Z\%?%5}=042)%%%%%%%%Q@]QPW@ZFPG@ZHDUZK@BDQLS@Z\%?%5}=04=)%%%%%%%%Q@]QPW@ZFPG@ZHDUZUJVLQLS@Z_%?%5}=04<)%%%%%%%%Q@]QPW@ZFPG@ZHDUZK@BDQLS@Z_%?%5}=04D)%%%%%%%%HD]ZFPG@ZHDUZQ@]QPW@ZVL_@%?%5}=04F)%%%%%%%%Q@]QPW@5%?%5}=1F5)%%%%%%%%Q@]QPW@4%?%5}=1F4)%%%%%%%%Q@]QPW@7%?%5}=1F7)%%%%%%%%Q@]QPW@6%?%5}=1F6)%%%%%%%%Q@]QPW@1%?%5}=1F1)%%%%%%%%Q@]QPW@0%?%5}=1F0)%%%%%%%%Q@]QPW@3%?%5}=1F3)%%%%%%%%Q@]QPW@2%?%5}=1F2)%%%%%%%%Q@]QPW@=%?%5}=1F=)%%%%%%%%Q@]QPW@<%?%5}=1F<)%%%%%%%%Q@]QPW@45%?%5}=1FD)%%%%%%%%Q@]QPW@44%?%5}=1FG)%%%%%%%%Q@]QPW@47%?%5}=1FF)%%%%%%%%Q@]QPW@46%?%5}=1FA)%%%%%%%%Q@]QPW@41%?%5}=1F@)%%%%%%%%Q@]QPW@40%?%5}=1FC)%%%%%%%%Q@]QPW@43%?%5}=1A5)%%%%%%%%Q@]QPW@42%?%5}=1A4)%%%%%%%%Q@]QPW@4=%?%5}=1A7)%%%%%%%%Q@]QPW@4<%?%5}=1A6)%%%%%%%%Q@]QPW@75%?%5}=1A1)%%%%%%%%Q@]QPW@74%?%5}=1A0)%%%%%%%%Q@]QPW@77%?%5}=1A3)%%%%%%%%Q@]QPW@76%?%5}=1A2)%%%%%%%%Q@]QPW@71%?%5}=1A=)%%%%%%%%Q@]QPW@70%?%5}=1A<)%%%%%%%%Q@]QPW@73%?%5}=1AD)%%%%%%%%Q@]QPW@72%?%5}=1AG)%%%%%%%%Q@]QPW@7=%?%5}=1AF)%%%%%%%%Q@]QPW@7<%?%5}=1AA)%%%%%%%%Q@]QPW@65%?%5}=1A@)%%%%%%%%Q@]QPW@64%?%5}=1AC)%%%%%%%%DFQLS@ZQ@]QPW@%?%5}=1@5)%%%%%%%%W@U@DQ%?%5}7<54)%%%%%%%%FIDHUZQJZ@AB@%?%5}=47C)%%%%%%%%HLWWJW@AZW@U@DQ%?%5}=625)%%%%%%%%CIJDQZS@F7%?%5}=G05)%%%%%%%%CIJDQZS@F6%?%5}=G04)%%%%%%%%CIJDQZS@F1%?%5}=G07)%%%%%%%%LKQZS@F7%?%5}=G06)%%%%%%%%LKQZS@F6%?%5}=G01)%%%%%%%%LKQZS@F1%?%5}=G00)%%%%%%%%GJJI%?%5}=G03)%%%%%%%%GJJIZS@F7%?%5}=G02)%%%%%%%%GJJIZS@F6%?%5}=G0=)%%%%%%%%GJJIZS@F1%?%5}=G0<)%%%%%%%%CIJDQZHDQ7%?%5}=G0D)%%%%%%%%CIJDQZHDQ6%?%5}=G0G)%%%%%%%%CIJDQZHDQ1%?%5}=G0F)%%%%%%%%VDHUI@WZ7A%?%5}=G0@)%%%%%%%%VDHUI@WZFPG@%?%5}=G35)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\Z@KDGI@A%?%5}=377)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZVL_@%?%5}=376)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZVQWLA@%?%5}=371)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZQ\U@%?%5}=370)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZKJWHDIL_@A%?%5}==3D)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZUJLKQ@W%?%5}=310)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZGPCC@WZGLKALKB%?%5}==<C)%%%%%%%%LHUI@H@KQDQLJKZFJIJWZW@DAZQ\U@%?%5}=G<D)%%%%%%%%LHUI@H@KQDQLJKZFJIJWZW@DAZCJWHDQ%?%5}=G<G)%%%%%%%%FJHULI@ZVQDQPV%?%5}=G=4)%%%%%%%%IJRZCIJDQ%?%5}=AC5)%%%%%%%%H@ALPHZCIJDQ%?%5}=AC4)%%%%%%%%MLBMZCIJDQ%?%5}=AC7)%%%%%%%%IJRZLKQ%?%5}=AC6)%%%%%%%%H@ALPHZLKQ%?%5}=AC1)%%%%%%%%MLBMZLKQ%?%5}=AC0)%%%%%%%%CWDH@GPCC@W%?%5}=A15)%%%%%%%%W@KA@WGPCC@W%?%5}=A14)%%%%%%%%WBGD1%?%5}=503)%%%%%%%%WBG0ZD4%?%5}=502)%%%%%%%%WBG030%?%5}=A37)%%%%%%%%A@UQMZFJHUJK@KQ43%?%5}=4D0)%%%%%%%%VQ@KFLIZLKA@]%?%5}4<54)%%%%%%%%VQ@KFLIZLKA@]=%?%5}=A1=)%%%%%%%%A@UQMZVQ@KFLI%?%5}=1C<)%%%%%%%%W@KA@WGPCC@WZRLAQM%?%5}=A17)%%%%%%%%W@KA@WGPCC@WZM@LBMQ%?%5}=A16)%%%%%%%%W@KA@WGPCC@WZLKQ@WKDIZCJWHDQ%?%5}=A11)%%%%%%%%W@KA@WGPCC@WZW@AZVL_@%?%5}=A05)%%%%%%%%W@KA@WGPCC@WZBW@@KZVL_@%?%5}=A04)%%%%%%%%W@KA@WGPCC@WZGIP@ZVL_@%?%5}=A07)%%%%%%%%W@KA@WGPCC@WZDIUMDZVL_@%?%5}=A06)%%%%%%%%W@KA@WGPCC@WZA@UQMZVL_@%?%5}=A01)%%%%%%%%W@KA@WGPCC@WZVQ@KFLIZVL_@%?%5}=A00)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZJGO@FQZQ\U@%?%5}=FA5)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZJGO@FQZKDH@%?%5}=FA4)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZQ@]QPW@ZI@S@I%?%5}=FA7)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZQ@]QPW@ZFPG@ZHDUZCDF@%?%5}=FA6)%%%%%%%%FJIJWZDQQDFMH@KQ5%?%5}=F@5)%%%%%%%%A@UQMZDQQDFMH@KQ%?%5}=A55)%%%%%%%%VQ@KFLIZDQQDFMH@KQ%?%5}=A75)%%%%%%%%A@UQMZVQ@KFLIZDQQDFMH@KQ%?%5}=74D)%%%%%%%%KJK@%?%5)%%%%%%%%CWDH@GPCC@WZFJHUI@Q@%?%5}=FA0)%%%%%%%%CWDH@GPCC@WZLKFJHUI@Q@ZDQQDFMH@KQ%?%5}=FA3)%%%%%%%%CWDH@GPCC@WZLKFJHUI@Q@ZHLVVLKBZDQQDFMH@KQ%?%5}=FA2)%%%%%%%%CWDH@GPCC@WZLKFJHUI@Q@ZALH@KVLJKV%?%5}=FA<)%%%%%%%%CWDH@GPCC@WZPKVPUUJWQ@A%?%5}=FAA)%%%%%%%%CWDH@GPCC@WZGLKALKB%?%5}=FD3)%%%%%%%%W@KA@WGPCC@WZGLKALKB%?%5}=FD2)%%%%%%%%HD]ZW@KA@WGPCC@WZVL_@%?%5}=1@=)%%%%%%%%LKSDILAZCWDH@GPCC@WZJU@WDQLJK%?%5}5053)%%%%%%%%PKUDFNZCILUZ\ZR@GBI%?%5}<715)%%%%%%%%PKUDFNZUW@HPIQLUI\ZDIUMDZR@GBI%?%5}<714)%%%%%%%%FJKQ@]QZIJVQZR@GBI%?%5}<717)%%%%%%%%PKUDFNZFJIJWVUDF@ZFJKS@WVLJKZR@GBI%?%5}<716)%%%%%%%%GWJRV@WZA@CDPIQZR@GBI%?%5}<711)%%%%%%%%**%R@GBIZfjhuw`vv`aZq`}qpw`Zv6qf%%%%%%%%FJHUW@VV@AZWBGZV6QFZA]Q4Z@]Q%?%5}=6C5)%%%%%%%%FJHUW@VV@AZWBGDZV6QFZA]Q4Z@]Q%?%5}=6C4)%%%%%%%%FJHUW@VV@AZWBGDZV6QFZA]Q6Z@]Q%?%5}=6C7)%%%%%%%%FJHUW@VV@AZWBGDZV6QFZA]Q0Z@]Q%?%5}=6C6)%%%%%%%%**%R@GBIZfjhuw`vv`aZq`}qpw`Zuswqf%%%%%%%%FJHUW@VV@AZWBGZUSWQFZ1GUUS4ZLHB%?%5}=F55)%%%%%%%%FJHUW@VV@AZWBGZUSWQFZ7GUUS4ZLHB%?%5}=F54)%%%%%%%%FJHUW@VV@AZWBGDZUSWQFZ1GUUS4ZLHB%?%5}=F57)%%%%%%%%FJHUW@VV@AZWBGDZUSWQFZ7GUUS4ZLHB%?%5}=F56)%%%%%%%%**%R@GBIZfjhuw`vv`aZq`}qpw`Z`qf4%%%%%%%%FJHUW@VV@AZWBGZ@QF4ZR@GBI%?%5}=A31)%%%%%%%%**%@]QZfjijwZgpcc`wZmdicZcijdq%%%%%%%%MDICZCIJDQZJ@V%?%5}=A34)%%%%%%%%**%A`vnqju%Ju`kBI%%%%%%%%AJPGI@%?%5}415D)%%%%%%%%**%R`gBI%7%%%%%%%%W@DAZGPCC@W%?%5}5F57)%%%%%%%%PKUDFNZWJRZI@KBQM%?%5}5FC7)%%%%%%%%PKUDFNZVNLUZWJRV%?%5}5FC6)%%%%%%%%PKUDFNZVNLUZUL]@IV%?%5}5FC1)%%%%%%%%UDFNZWJRZI@KBQM%?%5}5A57)%%%%%%%%UDFNZVNLUZWJRV%?%5}5A56)%%%%%%%%UDFNZVNLUZUL]@IV%?%5}5A51)%%%%%%%%FJIJW%?%5}4=55)%%%%%%%%A@UQM%?%5}4=54)%%%%%%%%VQ@KFLI%?%5}4=57)%%%%%%%%W@A%?%5}4<56)%%%%%%%%WBG=%?%5}=504)%%%%%%%%WBGD=%?%5}=50=)%%%%%%%%WBG45ZD7%?%5}=50<)%%%%%%%%Q@]QPW@ZGLKALKBZ6A%?%5}=53D)%%%%%%%%PKUDFNZVNLUZLHDB@V%?%5}=53A)%%%%%%%%PKUDFNZLHDB@ZM@LBMQ%?%5}=53@)%%%%%%%%Q@]QPW@Z6A%?%5}=53C)%%%%%%%%Q@]QPW@ZRWDUZW%?%5}=527)%%%%%%%%HD]Z6AZQ@]QPW@ZVL_@%?%5}=526)%%%%%%%%PKVLBK@AZLKQZ7Z45Z45Z45ZW@S%?%5}=63=)%%%%%%%%HD]Z@I@H@KQVZS@WQLF@V%?%5}=5@=)%%%%%%%%HD]Z@I@H@KQVZLKALF@V%?%5}=5@<)%%%%%%%%Q@]QPW@ZHLKZIJA%?%5}=46D)%%%%%%%%Q@]QPW@ZHD]ZIJA%?%5}=46G)%%%%%%%%Q@]QPW@ZGDV@ZI@S@I%?%5}=46F)%%%%%%%%Q@]QPW@ZHD]ZI@S@I%?%5}=46A)%%%%%%%%HLK%?%5}=552)%%%%%%%%HD]%?%5}=55=)%%%%%%%%A@UQMZFJHUJK@KQ71%?%5}=4D3)%%%%%%%%HD]ZQ@]QPW@ZIJAZGLDV%?%5}=1CA)%%%%%%%%Q@]QPW@ZFJHUDW@ZHJA@%?%5}==1F)%%%%%%%%Q@]QPW@ZFJHUDW@ZCPKF%?%5}==1A)%%%%%%%%FPWW@KQZTP@W\%?%5}==30)%%%%%%%%TP@W\ZW@VPIQ%?%5}==33)%%%%%%%%TP@W\ZW@VPIQZDSDLIDGI@%?%5}==32)%%%%%%%%VQW@DHZW@DA%?%5}==@4)%%%%%%%%VQW@DHZFJU\%?%5}==@7)%%%%%%%%VQDQLFZW@DA%?%5}==@0)%%%%%%%%VQDQLFZFJU\%?%5}==@3)%%%%%%%%A\KDHLFZW@DA%?%5}==@<)%%%%%%%%A\KDHLFZFJU\%?%5}==@D)%%%%%%%%HD]ZAWDRZGPCC@WV%?%5}==71)%%%%%%%%AWDRZGPCC@W5%?%5}==70)%%%%%%%%AWDRZGPCC@W4%?%5}==73)%%%%%%%%AWDRZGPCC@W7%?%5}==72)%%%%%%%%AWDRZGPCC@W6%?%5}==7=)%%%%%%%%AWDRZGPCC@W1%?%5}==7<)%%%%%%%%AWDRZGPCC@W0%?%5}==7D)%%%%%%%%AWDRZGPCC@W3%?%5}==7G)%%%%%%%%AWDRZGPCC@W2%?%5}==7F)%%%%%%%%AWDRZGPCC@W=%?%5}==7A)%%%%%%%%AWDRZGPCC@W<%?%5}==7@)%%%%%%%%AWDRZGPCC@W45%?%5}==7C)%%%%%%%%AWDRZGPCC@W44%?%5}==65)%%%%%%%%AWDRZGPCC@W47%?%5}==64)%%%%%%%%AWDRZGPCC@W46%?%5}==67)%%%%%%%%AWDRZGPCC@W41%?%5}==66)%%%%%%%%AWDRZGPCC@W40%?%5}==61)%%%%%%%%HD]ZCWDBH@KQZPKLCJWHZFJHUJK@KQV%?%5}=G1<)%%%%%%%%HD]ZS@WQ@]ZPKLCJWHZFJHUJK@KQV%?%5}=G1D)%%%%%%%%VDHUI@WZ6A%?%5}=G0C)%%%%%%%%VDHUI@WZ7AZVMDAJR%?%5}=G37)%%%%%%%%CWDBH@KQZVMDA@WZA@WLSDQLS@ZMLKQ%?%5}=G=G)%%%%%%%%UL]@IZUDFNZGPCC@W%?%5}==@G)%%%%%%%%UL]@IZPKUDFNZGPCC@W%?%5}==@F)%%%%%%%%UL]@IZUDFNZGPCC@WZGLKALKB%?%5}==@A)%%%%%%%%UL]@IZPKUDFNZGPCC@WZGLKALKB%?%5}==@C)%%%%%%%%CIJDQZHDQ7}6%?%5}=G30)%%%%%%%%CIJDQZHDQ7}1%?%5}=G33)%%%%%%%%CIJDQZHDQ6}7%?%5}=G32)%%%%%%%%CIJDQZHDQ6}1%?%5}=G3=)%%%%%%%%CIJDQZHDQ1}7%?%5}=G3<)%%%%%%%%CIJDQZHDQ1}6%?%5}=G3D)%%%%%%%%VWBG%?%5}=F15)%%%%%%%%VWBG=%?%5}=F14)%%%%%%%%VWBG=ZDIUMD=%?%5}=F16)%%%%%%%%FJHUDW@ZW@CZQJZQ@]QPW@%?%5}==1@)%%%%%%%%WBGD67C%?%5}==41)%%%%%%%%WBG67C%?%5}==40)%%%%%%%%WBGD43C%?%5}==4D)%%%%%%%%WBG43C%?%5}==4G)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZLKQ@B@W%?%5}==CA)%%%%%%%%HD]ZDWWD\ZQ@]QPW@ZID\@WV%?%5}==CC)%%%%%%%%HLKZUWJBWDHZQ@]@IZJCCV@Q%?%5}=<51)%%%%%%%%HD]ZUWJBWDHZQ@]@IZJCCV@Q%?%5}=<50)%%%%%%%%HD]ZSDW\LKBZFJHUJK@KQV%?%5}=G1G)%%%%%%%%Q@]QPW@Z7AZDWWD\%?%5}=F4D)%%%%%%%%Q@]QPW@ZGLKALKBZ7AZDWWD\%?%5}=F4A)%%%%%%%%W44CZB44CZG45C%?%5}=F6D)%%%%%%%%PKVLBK@AZLKQZ45CZ44CZ44CZW@S%?%5}=F6G)%%%%%%%%WBG<Z@0%?%5}=F6A)%%%%%%%%PKVLBK@AZLKQZ0Z<Z<Z<ZW@S%?%5}=F6@)%%%%%%%%QWDKVCJWHZC@@AGDFNZGPCC@WZHJA@%?%5}=F2C)%%%%%%%%HD]ZQWDKVCJWHZC@@AGDFNZV@UDWDQ@ZFJHUJK@KQV%?%5}=F=5)%%%%%%%%QWDKVCJWHZC@@AGDFNZSDW\LKBV%?%5}=F=6)%%%%%%%%QWDKVCJWHZC@@AGDFNZGPCC@WZVQDWQ%?%5}=F=1)%%%%%%%%QWDKVCJWHZC@@AGDFNZGPCC@WZVL_@%?%5}=F=0)%%%%%%%%QWDKVCJWHZC@@AGDFNZUWLHLQLS@VZRWLQQ@K%?%5}=F==)%%%%%%%%WDVQ@WL_@WZALVFDWA%?%5}=F=<)%%%%%%%%HD]ZQWDKVCJWHZC@@AGDFNZLKQ@WI@DS@AZFJHUJK@KQV%?%5}=F=D)%%%%%%%%HD]ZQWDKVCJWHZC@@AGDFNZV@UDWDQ@ZDQQWLGV%?%5}=F=G)%%%%%%%%LKQ@WI@DS@AZDQQWLGV%?%5}=F=F)%%%%%%%%V@UDWDQ@ZDQQWLGV%?%5}=F=A)%%%%%%%%QWDKVCJWHZC@@AGDFNZGPCC@W%?%5}=F=@)%%%%%%%%QWDKVCJWHZC@@AGDFNZGPCC@WZGLKALKB%?%5}=F=C)%%%%%%%%WBGD67PL%?%5}=A25)%%%%%%%%WBG67PL%?%5}=A24)%%%%%%%%WBGD43PL%?%5}=A23)%%%%%%%%WBG43PL%?%5}=A22)%%%%%%%%WBGD=PL%?%5}=A2F)%%%%%%%%WBG=PL%?%5}=A2A)%%%%%%%%WBGD67L%?%5}=A=7)%%%%%%%%WBG67L%?%5}=A=6)%%%%%%%%WBGD43L%?%5}=A==)%%%%%%%%WBG43L%?%5}=A=<)%%%%%%%%WBGD=L%?%5}=A=@)%%%%%%%%WBG=L%?%5}=A=C)%%%%%%%%W@AZLKQ@B@W%?%5}=A<1)%%%%%%%%WBGZLKQ@B@W%?%5}=A<=)%%%%%%%%WBGDZLKQ@B@W%?%5}=A<<)%%%%%%%%VDHUI@WZ7AZDWWD\%?%5}=AF4)%%%%%%%%VDHUI@WZ7AZDWWD\ZVMDAJR%?%5}=AF1)%%%%%%%%VDHUI@WZFPG@ZVMDAJR%?%5}=AF0)%%%%%%%%PKVLBK@AZLKQZS@F7%?%5}=AF3)%%%%%%%%PKVLBK@AZLKQZS@F6%?%5}=AF2)%%%%%%%%PKVLBK@AZLKQZS@F1%?%5}=AF=)%%%%%%%%LKQZVDHUI@WZ7A%?%5}=AFD)%%%%%%%%LKQZVDHUI@WZ6A%?%5}=AFG)%%%%%%%%LKQZVDHUI@WZFPG@%?%5}=AFF)%%%%%%%%LKQZVDHUI@WZ7AZDWWD\%?%5}=AFC)%%%%%%%%PKVLBK@AZLKQZVDHUI@WZ7A%?%5}=AA7)%%%%%%%%PKVLBK@AZLKQZVDHUI@WZ6A%?%5}=AA6)%%%%%%%%PKVLBK@AZLKQZVDHUI@WZFPG@%?%5}=AA1)%%%%%%%%PKVLBK@AZLKQZVDHUI@WZ7AZDWWD\%?%5}=AA2)%%%%%%%%A@UQMZFJHUJK@KQ67C%?%5}=FDF)%%%%%%%%A@UQM67CZVQ@KFLI=%?%5}=FDA)%%%%%%%%CIJDQZ67ZPKVLBK@AZLKQZ71Z=ZW@S%?%5}=ADA)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZFJIJWZ@KFJALKB%?%5}=745)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZFJHUJK@KQZQ\U@%?%5}=744)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZW@AZVL_@%?%5}=747)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZBW@@KZVL_@%?%5}=746)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZGIP@ZVL_@%?%5}=741)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZDIUMDZVL_@%?%5}=740)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZA@UQMZVL_@%?%5}=743)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZVQ@KFLIZVL_@%?%5}=742)%%%%%%%%CWDH@GPCC@WZA@CDPIQ%?%5}=74=)%%%%%%%%PKVLBK@AZLKQZ71Z=%?%5}=1CD)%%%%%%%%A@UQM71ZVQ@KFLI=%?%5}==C5)%%%%%%%%PKVLBK@AZKJWHDIL_@A%?%5}=F42)%%%%%%%%AWDRZCWDH@GPCC@WZGLKALKB%?%5}=FD3)%**%Vdh`%dv%CWDH@GPCC@WZGLKALKB%%%%%%%%W@DAZCWDH@GPCC@W%?%5}=FD=)%%%%%%%%AWDRZCWDH@GPCC@W%?%5}=FD<)%%%%%%%%W@DAZCWDH@GPCC@WZGLKALKB%?%5}=FDD)%%%%%%%%W@KA@WGPCC@WZVDHUI@V%?%5}=FDG)%%%%%%%%CWDH@GPCC@WZDQQDFMH@KQZQ@]QPW@ZID\@W%?%5}=FA1)%%%%%%%%HD]ZFJIJWZDQQDFMH@KQV%?%5}=FAC)%%%%%%%%FJIJWZDQQDFMH@KQ4%?%5}=F@4)%%%%%%%%FJIJWZDQQDFMH@KQ7%?%5}=F@7)%%%%%%%%FJIJWZDQQDFMH@KQ6%?%5}=F@6)%%%%%%%%FJIJWZDQQDFMH@KQ1%?%5}=F@1)%%%%%%%%FJIJWZDQQDFMH@KQ0%?%5}=F@0)%%%%%%%%FJIJWZDQQDFMH@KQ3%?%5}=F@3)%%%%%%%%FJIJWZDQQDFMH@KQ2%?%5}=F@2)%%%%%%%%FJIJWZDQQDFMH@KQ=%?%5}=F@=)%%%%%%%%FJIJWZDQQDFMH@KQ<%?%5}=F@<)%%%%%%%%FJIJWZDQQDFMH@KQ45%?%5}=F@D)%%%%%%%%FJIJWZDQQDFMH@KQ44%?%5}=F@G)%%%%%%%%FJIJWZDQQDFMH@KQ47%?%5}=F@F)%%%%%%%%FJIJWZDQQDFMH@KQ46%?%5}=F@A)%%%%%%%%FJIJWZDQQDFMH@KQ41%?%5}=F@@)%%%%%%%%FJIJWZDQQDFMH@KQ40%?%5}=F@C)%%%%%%%%CWDH@GPCC@WZLKFJHUI@Q@ZHPIQLVDHUI@%?%5}=A03)%%%%%%%%HD]ZVDHUI@V%?%5}=A02)%%%%%%%%MDICZCIJDQ%?%5}415G)%%%%%%%%WB%?%5}=772)%%%%%%%%WBZLKQ@B@W%?%5}=77=)%%%%%%%%W=%?%5}=77<)%%%%%%%%WB=%?%5}=77G)%%%%%%%%W43C%?%5}=77A)%%%%%%%%W67C%?%5}=77@)%%%%%%%%WB43C%?%5}=77C)%%%%%%%%WB67C%?%5}=765)%%%%%%%%W=L%?%5}=764)%%%%%%%%W=PL%?%5}=767)%%%%%%%%W43L%?%5}=766)%%%%%%%%W43PL%?%5}=761)%%%%%%%%W67L%?%5}=760)%%%%%%%%W67PL%?%5}=763)%%%%%%%%WB=L%?%5}=762)%%%%%%%%WB=PL%?%5}=76=)%%%%%%%%WB43L%?%5}=76<)%%%%%%%%WB43PL%?%5}=76D)%%%%%%%%WB67L%?%5}=76G)%%%%%%%%WB67PL%?%5}=76F)%%%%%%%%S@WQ@]ZDWWD\ZGLKALKB%?%5}=0G0)%%%%%%%%W=ZVKJWH%?%5}=C<1)%%%%%%%%WB=ZVKJWH%?%5}=C<0)%%%%%%%%WBG=ZVKJWH%?%5}=C<3)%%%%%%%%WBGD=ZVKJWH%?%5}=C<2)%%%%%%%%VLBK@AZKJWHDIL_@A%?%5}=C<F)%%%%%%%%FJU\ZW@DAZGPCC@W%?%5}=C63)%%%%%%%%FJU\ZRWLQ@ZGPCC@W%?%5}=C62)%%%%%%%%FJU\ZW@DAZGPCC@WZGLKALKB%?%5}=C63)%**%Vdh`%dv%FJU\ZW@DAZGPCC@W%%%%%%%%FJU\ZRWLQ@ZGPCC@WZGLKALKB%?%5}=C62)%**%Vdh`%dv%FJU\ZRWLQ@ZGPCC@W%%%%%%%%PKLCJWHZGPCC@W%?%5}=D44)%%%%%%%%PKLCJWHZGPCC@WZGLKALKB%?%5}=D7=)%%%%%%%%PKLCJWHZGPCC@WZVQDWQ%?%5}=D7<)%%%%%%%%PKLCJWHZGPCC@WZVL_@%?%5}=D7D)%%%%%%%%HD]ZS@WQ@]ZPKLCJWHZGIJFNV%?%5}=D7G)%%%%%%%%HD]ZCWDBH@KQZPKLCJWHZGIJFNV%?%5}=D7A)%%%%%%%%HD]ZFJHGLK@AZPKLCJWHZGIJFNV%?%5}=D7@)%%%%%%%%HD]ZPKLCJWHZGPCC@WZGLKALKBV%?%5}=D7C)%%%%%%%%HD]ZPKLCJWHZGIJFNZVL_@%?%5}=D65)%%%%%%%%HD]ZFJHGLK@AZS@WQ@]ZPKLCJWHZFJHUJK@KQV%?%5}=D64)%%%%%%%%HD]ZFJHGLK@AZCWDBH@KQZPKLCJWHZFJHUJK@KQV%?%5}=D66)%%%%%%%%PKLCJWHZGPCC@WZJCCV@QZDILBKH@KQ%?%5}=D61)%%%%%%%%DFQLS@ZPKLCJWHZGIJFNV%?%5}=D63)%%%%%%%%PKLCJWHZQ\U@%?%5}=D62)%%%%%%%%PKLCJWHZVL_@%?%5}=D6=)%%%%%%%%PKLCJWHZGIJFNZLKA@]%?%5}=D6D)%%%%%%%%PKLCJWHZJCCV@Q%?%5}=D6G)%%%%%%%%PKLCJWHZDWWD\ZVQWLA@%?%5}=D6F)%%%%%%%%PKLCJWHZHDQWL]ZVQWLA@%?%5}=D6A)%%%%%%%%PKLCJWHZLVZWJRZHDOJW%?%5}=D6@)%%%%%%%%PKLCJWHZGIJFNZGLKALKB%?%5}=D6C)%%%%%%%%PKLCJWHZGIJFNZADQDZVL_@%?%5}=D15)%%%%%%%%PKLCJWHZGIJFNZDFQLS@ZPKLCJWHV%?%5}=D17)%%%%%%%%PKLCJWHZGIJFNZDFQLS@ZPKLCJWHZLKALF@V%?%5}=D16)%%%%%%%%PKLCJWHZGIJFNZW@C@W@KF@AZG\ZS@WQ@]ZVMDA@W%?%5}=D11)%%%%%%%%PKLCJWHZGIJFNZW@C@W@KF@AZG\ZCWDBH@KQZVMDA@W%?%5}=D13)%%%%%%%%LKSDILAZLKA@]%?%5}CCCCCCCC)%%%%%%%%HD]ZS@WQ@]ZJPQUPQZFJHUJK@KQV%?%5}<477)%%%%%%%%HD]ZCWDBH@KQZLKUPQZFJHUJK@KQV%?%5}<470)%%%%%%%%HD]ZV@WS@WZRDLQZQLH@JPQ%?%5}<444)%%%%%%%%JGO@FQZQ\U@%?%5}<447)%%%%%%%%V\KFZFJKALQLJK%?%5}<446)%%%%%%%%V\KFZVQDQPV%?%5}<441)%%%%%%%%V\KFZCIDBV%?%5}<440)%%%%%%%%V\KFZC@KF@%?%5}<443)%%%%%%%%V\KFZBUPZFJHHDKAVZFJHUI@Q@%?%5}<442)%%%%%%%%PKVLBKDI@A%?%5}<44=)%%%%%%%%VLBKDI@A%?%5}<44<)%%%%%%%%DIW@DA\ZVLBKDI@A%?%5}<44D)%%%%%%%%QLH@JPQZ@]ULW@A%?%5}<44G)%%%%%%%%FJKALQLJKZVDQLVCL@A%?%5}<44F)%%%%%%%%RDLQZCDLI@A%?%5}<44A)%%%%%%%%V\KFZCIPVMZFJHHDKAVZGLQ%?%5}55555554)%%%%%%%%S@WQ@]ZDQQWLGZDWWD\ZALSLVJW%?%5}==C@)%%%%%%%%DK\ZVDHUI@VZUDVV@A%?%5}=F7C)%%%%%%%%DK\ZVDHUI@VZUDVV@AZFJKV@WSDQLS@%?%5}=A3D)%%%%%%%%VDHUI@WZGLKALKB%?%5}=<4<)%%%%%%%%WBG45ZD7PL%?%5}<53C)%%%%%%%%LKQZ7Z45Z45Z45ZW@S%?%5}=A<C)%%%%%%%%QWDKVCJWHZC@@AGDFN%?%5}=@77)%%%%%%%%QWDKVCJWHZC@@AGDFNZUDPV@A%?%5}=@76)%%%%%%%%QWDKVCJWHZC@@AGDFNZDFQLS@%?%5}=@71)%%%%%%%%QWDKVCJWHZC@@AGDFNZGLKALKB%?%5}=@70)%%%%%%%%FJHUW@VV@AZW44Z@DF%?%5}<725)%%%%%%%%FJHUW@VV@AZVLBK@AZW44Z@DF%?%5}<724)%%%%%%%%FJHUW@VV@AZWB44Z@DF%?%5}<727)%%%%%%%%FJHUW@VV@AZVLBK@AZWB44Z@DF%?%5}<726)%%%%%%%%FJHUW@VV@AZWBG=Z@QF7%?%5}<721)%%%%%%%%FJHUW@VV@AZVWBG=Z@QF7%?%5}<720)%%%%%%%%FJHUW@VV@AZWBG=ZUPKFMQMWJPBMZDIUMD4Z@QF7%?%5}<723)%%%%%%%%FJHUW@VV@AZVWBG=ZUPKFMQMWJPBMZDIUMD4Z@QF7%?%5}<722)%%%%%%%%FJHUW@VV@AZWBGD=Z@QF7Z@DF%?%5}<72=)%%%%%%%%FJHUW@VV@AZVWBG=ZDIUMD=Z@QF7Z@DF%?%5}<72<)%%%%%%%%Q@]QPW@ZLHHPQDGI@ZCJWHDQ%?%5}<47C)%%%%%%%%HD]Z@I@H@KQZLKA@]%?%5}=A3G)%%%%%%%%Q@]QPW@ZLHHPQDGI@ZI@S@IV%?%5}=7AC)%%%%%%%%**%@}q`kvljkv%%%%%%%%HD]ZQ@]QPW@ZHD]ZDKLVJQWJU\Z@]Q%?%5}=1CC%%%%x>%%%%w`qpwk%cw```Jgo`fq-R`gBIFjkvqdkqv,>x,>a`clk`-"Fjw`*Fjhujk`kqAdqdq|u`")^%%%%%%%%"+*a`cdpiqSdip`")%%%%%%%%"+*a`clk`a")%%%%%%%%"+*A`s`iju`w@wwjw")%%%%%%%%"+*C`dqpw`A`q`fqljk")%%%%%%%%"+*cw```Jgo`fq")%%%%%%%%"+*R`gBIFjkvqdkqv"%%%%X)%cpkfqljk-%%%%%%%%a`cdpiqSdip`)%%%%%%%%a`clk`a)%%%%%%%%A`s`iju`w@wwjw)%%%%%%%%C`dqpw`A`q`fqljk)%%%%%%%%cw```Jgo`fq)%%%%%%%%R`gBIFjkvqdkqv,%~%%%%"pv`%vqwlfq">%%%%**%Gdli%jpq%lc%qm`%gwjrv`w%aj`vk"q%vpuujwq%q|u`a%dwwd|v)%qj%uw`s`kq%qm`%v`qpu%cpkfqljk%%%%**%cwjh%cdlilkb)%vlkf`%r`%rjk"q%g`%dgi`%qj%fw`dq`%d%R`gBI%fjkq`}q%dk|rd|+%%%%lc%-$C`dqpw`A`q`fqljk+vpuujwqvQ|u`aDwwd|v-,,%~%%%%%%%%w`qpwk%~x>%%%%x%%%%*//%%%%%/%R`gBI%fjhujk`kq%adqdq|u`v+%%Fjhujk`kqv%dw`%lkqwlkvlfv)%%%%%/%rmlfm%cjwh%dqqwlgpq`v)%rmlfm%cjwh%s`wqlf`v+%%%%%/%%%%%/%E`}ujwqv%Fjhujk`kqAdqdq|u`%%%%%/*%%%%sdw%Fjhujk`kqAdqdq|u`%8%~%%%%%%%%*//%%%%%%%%%/%=(glq%vlbk`a%g|q`%fjww`vujkalkb%qj%9fja`;bi+G\Q@9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Lkq=Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%G\Q@%?%R`gBIFjkvqdkqv+G\Q@)%%%%%%%%*//%%%%%%%%%/%=(glq%pkvlbk`a%g|q`%fjww`vujkalkb%qj%9fja`;PKVLBK@AZG\Q@9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Plkq=Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%PKVLBK@AZG\Q@%?%R`gBIFjkvqdkqv+PKVLBK@AZG\Q@)%%%%%%%%*//%%%%%%%%%/%43(glq%vlbk`a%vmjwq%fjww`vujkalkb%qj%9fja`;VMJWQ9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Lkq43Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%VMJWQ%?%R`gBIFjkvqdkqv+VMJWQ)%%%%%%%%*//%%%%%%%%%/%43(glq%pkvlbk`a%vmjwq%fjww`vujkalkb%qj%9fja`;PKVLBK@AZVMJWQ9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Plkq43Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%PKVLBK@AZVMJWQ%?%R`gBIFjkvqdkqv+PKVLBK@AZVMJWQ)%%%%%%%%*//%%%%%%%%%/%67(glq%vlbk`a%lkq%fjww`vujkalkb%qj%9fja`;LKQ9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Lkq67Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eh`hg`wJc%Fjhujk`kqAdqdq|u`%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%LKQ%?%R`gBIFjkvqdkqv+LKQ)%%%%%%%%*//%%%%%%%%%/%67(glq%pkvlbk`a%lkq%fjww`vujkalkb%qj%9fja`;PKVLBK@AZLKQ9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Plkq67Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eh`hg`wJc%Fjhujk`kqAdqdq|u`%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%PKVLBK@AZLKQ%?%R`gBIFjkvqdkqv+PKVLBK@AZLKQ)%%%%%%%%*//%%%%%%%%%/%67(glq%cijdqlkb(ujlkq%fjww`vujkalkb%qj%9fja`;CIJDQ9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Cijdq67Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%CIJDQ%?%R`gBIFjkvqdkqv+CIJDQ)%%%%%%%%*//%%%%%%%%%/%31(glq%cijdqlkb(ujlkq%fjww`vujkalkb%qj%9fja`;bi+AJPGI@9*fja`;%-lk%A`vnqju%Ju`kBI>%%%%%%%%%/%qmlv%lv%kjq%vpuujwq`a%lk%R`gBI)%dka%lv%`hpidq`a%lk%F`vlph%sld%~Eilkn%B`jh`qw|Ulu`ilk`+`kfja`Dqqwlgpq`x,%%%%%%%%%/%dka%qm`%q|u`%jc%dk%`i`h`kq%lk%9fja`;Cijdq31Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eh`hg`wJc%Fjhujk`kqAdqdq|u`%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/%Ea`cdpiq%5}415D%%%%%%%%%/*%%%%%%%%AJPGI@%?%R`gBIFjkvqdkqv+AJPGI@%%%%x>%%%%*//%%%%%/%W`qpwkv%qm`%vl`)%lk%g|q`v)%jc%qm`%fjww`vujkalkb%adqdq|u`+%%%%%/%%%%%/%Eudwdh%~Fjhujk`kqAdqdq|u`x%fjhujk`kqAdqdq|u`%Qm`%fjhujk`kq%adqdq|u`%qj%b`q%qm`%vl`%jc+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%vl`%lk%g|q`v+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%fjhujk`kqAdqdq|u`%lv%kjq%d%sdila%sdip`+%%%%%/%%%%%/%E`}dhui`%%%%%/%**%W`qpwkv%Lkq=Dwwd|+G\Q@VZU@WZ@I@H@KQ%%%%%/%sdw%vl`%8%F`vlph+Fjhujk`kqAdqdq|u`+b`qVl`LkG|q`v-F`vlph+Fjhujk`kqAdqdq|u`+G\Q@,>%%%%%/*%%%%Fjhujk`kqAdqdq|u`+b`qVl`LkG|q`v%8%cpkfqljk-fjhujk`kqAdqdq|u`,~%%%%%%%%%%%%%%%%lc%-$a`clk`a-fjhujk`kqAdqdq|u`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"sdip`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%vrlqfm%-fjhujk`kqAdqdq|u`,%~%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+G\Q@?%%%%%%%%%%%%w`qpwk%Lkq=Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZG\Q@?%%%%%%%%%%%%w`qpwk%Plkq=Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+VMJWQ?%%%%%%%%%%%%w`qpwk%Lkq43Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZVMJWQ?%%%%%%%%%%%%w`qpwk%Plkq43Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+LKQ?%%%%%%%%%%%%w`qpwk%Lkq67Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZLKQ?%%%%%%%%%%%%w`qpwk%Plkq67Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+CIJDQ?%%%%%%%%%%%%w`qpwk%Cijdq67Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+AJPGI@?%%%%%%%%%%%%w`qpwk%Cijdq31Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%%%%%%%%%a`cdpiq?%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"fjhujk`kqAdqdq|u`%lv%kjq%d%sdila%sdip`+",>%%%%%%%%%%%%%%%%x%%%%x>%%%%*//%%%%%/%B`qv%qm`%~Eilkn%Fjhujk`kqAdqdq|u`x%cjw%qm`%uwjsla`a%Q|u`aDwwd|%lkvqdkf`+%%%%%/%%%%%/%Eudwdh%~Q|u`aDwwd|x%dwwd|%Qm`%q|u`a%dwwd|+%%%%%/%Ew`qpwkv%~Fjhujk`kqAdqdq|u`x%Qm`%Fjhujk`kqAdqdq|u`%cjw%qm`%uwjsla`a%dwwd|)%jw%pka`clk`a%lc%qm`%dwwd|%lv%kjq%d%Q|u`aDwwd|+%%%%%/*%%%%Fjhujk`kqAdqdq|u`+cwjhQ|u`aDwwd|%8%cpkfqljk-dwwd|,%~%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Lkq=Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+G\Q@>%%%%%%%%x%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Plkq=Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+PKVLBK@AZG\Q@>%%%%%%%%x%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Lkq43Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+VMJWQ>%%%%%%%%x%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Plkq43Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+PKVLBK@AZVMJWQ>%%%%%%%%x%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Lkq67Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+LKQ>%%%%%%%%x%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Plkq67Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+PKVLBK@AZLKQ>%%%%%%%%x%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Cijdq67Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+CIJDQ>%%%%%%%%x%%%%%%%%lc%-dwwd|%lkvqdkf`jc%Cijdq31Dwwd|,%~%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+AJPGI@>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Sdiladq`v%qmdq%qm`%uwjsla`a%fjhujk`kq%adqdq|u`%lv%d%sdila%~Eilkn%Fjhujk`kqAdqdq|u`x%%%%%/%%%%%/%Eudwdh%~Fjhujk`kqAdqdq|u`x%fjhujk`kqAdqdq|u`%Qm`%fjhujk`kq%adqdq|u`%qj%sdiladq`+%%%%%/%Ew`qpwkv%~Gjji`dkx%9fja`;qwp`9*fja`;%lc%qm`%uwjsla`a%fjhujk`kq%adqdq|u`%lv%d%sdila%sdip`>%jqm`wrlv`)%9fja`;cdiv`9*fja`;+%%%%%/%%%%%/%E`}dhui`%%%%%/%lc%-$F`vlph+Fjhujk`kqAdqdq|u`+sdiladq`-fjhujk`kqAdqdq|u`,,%~%%%%%/%%%qmwjr%k`r%F`vlph+A`s`iju`w@wwjw-"fjhujk`kqAdqdq|u`%hpvq%g`%d%sdila%sdip`+",>%%%%%/%x%%%%%/*%%%%Fjhujk`kqAdqdq|u`+sdiladq`%8%cpkfqljk-fjhujk`kqAdqdq|u`,%~%%%%%%%%w`qpwk%a`clk`a-fjhujk`kqAdqdq|u`,%##%%%%%%%%%%%%%%%-fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+G\Q@%yy%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+PKVLBK@AZG\Q@%yy%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+VMJWQ%yy%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+PKVLBK@AZVMJWQ%yy%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+LKQ%yy%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+PKVLBK@AZLKQ%yy%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+CIJDQ%yy%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%888%Fjhujk`kqAdqdq|u`+AJPGI@,>%%%%x>%%%%*//%%%%%/%Fw`dq`v%d%q|u`a%dwwd|%fjww`vujkalkb%qj%fjhujk`kq%adqd%q|u`+%%%%%/%%%%%/%Eudwdh%~Fjhujk`kqAdqdq|u`x%fjhujk`kqAdqdq|u`%Qm`%fjhujk`kq%adqd%q|u`+%%%%%/%Eudwdh%~Kphg`wyDwwd|x%sdip`vJwI`kbqm%Qm`%i`kbqm%jc%qm`%dwwd|%qj%fw`dq`%jw%dk%dwwd|+%%%%%/%Ew`qpwkv%~Lkq=Dwwd|yPlkq=Dwwd|yLkq43Dwwd|yPlkq43Dwwd|yLkq67Dwwd|yPlkq67Dwwd|yCijdq67Dwwd|yCijdq31Dwwd|x%D%q|u`a%dwwd|+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%fjhujk`kqAdqdq|u`%lv%kjq%d%sdila%sdip`+%%%%%/%%%%%/%E`}dhui`%%%%%/%**%fw`dq`v%d%Cijdq67Dwwd|%rlqm%i`kbqm%jc%455%%%%%/%sdw%q|u`aDwwd|%8%F`vlph+Fjhujk`kqAdqdq|u`+fw`dq`Q|u`aDwwd|-F`vlph+Fjhujk`kqAdqdq|u`+CIJDQ)%455,>%%%%%/*%%%%Fjhujk`kqAdqdq|u`+fw`dq`Q|u`aDwwd|%8%cpkfqljk-fjhujk`kqAdqdq|u`)%sdip`vJwI`kbqm,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-fjhujk`kqAdqdq|u`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"fjhujk`kqAdqdq|u`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-sdip`vJwI`kbqm,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"sdip`vJwI`kbqm%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%vrlqfm%-fjhujk`kqAdqdq|u`,%~%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+G\Q@?%%%%%%%%%%%%w`qpwk%k`r%Lkq=Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZG\Q@?%%%%%%%%%%%%w`qpwk%k`r%Plkq=Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+VMJWQ?%%%%%%%%%%%%w`qpwk%k`r%Lkq43Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZVMJWQ?%%%%%%%%%%%%w`qpwk%k`r%Plkq43Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+LKQ?%%%%%%%%%%%%w`qpwk%k`r%Lkq67Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZLKQ?%%%%%%%%%%%%w`qpwk%k`r%Plkq67Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+CIJDQ?%%%%%%%%%%%%w`qpwk%k`r%Cijdq67Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+AJPGI@?%%%%%%%%%%%%w`qpwk%k`r%Cijdq31Dwwd|-sdip`vJwI`kbqm,>%%%%%%%%%%%%%%%%a`cdpiq?%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"fjhujk`kqAdqdq|u`%lv%kjq%d%sdila%sdip`+",>%%%%%%%%%%%%%%%%x%%%%x>%%%%*//%%%%%/%Fw`dq`v%d%q|u`a%sl`r%jc%dk%dwwd|%jc%g|q`v+%%%%%/%%%%%/%Eudwdh%~Fjhujk`kqAdqdq|u`x%fjhujk`kqAdqdq|u`%Qm`%q|u`%jc%qm`%sl`r%qj%fw`dq`+%%%%%/%Eudwdh%~Dwwd|Gpcc`wx%gpcc`w%Qm`%gpcc`w%vqjwdb`%qj%pv`%cjw%qm`%sl`r+%%%%%/%Eudwdh%~Kphg`wx%^g|q`Jccv`qX%Qm`%jccv`q)%lk%g|q`v)%qj%qm`%clwvq%`i`h`kq%lk%qm`%sl`r+%%%%%/%Eudwdh%~Kphg`wx%^i`kbqmX%Qm`%kphg`w%jc%`i`h`kqv%lk%qm`%sl`r+%%%%%/%Ew`qpwkv%~Lkq=Dwwd|yPlkq=Dwwd|yLkq43Dwwd|yPlkq43Dwwd|yLkq67Dwwd|yPlkq67Dwwd|yCijdq67Dwwd|yCijdq31Dwwd|x%D%q|u`a%dwwd|%sl`r%jc%qm`%gpcc`w+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%fjhujk`kqAdqdq|u`%lv%kjq%d%sdila%sdip`+%%%%%/*%%%%Fjhujk`kqAdqdq|u`+fw`dq`Dwwd|Gpcc`wSl`r%8%cpkfqljk-fjhujk`kqAdqdq|u`)%gpcc`w)%g|q`Jccv`q)%i`kbqm,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-fjhujk`kqAdqdq|u`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"fjhujk`kqAdqdq|u`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-gpcc`w,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"gpcc`w%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%g|q`Jccv`q%8%a`cdpiqSdip`-g|q`Jccv`q)%5,>%%%%%%%%i`kbqm%8%a`cdpiqSdip`-i`kbqm)%-gpcc`w+g|q`I`kbqm%(%g|q`Jccv`q,%*%Fjhujk`kqAdqdq|u`+b`qVl`LkG|q`v-fjhujk`kqAdqdq|u`,,>%%%%%%%%vrlqfm%-fjhujk`kqAdqdq|u`,%~%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+G\Q@?%%%%%%%%%%%%w`qpwk%k`r%Lkq=Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZG\Q@?%%%%%%%%%%%%w`qpwk%k`r%Plkq=Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+VMJWQ?%%%%%%%%%%%%w`qpwk%k`r%Lkq43Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZVMJWQ?%%%%%%%%%%%%w`qpwk%k`r%Plkq43Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+LKQ?%%%%%%%%%%%%w`qpwk%k`r%Lkq67Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+PKVLBK@AZLKQ?%%%%%%%%%%%%w`qpwk%k`r%Plkq67Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+CIJDQ?%%%%%%%%%%%%w`qpwk%k`r%Cijdq67Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%fdv`%Fjhujk`kqAdqdq|u`+AJPGI@?%%%%%%%%%%%%w`qpwk%k`r%Cijdq31Dwwd|-gpcc`w)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%%%%%%%%%a`cdpiq?%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"fjhujk`kqAdqdq|u`%lv%kjq%d%sdila%sdip`+",>%%%%%%%%%%%%%%%%x%%%%x>%%%%*//%%%%%/%B`q%qm`%Fjhujk`kqAdqdq|u`%cwjh%lqv%kdh`+%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%Fjhujk`kqAdqdq|u`+%%%%%/%Ew`qpwkv%~Fjhujk`kqAdqdq|u`x%Qm`%Fjhujk`kqAdqdq|u`+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%kdh`%lv%kjq%d%sdila%sdip`+%%%%%/*%%%%Fjhujk`kqAdqdq|u`+cwjhKdh`%8%cpkfqljk-kdh`,%~%%%%%%%%vrlqfm%-kdh`,%~%%%%%%%%%%%%fdv`%"G\Q@"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+G\Q@>%%%%%%%%%%%%fdv`%"PKVLBK@AZG\Q@"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+PKVLBK@AZG\Q@>%%%%%%%%%%%%fdv`%"VMJWQ"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+VMJWQ>%%%%%%%%%%%%fdv`%"PKVLBK@AZVMJWQ"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+PKVLBK@AZVMJWQ>%%%%%%%%%%%%fdv`%"LKQ"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+LKQ>%%%%%%%%%%%%fdv`%"PKVLBK@AZLKQ"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+PKVLBK@AZLKQ>%%%%%%%%%%%%fdv`%"CIJDQ"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+CIJDQ>%%%%%%%%%%%%fdv`%"AJPGI@"?%%%%%%%%%%%%%%%%w`qpwk%Fjhujk`kqAdqdq|u`+AJPGI@>%%%%%%%%%%%%%%%%%%%%%%%%a`cdpiq?%%%%%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"kdh`%lv%kjq%d%sdila%sdip`+",>%%%%%%%%%%%%%%%%%%%%x%%%%x>%%%%w`qpwk%cw```Jgo`fq-Fjhujk`kqAdqdq|u`,>x,>*/%%L"s`%rwduu`a%Hdnjqj%Hdqvphjqj%dka%Qdnpol%Klvmlhpwd"v%fja`%lk%d%kdh`vudf`%%vj%lq"v%g`qq`w%`kfduvpidq`a+%Kjr%|jp%fdk%mds`%hpiqlui`%wdkajh%kphg`w%b`k`wdqjwv%%dka%qm`|%rjk"q%vqjhu%dii%js`w%`dfmjqm`w"v%vqdq`+%%Lc%|jp%rdkq%qj%pv`%qmlv%dv%d%vpgvqlqpq`%cjw%Hdqm+wdkajh-,)%pv`%qm`%wdkajh-,%%h`qmja%iln`%vj?%%sdw%h%8%k`r%H`wv`kk`Qrlvq`w-,>%%sdw%wdkajhKphg`w%8%h+wdkajh-,>%%\jp%fdk%divj%fdii%qm`%jqm`w%b`kwdkaZ~cjjx-,%h`qmjav%jk%qm`%lkvqdkf`+%%Lc%|jp%rdkq%qj%pv`%d%vu`flclf%v``a%lk%jwa`w%qj%b`q%d%w`u`dqdgi`%wdkajh%%v`tp`kf`)%udvv%dk%lkq`b`w%lkqj%qm`%fjkvqwpfqjw?%%sdw%h%8%k`r%H`wv`kk`Qrlvq`w-476,>%%dka%qmdq%rlii%dird|v%uwjapf`%qm`%vdh`%wdkajh%v`tp`kf`+%%V`dk%HfFpiijpbm%-gdknv`dkEbhdli+fjh,/**/%%%D%F(uwjbwdh%cjw%HQ4<<62)%rlqm%lklqldildqljk%lhuwjs`a%7557*4*73+%%%Fja`a%g|%Qdnpol%Klvmlhpwd%dka%Hdnjqj%Hdqvphjqj+%%%G`cjw`%pvlkb)%lklqldil`%qm`%vqdq`%g|%pvlkb%lklqZb`kwdka-v``a,%%%jw%lklqZg|Zdwwd|-lklqZn`|)%n`|Zi`kbqm,+/**//Eilf`kv`h`wv`kk`(qrlvq`w+ov%(%mqquv?**blvq+blqmpg+fjh*gdknv`dk*6551<1%%%Fju|wlbmq%-F,%4<<2%(%7557)%Hdnjqj%Hdqvphjqj%dka%Qdnpol%Klvmlhpwd)%%%Dii%wlbmqv%w`v`ws`a+%%%W`alvqwlgpqljk%dka%pv`%lk%vjpwf`%dka%glkdw|%cjwhv)%rlqm%jw%rlqmjpq%%%hjalclfdqljk)%dw`%u`whlqq`a%uwjsla`a%qmdq%qm`%cjiijrlkb%fjkalqljkv%%%dw`%h`q?%%%%%4+%W`alvqwlgpqljkv%jc%vjpwf`%fja`%hpvq%w`qdlk%qm`%dgjs`%fju|wlbmq%%%%%%%%kjqlf`)%qmlv%ilvq%jc%fjkalqljkv%dka%qm`%cjiijrlkb%alvfidlh`w+%%%%%7+%W`alvqwlgpqljkv%lk%glkdw|%cjwh%hpvq%w`uwjapf`%qm`%dgjs`%fju|wlbmq%%%%%%%%kjqlf`)%qmlv%ilvq%jc%fjkalqljkv%dka%qm`%cjiijrlkb%alvfidlh`w%lk%qm`%%%%%%%%ajfph`kqdqljk%dka*jw%jqm`w%hdq`wldiv%uwjsla`a%rlqm%qm`%alvqwlgpqljk+%%%%%6+%Qm`%kdh`v%jc%lqv%fjkqwlgpqjwv%hd|%kjq%g`%pv`a%qj%`kajwv`%jw%uwjhjq`%%%%%%%%uwjapfqv%a`wls`a%cwjh%qmlv%vjcqrdw`%rlqmjpq%vu`flclf%uwljw%rwlqq`k%%%%%%%%u`whlvvljk+%%%QMLV%VJCQRDW@%LV%UWJSLA@A%G\%QM@%FJU\WLBMQ%MJIA@WV%DKA%FJKQWLGPQJWV%%%'DV%LV'%DKA%DK\%@]UW@VV%JW%LHUIL@A%RDWWDKQL@V)%LKFIPALKB)%GPQ%KJQ%%%ILHLQ@A%QJ)%QM@%LHUIL@A%RDWWDKQL@V%JC%H@WFMDKQDGLILQ\%DKA%CLQK@VV%CJW%%%D%UDWQLFPIDW%UPWUJV@%DW@%ALVFIDLH@A+%%LK%KJ%@S@KQ%VMDII%QM@%FJU\WLBMQ%JRK@W%JW%%%FJKQWLGPQJWV%G@%ILDGI@%CJW%DK\%ALW@FQ)%LKALW@FQ)%LKFLA@KQDI)%VU@FLDI)%%%@]@HUIDW\)%JW%FJKV@TP@KQLDI%ADHDB@V%-LKFIPALKB)%GPQ%KJQ%ILHLQ@A%QJ)%%%UWJFPW@H@KQ%JC%VPGVQLQPQ@%BJJAV%JW%V@WSLF@V>%IJVV%JC%PV@)%ADQD)%JW%%%UWJCLQV>%JW%GPVLK@VV%LKQ@WWPUQLJK,%MJR@S@W%FDPV@A%DKA%JK%DK\%QM@JW\%JC%%%ILDGLILQ\)%RM@QM@W%LK%FJKQWDFQ)%VQWLFQ%ILDGLILQ\)%JW%QJWQ%-LKFIPALKB%%%K@BILB@KF@%JW%JQM@WRLV@,%DWLVLKB%LK%DK\%RD\%JPQ%JC%QM@%PV@%JC%QMLV%%%VJCQRDW@)%@S@K%LC%DASLV@A%JC%QM@%UJVVLGLILQ\%JC%VPFM%ADHDB@+/**/%%%Dk|%c``agdfn%lv%s`w|%r`ifjh`+%%%mqqu?**rrr+hdqm+vfl+mlwjvmlhd(p+df+ou*{h(hdq*HQ*`hq+mqhi%%%`hdli?%h(hdq%E%hdqm+vfl+mlwjvmlhd(p+df+ou%-w`hjs`%vudf`,/*a`clk`-"QmlwaUdwq|*h`wv`kk`(qrlvq`w")^X)cpkfqljk-,%~sdw%H`wv`kk`Qrlvq`w%8%cpkfqljk-v``a,%~%%lc%-v``a%88%pka`clk`a,%~%%%%v``a%8%k`r%Adq`-,+b`qQlh`-,>%%x%%*/%U`wlja%udwdh`q`wv%/*%%qmlv+K%8%371>%%qmlv+H%8%6<2>%%qmlv+HDQWL]ZD%8%5}<<5=g5ac>%%%*/%fjkvqdkq%s`fqjw%d%/*%%qmlv+PUU@WZHDVN%8%5}=5555555>%*/%hjvq%vlbklclfdkq%r(w%glqv%/*%%qmlv+IJR@WZHDVN%8%5}2ccccccc>%*/%i`dvq%vlbklclfdkq%w%glqv%/*%%qmlv+hq%8%k`r%Dwwd|-qmlv+K,>%*/%qm`%dwwd|%cjw%qm`%vqdq`%s`fqjw%/*%%qmlv+hql8qmlv+K.4>%*/%hql88K.4%h`dkv%hq^KX%lv%kjq%lklqldil`a%/*%%qmlv+lklqZb`kwdka-v``a,>x*/%lklqldil`v%hq^KX%rlqm%d%v``a%/*H`wv`kk`Qrlvq`w+uwjqjq|u`+lklqZb`kwdka%8%cpkfqljk-v,%~%%qmlv+hq^5X%8%v%;;;%5>%%cjw%-qmlv+hql84>%qmlv+hql9qmlv+K>%qmlv+hql..,%~%%%%%%sdw%v%8%qmlv+hq^qmlv+hql(4X%[%-qmlv+hq^qmlv+hql(4X%;;;%65,>%%%qmlv+hq^qmlv+hqlX%8%-----v%#%5}cccc5555,%;;;%43,%/%4=47166706,%99%43,%.%-v%#%5}5555cccc,%/%4=47166706,%%.%qmlv+hql>%%%%%%*/%V``%Nkpqm%QDJFU%Sji7+%6wa%@a+%U+453%cjw%hpiqluil`w+%/*%%%%%%*/%Lk%qm`%uw`sljpv%s`wvljkv)%HVGv%jc%qm`%v``a%dcc`fq%%%/*%%%%%%*/%jki|%HVGv%jc%qm`%dwwd|%hq^X+%%%%%%%%%%%%%%%%%%%%%%%%/*%%%%%%*/%7557*54*5<%hjalcl`a%g|%Hdnjqj%Hdqvphjqj%%%%%%%%%%%%%/*%%%%%%qmlv+hq^qmlv+hqlX%;;;8%5>%%%%%%*/%cjw%;67%glq%hdfmlk`v%/*%%xx*/%lklqldil`%g|%dk%dwwd|%rlqm%dwwd|(i`kbqm%/**/%lklqZn`|%lv%qm`%dwwd|%cjw%lklqldillkb%n`|v%/**/%n`|Zi`kbqm%lv%lqv%i`kbqm%/**/%vilbmq%fmdkb`%cjw%F..)%7551*7*73%/***H`wv`kk`Qrlvq`w+uwjqjq|u`+lklqZg|Zdwwd|%8%cpkfqljk-lklqZn`|)%n`|Zi`kbqm,%~**%%sdw%l)%o)%n>**%%qmlv+lklqZb`kwdka-4<30574=,>**%%l84>%o85>**%%n%8%-qmlv+K;n`|Zi`kbqm%:%qmlv+K%?%n`|Zi`kbqm,>**%%cjw%->%n>%n((,%~**%%%%sdw%v%8%qmlv+hq^l(4X%[%-qmlv+hq^l(4X%;;;%65,**%%%%qmlv+hq^lX%8%-qmlv+hq^lX%[%-----v%#%5}cccc5555,%;;;%43,%/%4331070,%99%43,%.%--v%#%5}5555cccc,%/%4331070,,,**%%%%%%.%lklqZn`|^oX%.%o>%*/%kjk%ilk`dw%/***%%%%qmlv+hq^lX%;;;8%5>%*/%cjw%RJWAVL_@%;%67%hdfmlk`v%/***%%%%l..>%o..>**%%%%lc%-l;8qmlv+K,%~%qmlv+hq^5X%8%qmlv+hq^qmlv+K(4X>%l84>%x**%%%%lc%-o;8n`|Zi`kbqm,%o85>**%%x**%%cjw%-n8qmlv+K(4>%n>%n((,%~**%%%%sdw%v%8%qmlv+hq^l(4X%[%-qmlv+hq^l(4X%;;;%65,>**%%%%qmlv+hq^lX%8%-qmlv+hq^lX%[%-----v%#%5}cccc5555,%;;;%43,%/%40335=6<14,%99%43,%.%-v%#%5}5555cccc,%/%40335=6<14,,**%%%%%%(%l>%*/%kjk%ilk`dw%/***%%%%qmlv+hq^lX%;;;8%5>%*/%cjw%RJWAVL_@%;%67%hdfmlk`v%/***%%%%l..>**%%%%lc%-l;8qmlv+K,%~%qmlv+hq^5X%8%qmlv+hq^qmlv+K(4X>%l84>%x**%%x****%%qmlv+hq^5X%8%5}=5555555>%*/%HVG%lv%4>%dvvpwlkb%kjk(`wj%lklqldi%dwwd|%/***x*/%b`k`wdq`v%d%wdkajh%kphg`w%jk%^5)5}ccccccccX(lkq`wsdi%/*H`wv`kk`Qrlvq`w+uwjqjq|u`+b`kwdkaZlkq67%8%cpkfqljk-,%~%%sdw%|>%%sdw%hdb54%8%k`r%Dwwd|-5}5)%qmlv+HDQWL]ZD,>%%*/%hdb54^}X%8%}%/%HDQWL]ZD%%cjw%}85)4%/*%%lc%-qmlv+hql%;8%qmlv+K,%~%*/%b`k`wdq`%K%rjwav%dq%jk`%qlh`%/*%%%%sdw%nn>%%%%lc%-qmlv+hql%88%qmlv+K.4,%%%*/%lc%lklqZb`kwdka-,%mdv%kjq%g``k%fdii`a)%/*%%%%%%qmlv+lklqZb`kwdka-01=<,>%*/%d%a`cdpiq%lklqldi%v``a%lv%pv`a%/*%%%%cjw%-nn85>nn9qmlv+K(qmlv+H>nn..,%~%%%%%%|%8%-qmlv+hq^nnX#qmlv+PUU@WZHDVN,y-qmlv+hq^nn.4X#qmlv+IJR@WZHDVN,>%%%%%%qmlv+hq^nnX%8%qmlv+hq^nn.qmlv+HX%[%-|%;;;%4,%[%hdb54^|%#%5}4X>%%%%x%%%%cjw%->nn9qmlv+K(4>nn..,%~%%%%%%|%8%-qmlv+hq^nnX#qmlv+PUU@WZHDVN,y-qmlv+hq^nn.4X#qmlv+IJR@WZHDVN,>%%%%%%qmlv+hq^nnX%8%qmlv+hq^nn.-qmlv+H(qmlv+K,X%[%-|%;;;%4,%[%hdb54^|%#%5}4X>%%%%x%%%%|%8%-qmlv+hq^qmlv+K(4X#qmlv+PUU@WZHDVN,y-qmlv+hq^5X#qmlv+IJR@WZHDVN,>%%%%qmlv+hq^qmlv+K(4X%8%qmlv+hq^qmlv+H(4X%[%-|%;;;%4,%[%hdb54^|%#%5}4X>%%%%qmlv+hql%8%5>%%x%%|%8%qmlv+hq^qmlv+hql..X>%%*/%Q`hu`wlkb%/*%%|%[8%-|%;;;%44,>%%|%[8%-|%99%2,%#%5}<a7f03=5>%%|%[8%-|%99%40,%#%5}`cf35555>%%|%[8%-|%;;;%4=,>%%w`qpwk%|%;;;%5>x*/%b`k`wdq`v%d%wdkajh%kphg`w%jk%^5)5}2cccccccX(lkq`wsdi%/***H`wv`kk`Qrlvq`w+uwjqjq|u`+b`kwdkaZlkq64%8%cpkfqljk-,%~**%%w`qpwk%-qmlv+b`kwdkaZlkq67-,;;;4,>**x*/%b`k`wdq`v%d%wdkajh%kphg`w%jk%^5)4X(w`di(lkq`wsdi%/***H`wv`kk`Qrlvq`w+uwjqjq|u`+b`kwdkaZw`di4%8%cpkfqljk-,%~**%%w`qpwk%qmlv+b`kwdkaZlkq67-,/-4+5*17<1<327<0+5,>**%%*/%alsla`a%g|%7[67(4%/***x*/%b`k`wdq`v%d%wdkajh%kphg`w%jk%^5)4,(w`di(lkq`wsdi%/*H`wv`kk`Qrlvq`w+uwjqjq|u`+wdkajh%8%cpkfqljk-,%~%%w`qpwk%qmlv+b`kwdkaZlkq67-,/-4+5*17<1<327<3+5,>%%*/%alsla`a%g|%7[67%/*x*/%b`k`wdq`v%d%wdkajh%kphg`w%jk%-5)4,(w`di(lkq`wsdi%/***H`wv`kk`Qrlvq`w+uwjqjq|u`+b`kwdkaZw`di6%8%cpkfqljk-,%~**%%w`qpwk%-qmlv+b`kwdkaZlkq67-,%.%5+0,/-4+5*17<1<327<3+5,>**%%*/%alsla`a%g|%7[67%/***x*/%b`k`wdq`v%d%wdkajh%kphg`w%jk%^5)4,%rlqm%06(glq%w`vjipqljk/***H`wv`kk`Qrlvq`w+uwjqjq|u`+b`kwdkaZw`v06%8%cpkfqljk-,%~**%%sdw%d8qmlv+b`kwdkaZlkq67-,;;;0)%g8qmlv+b`kwdkaZlkq67-,;;;3>**%%w`qpwk-d/3245==31+5.g,/-4+5*<5524<<701215<<7+5,>**x*/%Qm`v`%w`di%s`wvljkv%dw`%ap`%qj%Lvdnp%Rdad)%7557*54*5<%daa`a%/*w`qpwk%H`wv`kk`Qrlvq`w>x,>a`clk`-"Fjw`*Fm`fn")^%%%%%%%%"+*a`clk`a")%%%%%%%%"+*A`s`iju`w@wwjw"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a)%%%%%%%%A`s`iju`w@wwjw,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%Fjkqdlkv%cpkfqljkv%cjw%fm`fnlkb%qmdq%vpuuil`a%dwbph`kqv%dw`%jc%d%vu`flcl`a%q|u`%%%%%/%jw%h``q%vu`flcl`a%fjkalqljkv%%%%%/%Euwlsdq`%%%%%/*%%%%sdw%Fm`fn%8%~x>%%%%*//%%%%%/%Fjkqdlkv%q|u`%fm`fnlkb%cpkfqljkv)%dii%pvlkb%qm`%q|u`jc%ju`wdqjw%%%%%/*%%%%Fm`fn+q|u`Jc%8%~x>%%%%cpkfqljk%b`qPka`clk`a@wwjwH`vvdb`-kdh`,%~%%%%%%%%w`qpwk%kdh`%.%"%lv%w`tplw`a)%dfqpdi%sdip`%rdv%pka`clk`a">%%%%x%%%%cpkfqljk%b`qCdli`aQ|u`@wwjwH`vvdb`-dfqpdi)%`}u`fq`a)%kdh`,%~%%%%%%%%w`qpwk%"@}u`fq`a%"%.%kdh`%.%"%qj%g`%q|u`jc%"%.%`}u`fq`a%.%")%dfqpdi%q|u`jc%rdv%"%.%dfqpdi>%%%%x%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%a`clk`a%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qmdq%lv%qj%g`%fm`fn`a%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%a`clk`a%%%%%/*%%%%Fm`fn+a`clk`a%8%cpkfqljk%-kdh`)%q`vq,%~%%%%%%%%lc%-$a`clk`a-q`vq,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-b`qPka`clk`a@wwjwH`vvdb`-kdh`,,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"cpkfqljk"%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"cpkfqljk"%%%%%/*%%%%Fm`fn+q|u`Jc+cpkf%8%cpkfqljk%-kdh`)%q`vq,%~%%%%%%%%lc%-q|u`jc%q`vq%$88%"cpkfqljk",%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-b`qCdli`aQ|u`@wwjwH`vvdb`-q|u`jc%q`vq)%"cpkfqljk")%kdh`,,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"vqwlkb"%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"vqwlkb"%%%%%/*%%%%Fm`fn+q|u`Jc+vqwlkb%8%cpkfqljk%-kdh`)%q`vq,%~%%%%%%%%lc%-q|u`jc%q`vq%$88%"vqwlkb",%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-b`qCdli`aQ|u`@wwjwH`vvdb`-q|u`jc%q`vq)%"vqwlkb")%kdh`,,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"kphg`w"%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"kphg`w"%%%%%/*%%%%Fm`fn+q|u`Jc+kphg`w%8%cpkfqljk%-kdh`)%q`vq,%~%%%%%%%%lc%-q|u`jc%q`vq%$88%"kphg`w",%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-b`qCdli`aQ|u`@wwjwH`vvdb`-q|u`jc%q`vq)%"kphg`w")%kdh`,,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"kphg`w"%dka%i`vv%qmdk%ilhlq%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%Eudwdh%~Kphg`wx%ilhlq%Qm`%ilhlq%sdip`%qj%fjhudw`%dbdlkvq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"kphg`w"%dka%i`vv%qmdk%ilhlq%%%%%/*%%%%Fm`fn+q|u`Jc+kphg`w+i`vvQmdk%8%cpkfqljk%-kdh`)%q`vq)%ilhlq,%~%%%%%%%%Fm`fn+q|u`Jc+kphg`w-kdh`)%q`vq,>%%%%%%%%lc%-q`vq%;8%ilhlq,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"@}u`fq`a%"%.%kdh`%.%"%qj%g`%i`vv%qmdk%"%.%ilhlq%.%")%dfqpdi%sdip`%rdv%"%.%q`vq,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"kphg`w"%dka%i`vv%qmdk%jw%`tpdi%qj%ilhlq%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%Eudwdh%~Kphg`wx%ilhlq%Qm`%ilhlq%sdip`%qj%fjhudw`%dbdlkvq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"kphg`w"%dka%i`vv%qmdk%jw%`tpdi%qj%ilhlq%%%%%/*%%%%Fm`fn+q|u`Jc+kphg`w+i`vvQmdkJw@tpdiv%8%cpkfqljk%-kdh`)%q`vq)%ilhlq,%~%%%%%%%%Fm`fn+q|u`Jc+kphg`w-kdh`)%q`vq,>%%%%%%%%lc%-q`vq%;%ilhlq,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"@}u`fq`a%"%.%kdh`%.%"%qj%g`%i`vv%qmdk%jw%`tpdi%qj%"%.%ilhlq%.%")%dfqpdi%sdip`%rdv%"%.%q`vq,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"kphg`w"%dka%bw`dq`w%qmdk%ilhlq%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%Eudwdh%~Kphg`wx%ilhlq%Qm`%ilhlq%sdip`%qj%fjhudw`%dbdlkvq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"kphg`w"%dka%bw`dq`w%qmdk%ilhlq%%%%%/*%%%%Fm`fn+q|u`Jc+kphg`w+bw`dq`wQmdk%8%cpkfqljk%-kdh`)%q`vq)%ilhlq,%~%%%%%%%%Fm`fn+q|u`Jc+kphg`w-kdh`)%q`vq,>%%%%%%%%lc%-q`vq%98%ilhlq,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"@}u`fq`a%"%.%kdh`%.%"%qj%g`%bw`dq`w%qmdk%"%.%ilhlq%.%")%dfqpdi%sdip`%rdv%"%.%q`vq,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"kphg`w"%dka%bw`dq`w%qmdk%jw%`tpdi%qj%ilhlq%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%Eudwdh%~Kphg`wx%ilhlq%Qm`%ilhlq%sdip`%qj%fjhudw`%dbdlkvq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"kphg`w"%dka%bw`dq`w%qmdk%jw%`tpdi%qj%ilhlq%%%%%/*%%%%Fm`fn+q|u`Jc+kphg`w+bw`dq`wQmdkJw@tpdiv%8%cpkfqljk%-kdh`)%q`vq)%ilhlq,%~%%%%%%%%Fm`fn+q|u`Jc+kphg`w-kdh`)%q`vq,>%%%%%%%%lc%-q`vq%9%ilhlq,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"@}u`fq`a%"%.%kdh`%.%"%qj%g`%bw`dq`w%qmdk%jw%`tpdi%qj"%.%ilhlq%.%")%dfqpdi%sdip`%rdv%"%.%q`vq,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"jgo`fq"%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"jgo`fq"%%%%%/*%%%%Fm`fn+q|u`Jc+jgo`fq%8%cpkfqljk%-kdh`)%q`vq,%~%%%%%%%%lc%-q|u`jc%q`vq%$88%"jgo`fq",%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-b`qCdli`aQ|u`@wwjwH`vvdb`-q|u`jc%q`vq)%"jgo`fq")%kdh`,,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq%lv%kjq%q|u`jc%"gjji`dk"%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`%Qm`%kdh`%jc%qm`%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~/x%q`vq%Qm`%sdip`%qj%q`vq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq%hpvq%g`%q|u`jc%"gjji`dk"%%%%%/*%%%%Fm`fn+q|u`Jc+gjji%8%cpkfqljk%-kdh`)%q`vq,%~%%%%%%%%lc%-q|u`jc%q`vq%$88%"gjji`dk",%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-b`qCdli`aQ|u`@wwjwH`vvdb`-q|u`jc%q`vq)%"gjji`dk")%kdh`,,>%%%%%%%%x%%%%x>%%%%*//%%%%%/%Qmwjrv%lc%q`vq4%dka%q`vq7%lv%kjq%q|u`jc%"kphg`w"%dka%kjq%`tpdi%lk%sdip`%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%kdh`4%Qm`%kdh`%jc%qm`%clwvq%sdwldgi`%g`lkb%q`vq`a%%%%%/%Eudwdh%~Vqwlkbx%kdh`7%Qm`%kdh`%jc%qm`%v`fjka%sdwldgi`%g`lkb%q`vq`a%dbdlkvq%%%%%/%Eudwdh%~/x%q`vq4%Qm`%sdip`%qj%q`vq%%%%%/%Eudwdh%~/x%q`vq7%Qm`%sdip`%qj%q`vq%dbdlkvq%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%q`vq4%dka%q`vq7%vmjpia%g`%q|u`%jc%"kphg`w"%dka%g`%`tpdi%lk%sdip`%%%%%/*%%%%Fm`fn+q|u`Jc+kphg`w+`tpdiv%8%cpkfqljk%-kdh`4)%kdh`7)%q`vq4)%q`vq7,%~%%%%%%%%Fm`fn+q|u`Jc+kphg`w-kdh`4)%q`vq4,>%%%%%%%%Fm`fn+q|u`Jc+kphg`w-kdh`7)%q`vq7,>%%%%%%%%lc%-q`vq4%$88%q`vq7,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-kdh`4%.%"%hpvq%g`%`tpdi%qj%"%.%kdh`7%.%")%qm`%dfqpdi%sdip`v%dw`%"%.%q`vq4%.%"%dka%"%.%q`vq7,>%%%%%%%%x%%%%x>%%%%w`qpwk%Fm`fn>x,>a`clk`-"Fjw`*Hdqm")^%%%%%%%%"++*QmlwaUdwq|*h`wv`kk`(qrlvq`w")%%%%%%%%"+*Fm`fn")%%%%%%%%"+*a`cdpiqSdip`")%%%%%%%%"+*a`clk`a")%%%%%%%%"+*A`s`iju`w@wwjw"%%%%X)%cpkfqljk-%%%%%%%%H`wv`kk`Qrlvq`w)%%%%%%%%Fm`fn)%%%%%%%%a`cdpiqSdip`)%%%%%%%%a`clk`a)%%%%%%%%A`s`iju`w@wwjw,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%Hdqm%cpkfqljkv+%%%%%/%%%%%/%E`}ujwqv%F`vlphHdqm%%%%%/%Edildv%Hdqm%%%%%/*%%%%sdw%F`vlphHdqm%8%~x>%%%%*//%%%%%/%5+4%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK4%8%5+4>%%%%*//%%%%%/%5+54%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK7%8%5+54>%%%%*//%%%%%/%5+554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK6%8%5+554>%%%%*//%%%%%/%5+5554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK1%8%5+5554>%%%%*//%%%%%/%5+55554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK0%8%5+55554>%%%%*//%%%%%/%5+555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK3%8%5+555554>%%%%*//%%%%%/%5+5555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK2%8%5+5555554>%%%%*//%%%%%/%5+55555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK=%8%5+55555554>%%%%*//%%%%%/%5+555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK<%8%5+555555554>%%%%*//%%%%%/%5+5555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK45%8%5+5555555554>%%%%*//%%%%%/%5+55555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK44%8%5+55555555554>%%%%*//%%%%%/%5+555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK47%8%5+555555555554>%%%%*//%%%%%/%5+5555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK46%8%5+5555555555554>%%%%*//%%%%%/%5+55555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK41%8%5+55555555555554>%%%%*//%%%%%/%5+555555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK40%8%5+555555555555554>%%%%*//%%%%%/%5+5555555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK43%8%5+5555555555555554>%%%%*//%%%%%/%5+55555555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK42%8%5+55555555555555554>%%%%*//%%%%%/%5+555555555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK4=%8%5+555555555555555554>%%%%*//%%%%%/%5+5555555555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK4<%8%5+5555555555555555554>%%%%*//%%%%%/%5+55555555555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK75%8%5+55555555555555555554>%%%%*//%%%%%/%5+555555555555555555554%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+@UVLIJK74%8%5+555555555555555555554>%%%%*//%%%%%/%Qm`%bwdslqdqljkdi%udwdh`q`w%jc%qm`%@dwqm%lk%h`q`wv%fpg`a%%%%%/%u`w%v`fjka%vtpdw`a%dv%a`clk`a%g|%qm`%RBV=1%hja`i?%6+<=355114=`41%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+BWDSLQDQLJKDIUDWDH@Q@W%8%6+<=355114=`41>%%%%*//%%%%%/%Wdalpv%jc%qm`%vpk%lk%h`q`wv?%3+<00`=%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+VJIDWZWDALPV%8%3+<00`=>%%%%*//%%%%%/%Qm`%h`dk%wdalpv%jc%qm`%hjjk)%dffjwalkb%qj%qm`%'W`ujwq%jc%qm`%LDP*LDB%Rjwnlkb%Bwjpu%jk%%%%%/%Fdwqjbwdumlf%Fjjwalkdq`v%dka%Wjqdqljkdi%@i`h`kqv%jc%qm`%Uidk`qv%dka%vdq`iilq`v?%7555')%%%%%/%F`i`vqldi%H`fmdklfv%=7?%=6(445)%7557+%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+IPKDWZWDALPV%8%4262155+5>%%%%*//%%%%%/%31%/%4571%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+VL]Q\ZCJPWZNLIJG\Q@V%8%31%/%4571>%%%%*//%%%%%/%W`qpwkv%qm`%vlbk%jc%qm`%sdip`>%4%lc%qm`%sdip`%lv%ujvlqls`)%(4%lc%qm`%sdip`%lv%%%%%/%k`bdqls`)%jw%5%lc%qm`%sdip`%lv%5+%%%%%/%%%%%/%Ecpkfqljk%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%sdip`%qj%w`qpwk%qm`%vlbk%jc+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%vlbk%jc%sdip`+%%%%%/*%%%%F`vlphHdqm+vlbk%8%a`cdpiqSdip`-Hdqm+vlbk)%cpkfqljk%vlbk-sdip`,%~%%%%%%%%sdip`%8%.sdip`>%**%fj`wf`%qj%kphg`w%%%%%%%%lc%-sdip`%888%5%yy%sdip`%$88%sdip`,%~%%%%%%%%%%%%**%`wj%jw%KdK%%%%%%%%%%%%w`qpwk%sdip`>%%%%%%%%x%%%%%%%%w`qpwk%sdip`%;%5%:%4%?%(4>%%%%x,>%%%%*//%%%%%/%W`qpwkv%4+5%lc%qm`%bls`k%sdip`%lv%ujvlqls`%jw%`wj)%dka%(4+5%lc%lq%lv%k`bdqls`+%%%%%/%Qmlv%lv%vlhlidw%qj%~Eilkn%F`vlphHdqm&vlbkx%`}f`uq%qmdq%w`qpwkv%4+5%lkvq`da%jc%%%%%/%5+5%rm`k%qm`%lkupq%sdip`%lv%5+5+%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%sdip`%qj%w`qpwk%qm`%vlbk%jc+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%vlbk%jc%sdip`+%%%%%/*%%%%F`vlphHdqm+vlbkKjq_`wj%8%cpkfqljk-sdip`,%~%%%%%%%%w`qpwk%sdip`%9%5+5%:%(4+5%?%4+5>%%%%x>%%%%*//%%%%%/%Fjks`wqv%d%vfdidw%sdip`%lk%qm`%wdkb`%^(4+5)%4+5X%qj%d%VKJWH%lk%qm`%wdkb`%^5)%wdkb`Hd}X%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%vfdidw%sdip`%lk%qm`%wdkb`%^(4+5)%4+5X%%%%%/%Eudwdh%~Kphg`wx%^wdkb`Hd}8700X%Qm`%hd}lhph%sdip`%lk%qm`%hduu`a%wdkb`)%700%g|%a`cdpiq+%%%%%/%Ew`qpwkv%~Kphg`wx%D%VKJWH%sdip`)%rm`w`%5%hduv%qj%(4+5%dka%wdkb`Hd}%hduv%qj%4+5+%%%%%/%%%%%/%Ev``%F`vlphHdqm+cwjhVKjwh%%%%%/*%%%%F`vlphHdqm+qjVKjwh%8%cpkfqljk-sdip`)%wdkb`Hd},%~%%%%%%%%wdkb`Hd}%8%a`cdpiqSdip`-wdkb`Hd})%700,>%%%%%%%%w`qpwk%Hdqm+wjpka--F`vlphHdqm+fidhu-sdip`)%(4+5)%4+5,%/%5+0%.%5+0,%/%wdkb`Hd},>%%%%x>%%%%*//%%%%%/%Fjks`wqv%d%VKJWH%sdip`%lk%qm`%wdkb`%^5)%wdkb`Hd}X%qj%d%vfdidw%lk%qm`%wdkb`%^(4+5)%4+5X+%%%%%/%Eudwdh%~Kphg`wx%sdip`%VKJWH%sdip`%lk%qm`%wdkb`%^5)%700X%%%%%/%Eudwdh%~Kphg`wx%^wdkb`Hd}8700X%Qm`%hd}lhph%sdip`%lk%qm`%VKJWH%wdkb`)%700%g|%a`cdpiq+%%%%%/%Ew`qpwkv%~Kphg`wx%Vfdidw%lk%qm`%wdkb`%^(4+5)%4+5X+%%%%%/%%%%%/%Ev``%F`vlphHdqm+qjVKjwh%%%%%/*%%%%F`vlphHdqm+cwjhVKjwh%8%cpkfqljk-sdip`)%wdkb`Hd},%~%%%%%%%%wdkb`Hd}%8%a`cdpiqSdip`-wdkb`Hd})%700,>%%%%%%%%w`qpwk%F`vlphHdqm+fidhu-sdip`)%5+5)%wdkb`Hd},%*%wdkb`Hd}%/%7+5%(%4+5>%%%%x>%%%%*//%%%%%/%W`qpwkv%qm`%m|u`wgjilf%vlk`%jc%d%kphg`w+%%%%%/%Qm`%m|u`wgjilf%vlk`%jc%9`h;sdip`9*`h;%lv%a`clk`a%qj%g`%%%%%/%-9`h;`9vpu;}9*vpu;#kgvu>(#kgvu>`9vpu;(}9*vpu;9*`h;,*7+5%%%%%/%rm`w`%9l;`9*l;%lv%@pi`w"v%kphg`w)%duuwj}lhdq`i|%7+24=7=4=6+%%%%%/%%%%%/%9u;Vu`fldi%fdv`v?%%%%%/%%%9pi;%%%%%/%%%%%9il;Lc%qm`%dwbph`kq%lv%KdK)%qm`k%qm`%w`vpiq%lv%KdK+9*il;%%%%%/%%%%%/%%%%%9il;Lc%qm`%dwbph`kq%lv%lkclklq`)%qm`k%qm`%w`vpiq%lv%dk%lkclklq|%%%%%/%%%%%rlqm%qm`%vdh`%vlbk%dv%qm`%dwbph`kq+9*il;%%%%%/%%%%%/%%%%%9il;Lc%qm`%dwbph`kq%lv%`wj)%qm`k%qm`%w`vpiq%lv%d%`wj%rlqm%qm`%%%%%/%%%%%vdh`%vlbk%dv%qm`%dwbph`kq+9*il;%%%%%/%%%9*pi;%%%%%/9*u;%%%%%/%%%%%/%Ecpkfqljk%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%kphg`w%rmjv`%m|u`wgjilf%vlk`%lv%qj%g`%w`qpwk`a+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%m|u`wgjilf%vlk`%jc%9fja`;sdip`9*fja`;+%%%%%/*%%%%F`vlphHdqm+vlkm%8%a`cdpiqSdip`-Hdqm+vlkm)%cpkfqljk%vlkm-sdip`,%~%%%%%%%%w`qpwk%-Hdqm+`}u-sdip`,%(%Hdqm+`}u-(sdip`,,%*%7+5>%%%%x,>%%%%*//%%%%%/%W`qpwkv%qm`%m|u`wgjilf%fjvlk`%jc%d%kphg`w+%%%%%/%Qm`%m|u`wgjilf%fjvlk`%jc%9vqwjkb;sdip`9*vqwjkb;%lv%a`clk`a%qj%g`%%%%%/%-9`h;`9vpu;}9*vpu;#kgvu>.#kgvu>`9vpu;(}9*vpu;9*`h;,*7+5%%%%%/%rm`w`%9l;`9*l;%lv%@pi`w"v%kphg`w)%duuwj}lhdq`i|%7+24=7=4=6+%%%%%/%%%%%/%9u;Vu`fldi%fdv`v?%%%%%/%%%9pi;%%%%%/%%%%%9il;Lc%qm`%dwbph`kq%lv%KdK)%qm`k%qm`%w`vpiq%lv%KdK+9*il;%%%%%/%%%%%/%%%%%9il;Lc%qm`%dwbph`kq%lv%lkclklq`)%qm`k%qm`%w`vpiq%lv%ujvlqls`%lkclklq|+9*il;%%%%%/%%%%%/%%%%%9il;Lc%qm`%dwbph`kq%lv%`wj)%qm`k%qm`%w`vpiq%lv%4+5+9*il;%%%%%/%%%9*pi;%%%%%/9*u;%%%%%/%%%%%/%Ecpkfqljk%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%kphg`w%rmjv`%m|u`wgjilf%fjvlk`%lv%qj%g`%w`qpwk`a+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%m|u`wgjilf%fjvlk`%jc%9fja`;sdip`9*fja`;+%%%%%/*%%%%F`vlphHdqm+fjvm%8%a`cdpiqSdip`-Hdqm+fjvm)%cpkfqljk%fjvm-sdip`,%~%%%%%%%%w`qpwk%-Hdqm+`}u-sdip`,%.%Hdqm+`}u-(sdip`,,%*%7+5>%%%%x,>%%%%*//%%%%%/%Fjhupq`v%qm`%ilk`dw%lkq`wujidqljk%jc%qrj%sdip`v+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%u%Qm`%vqdwq%sdip`%qj%lkq`wujidq`+%%%%%/%Eudwdh%~Kphg`wx%t%Qm`%`ka%sdip`%qj%lkq`wujidq`+%%%%%/%Eudwdh%~Kphg`wx%qlh`%Qm`%qlh`%jc%lkq`wujidqljk%b`k`wdii|%lk%qm`%wdkb`%9fja`;^5+5)%4+5X9*fja`;+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%ilk`dwi|%lkq`wujidq`a%sdip`+%%%%%/%%%%%/%E`}dhui`%%%%%/%sdw%k%8%F`vlph+Hdqm+i`wu-5+5)%7+5)%5+0,>%**%w`qpwkv%4+5%%%%%/*%%%%F`vlphHdqm+i`wu%8%cpkfqljk-u)%t)%qlh`,%~%%%%%%%%w`qpwk%--4+5%(%qlh`,%/%u,%.%-qlh`%/%t,>%%%%x>%%%%*//%%%%%/%ul%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+UL%8%Hdqm+UL>%%%%*//%%%%%/%4*ul%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+JK@ZJS@WZUL%8%4+5%*%Hdqm+UL>%%%%*//%%%%%/%ul*7%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+ULZJS@WZQRJ%8%Hdqm+UL%*%7+5>%%%%*//%%%%%/%ul*6%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+ULZJS@WZQMW@@%8%Hdqm+UL%*%6+5>%%%%*//%%%%%/%ul*1%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+ULZJS@WZCJPW%8%Hdqm+UL%*%1+5>%%%%*//%%%%%/%ul*3%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+ULZJS@WZVL]%8%Hdqm+UL%*%3+5>%%%%*//%%%%%/%6ul*7%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+QMW@@ZULZJS@WZQRJ%8%6+5%/%Hdqm+UL%*%7+5>%%%%*//%%%%%/%7ul%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+QRJZUL%8%7+5%/%Hdqm+UL>%%%%*//%%%%%/%4*7ul%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/*%%%%F`vlphHdqm+JK@ZJS@WZQRJZUL%8%4+5%*%-7+5%/%Hdqm+UL,>%%%%*//%%%%%/%Qm`%kphg`w%jc%wdaldkv%lk%d%a`bw``+%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/%Ea`cdpiq%Hdqm+UL%*%4=5+5%%%%%/*%%%%F`vlphHdqm+WDALDKVZU@WZA@BW@@%8%Hdqm+UL%*%4=5+5>%%%%*//%%%%%/%Qm`%kphg`w%jc%a`bw``v%lk%d%wdaldk+%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/%Ea`cdpiq%4=5+5%*%Hdqm+UL%%%%%/*%%%%F`vlphHdqm+A@BW@@VZU@WZWDALDK%8%4=5+5%*%Hdqm+UL>%%%%*//%%%%%/%Qm`%kphg`w%jc%wdaldkv%lk%dk%dwf%v`fjka+%%%%%/%%%%%/%Eq|u`%~Kphg`wx%%%%%/%Efjkvqdkq%%%%%/%Ea`cdpiq%~Eilkn%F`vlphHdqm+WDALDKVZU@WZA@BW@@x%*%6355+5%%%%%/*%%%%F`vlphHdqm+WDALDKVZU@WZDWFV@FJKA%8%F`vlphHdqm+WDALDKVZU@WZA@BW@@%*%6355+5>%%%%*//%%%%%/%Fjks`wqv%a`bw``v%qj%wdaldkv+%%%%%/%Eudwdh%~Kphg`wx%a`bw``v%Qm`%dkbi`%qj%fjks`wq%lk%a`bw``v+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%fjww`vujkalkb%dkbi`%lk%wdaldkv+%%%%%/*%%%%F`vlphHdqm+qjWdaldkv%8%cpkfqljk-a`bw``v,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-a`bw``v,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"a`bw``v%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%a`bw``v%/%F`vlphHdqm+WDALDKVZU@WZA@BW@@>%%%%x>%%%%*//%%%%%/%Fjks`wqv%wdaldkv%qj%a`bw``v+%%%%%/%Eudwdh%~Kphg`wx%wdaldkv%Qm`%dkbi`%qj%fjks`wq%lk%wdaldkv+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%fjww`vujkalkb%dkbi`%lk%a`bw``v+%%%%%/*%%%%F`vlphHdqm+qjA`bw``v%8%cpkfqljk-wdaldkv,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-wdaldkv,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"wdaldkv%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%wdaldkv%/%F`vlphHdqm+A@BW@@VZU@WZWDALDK>%%%%x>%%%%*//%%%%%/%Fjks`wqv%d%ijkblqpa`%sdip`)%lk%wdaldkv)%qj%qm`%wdkb`%^9fja`;(Hdqm+UL9*fja`;)%9fja`;Hdqm+UL9*fja`;,+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%dkbi`%Qm`%ijkblqpa`%sdip`)%lk%wdaldkv)%qj%fjks`wq%qj%qm`%wdkb`%^9fja`;(Hdqm+UL9*fja`;)%9fja`;Hdqm+UL9*fja`;,+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%`tplsdi`kq%ijkblqpa`%sdip`%lk%qm`%wdkb`%^9fja`;(Hdqm+UL9*fja`;)%9fja`;Hdqm+UL9*fja`;,+%%%%%/%%%%%/%E`}dhui`%%%%%/%**%Fjks`wq%725%a`bw``v%qj%(<5%a`bw``v%ijkblqpa`%%%%%/%sdw%ijkblqpa`%8%F`vlph+Hdqm+fjks`wqIjkblqpa`Wdkb`-F`vlph+Hdqm+qjWdaldkv-725+5,,>%%%%%/*%%%%F`vlphHdqm+fjks`wqIjkblqpa`Wdkb`%8%cpkfqljk-dkbi`,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-dkbi`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"dkbi`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%sdw%qrjUl%8%F`vlphHdqm+QRJZUL>%%%%%%%%sdw%vlhuilcl`a%8%dkbi`%(%Hdqm+cijjw-dkbi`%*%qrjUl,%/%qrjUl>%%%%%%%%lc%-vlhuilcl`a%9%(Hdqm+UL,%~%%%%%%%%%%%%w`qpwk%vlhuilcl`a%.%qrjUl>%%%%%%%%x%%%%%%%%lc%-vlhuilcl`a%;8%Hdqm+UL,%~%%%%%%%%%%%%w`qpwk%vlhuilcl`a%(%qrjUl>%%%%%%%%x%%%%%%%%w`qpwk%vlhuilcl`a>%%%%x>%%%%*//%%%%%/%Fjks`kl`kf`%cpkfqljk%qmdq%fidhuv%d%idqlqpa`%sdip`)%lk%wdaldkv)%qj%qm`%wdkb`%^9fja`;(Hdqm+UL*79*fja`;)%9fja`;Hdqm+UL*79*fja`;,+%%%%%/%Pv`cpi%cjw%vdklqllkb%adqd%g`cjw`%pv`%lk%jgo`fqv%w`tplwlkb%fjww`fq%wdkb`+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%dkbi`%Qm`%idqlqpa`%sdip`)%lk%wdaldkv)%qj%fidhu%qj%qm`%wdkb`%^9fja`;(Hdqm+UL*79*fja`;)%9fja`;Hdqm+UL*79*fja`;,+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%idqlqpa`%sdip`%fidhu`a%qj%qm`%wdkb`%^9fja`;(Hdqm+UL*79*fja`;)%9fja`;Hdqm+UL*79*fja`;,+%%%%%/%%%%%/%E`}dhui`%%%%%/%**%Fidhu%45=%a`bw``v%idqlqpa`%qj%<5%a`bw``v%idqlqpa`%%%%%/%sdw%idqlqpa`%8%F`vlph+Hdqm+fidhuQjIdqlqpa`Wdkb`-F`vlph+Hdqm+qjWdaldkv-45=+5,,>%%%%%/*%%%%F`vlphHdqm+fidhuQjIdqlqpa`Wdkb`%8%cpkfqljk-dkbi`,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-dkbi`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"dkbi`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%F`vlphHdqm+fidhu-dkbi`)%(4/F`vlphHdqm+ULZJS@WZQRJ)%F`vlphHdqm+ULZJS@WZQRJ,>%%%%x>%%%%*//%%%%%/%Uwjapf`v%dk%dkbi`%lk%qm`%wdkb`%(Ul%98%dkbi`%98%Ul%rmlfm%lv%`tplsdi`kq%qj%qm`%uwjsla`a%dkbi`+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%dkbi`%lk%wdaldkv%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%dkbi`%lk%qm`%wdkb`%^9fja`;(F`vlphHdqm+UL9*fja`;)%9fja`;F`vlphHdqm+UL9*fja`;X+%%%%%/*%%%%F`vlphHdqm+k`bdqls`UlQjUl%8%cpkfqljk-dkbi`,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-dkbi`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"dkbi`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%F`vlphHdqm+`wjQjQrjUl-dkbi`%.%F`vlphHdqm+UL,%(%F`vlphHdqm+UL>%%%%x>%%%%*//%%%%%/%Uwjapf`v%dk%dkbi`%lk%qm`%wdkb`%5%98%dkbi`%98%7Ul%rmlfm%lv%`tplsdi`kq%qj%qm`%uwjsla`a%dkbi`+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%dkbi`%lk%wdaldkv%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%dkbi`%lk%qm`%wdkb`%^5)%9fja`;F`vlphHdqm+QRJZUL9*fja`;X+%%%%%/*%%%%F`vlphHdqm+`wjQjQrjUl%8%cpkfqljk-dkbi`,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-dkbi`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"dkbi`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%sdw%hja%8%F`vlphHdqm+hja-dkbi`)%F`vlphHdqm+QRJZUL,>%%%%%%%%lc%-Hdqm+dgv-hja,%9%F`vlphHdqm+@UVLIJK41%##%Hdqm+dgv-dkbi`,%;%F`vlphHdqm+@UVLIJK41,%~%%%%%%%%%%%%w`qpwk%F`vlphHdqm+QRJZUL>%%%%%%%%x%%%%%%%%w`qpwk%hja>%%%%x>%%%%*//%%%%%/%Qm`%hjapij%ju`wdqljk%qmdq%divj%rjwnv%cjw%k`bdqls`%alsla`kav+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%h%Qm`%alsla`ka+%%%%%/%Eudwdh%~Kphg`wx%k%Qm`%alslvjw+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%w`hdlka`w+%%%%%/*%%%%F`vlphHdqm+hja%8%cpkfqljk-h)%k,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-h,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"h%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-k,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"k%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%--h% %k,%.%k,% %k>%%%%x>%%%%*//%%%%%/%A`q`whlk`v%lc%qrj%sdip`v%dw`%`tpdi%pvlkb%dk%dgvjipq`%jw%w`idqls`%qji`wdkf`%q`vq+%Qmlv%lv%pv`cpi%%%%%/%qj%dsjla%uwjgi`hv%ap`%qj%wjpkajcc%`wwjw%rm`k%fjhudwlkb%cijdqlkb(ujlkq%sdip`v%alw`fqi|+%Qm`%sdip`v%dw`%%%%%/%clwvq%fjhudw`a%pvlkb%dk%dgvjipq`%qji`wdkf`%q`vq+%Lc%qmdq%cdliv)%d%w`idqls`%qji`wdkf`%q`vq%lv%u`wcjwh`a+%%%%%/%Pv`%qmlv%q`vq%lc%|jp%dw`%pkvpw`%jc%qm`%hdbklqpa`v%jc%i`cq%dka%wlbmq+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%i`cq%Qm`%clwvq%sdip`%qj%fjhudw`+%%%%%/%Eudwdh%~Kphg`wx%wlbmq%Qm`%jqm`w%sdip`%qj%fjhudw`+%%%%%/%Eudwdh%~Kphg`wx%w`idqls`@uvlijk%Qm`%hd}lhph%lkfipvls`%a`iqd%g`qr``k%9fja`;i`cq9*fja`;%dka%9fja`;wlbmq9*fja`;%cjw%qm`%w`idqls`%qji`wdkf`%q`vq+%%%%%/%Eudwdh%~Kphg`wx%^dgvjipq`@uvlijk8w`idqls`@uvlijkX%Qm`%hd}lhph%lkfipvls`%a`iqd%g`qr``k%9fja`;i`cq9*fja`;%dka%9fja`;wlbmq9*fja`;%cjw%qm`%dgvjipq`%qji`wdkf`%q`vq+%%%%%/%Ew`qpwkv%~Gjji`dkx%9fja`;qwp`9*fja`;%lc%qm`%sdip`v%dw`%`tpdi%rlqmlk%qm`%`uvlijk>%jqm`wrlv`)%9fja`;cdiv`9*fja`;+%%%%%/%%%%%/%E`}dhui`%%%%%/%sdw%d%8%F`vlph+Hdqm+`tpdiv@uvlijk-5+5)%5+54)%F`vlph+Hdqm+@UVLIJK7,>%**%qwp`%%%%%/%sdw%g%8%F`vlph+Hdqm+`tpdiv@uvlijk-5+5)%5+4)%F`vlph+Hdqm+@UVLIJK7,>%%**%cdiv`%%%%%/%sdw%f%8%F`vlph+Hdqm+`tpdiv@uvlijk-63<<420+4361611)%63<<420+7)%F`vlph+Hdqm+@UVLIJK2,>%**%qwp`%%%%%/%sdw%a%8%F`vlph+Hdqm+`tpdiv@uvlijk-63<<420+4361611)%63<<420+7)%F`vlph+Hdqm+@UVLIJK<,>%**%cdiv`%%%%%/*%%%%F`vlphHdqm+`tpdiv@uvlijk%8%cpkfqljk-i`cq)%wlbmq)%w`idqls`@uvlijk)%dgvjipq`@uvlijk,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-i`cq,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"i`cq%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-wlbmq,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"wlbmq%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-w`idqls`@uvlijk,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"w`idqls`@uvlijk%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%dgvjipq`@uvlijk%8%a`cdpiqSdip`-dgvjipq`@uvlijk)%w`idqls`@uvlijk,>%%%%%%%%sdw%dgvAlcc%8%Hdqm+dgv-i`cq%(%wlbmq,>%%%%%%%%w`qpwk%dgvAlcc%98%dgvjipq`@uvlijk%yy%dgvAlcc%98%w`idqls`@uvlijk%/%Hdqm+hd}-Hdqm+dgv-i`cq,)%Hdqm+dgv-wlbmq,,>%%%%x>%%%%sdw%cdfqjwldiv%8%^4X>%%%%*//%%%%%/%Fjhupq`v%qm`%cdfqjwldi%jc%qm`%uwjsla`a%kphg`w+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%k%Qm`%kphg`w%rmjv`%cdfqjwldi%lv%qj%g`%fjhupq`a+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%cdfqjwldi%jc%qm`%uwjsla`a%kphg`w%jw%pka`clk`a%lc%qm`%kphg`w%lv%i`vv%qmdk%5+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%D%kphg`w%bw`dq`w%qmdk%jw%`tpdi%qj%5%lv%w`tplw`a+%%%%%/%%%%%/%%%%%/%E`}dhui`%%%%%/%**Fjhupq`%2$)%rmlfm%lv%`tpdi%qj%0515%%%%%/%sdw%fjhupq`aCdfqjwldi%8%F`vlph+Hdqm+cdfqjwldi-2,>%%%%%/%%%%%/%Ev``%~Eilkn%mqqu?**`k+rlnlu`ald+jwb*rlnl*CdfqjwldiyCdfqjwldi%jk%Rlnlu`aldx%%%%%/*%%%%F`vlphHdqm+cdfqjwldi%8%cpkfqljk-k,%~%%%%%%%%%%%%%%%%lc%-q|u`jc%k%$88%"kphg`w"%yy%k%9%5,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"D%kphg`w%bw`dq`w%qmdk%jw%`tpdi%qj%5%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%sdw%i`kbqm%8%cdfqjwldiv+i`kbqm>%%%%%%%%lc%-k%;8%i`kbqm,%~%%%%%%%%%%%%sdw%vph%8%cdfqjwldiv^i`kbqm%(%4X>%%%%%%%%%%%%cjw%-sdw%l%8%i`kbqm>%l%98%k>%l..,%~%%%%%%%%%%%%%%%%cdfqjwldiv+upvm-vph%/%l,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%w`qpwk%cdfqjwldiv^kX>%%%%x>%%%%*//%%%%%/%Lkfw`h`kqv%d%kphg`w%rlqm%d%rwduulkb%qj%d%hlklhph%sdip`%lc%qm`%kphg`w%`}f``av%qm`%hd}lhph%sdip`+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%^kX%Qm`%kphg`w%qj%g`%lkfw`h`kq`a+%%%%%/%Eudwdh%~Kphg`wx%^hd}lhphSdip`X%Qm`%hd}lhph%lkfw`h`kq`a%sdip`%g`cjw`%wjiilkb%js`w%qj%qm`%hlklhph%sdip`+%%%%%/%Eudwdh%~Kphg`wx%^hlklhphSdip`85+5X%Qm`%kphg`w%w`v`q%qj%dcq`w%qm`%hd}lhph%sdip`%mdv%g``k%`}f``a`a+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%lkfw`h`kq`a%kphg`w+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%Hd}lhph%sdip`%hpvq%g`%bw`dq`w%qmdk%hlklhph%sdip`+%%%%%/%%%%%/%E`}dhui`%%%%%/%sdw%k%8%F`vlph+Hdqm+lkfw`h`kqRwdu-0)%45)%5,>%**%w`qpwkv%3%%%%%/%sdw%k%8%F`vlph+Hdqm+lkfw`h`kqRwdu-45)%45)%5,>%**%w`qpwkv%5%%%%%/*%%%%F`vlphHdqm+lkfw`h`kqRwdu%8%cpkfqljk-k)%hd}lhphSdip`)%hlklhphSdip`,%~%%%%%%%%hlklhphSdip`%8%a`cdpiqSdip`-hlklhphSdip`)%5+5,>%%%%%%%%%%%%%%%%lc%-$a`clk`a-k,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"k%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-hd}lhphSdip`%98%hlklhphSdip`,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"hd}lhphSdip`%hpvq%g`%bw`dq`w%qmdk%hlklhphSdip`+",>%%%%%%%%x%%%%%%%%%%%%%%%%..k>%%%%%%%%lc%-k%;%hd}lhphSdip`,%~%%%%%%%%%%%%k%8%hlklhphSdip`>%%%%%%%%x%%%%%%%%w`qpwk%k>%%%%x>%%%%*//%%%%%/%A`q`whlk`v%lc%d%ujvlqls`%lkq`b`w%lv%d%ujr`w%jc%qrj+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%k%Qm`%ujvlqls`%lkq`b`w%qj%q`vq+%%%%%/%Ew`qpwkv%~Gjji`dkx%9fja`;qwp`9*fja`;%lc%qm`%kphg`w%lc%d%ujr`w%jc%qrj>%jqm`wrlv`)%9fja`;cdiv`9*fja`;+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%D%kphg`w%bw`dq`w%qmdk%jw%`tpdi%qj%5%lv%w`tplw`a+%%%%%/%%%%%/%E`}dhui`%%%%%/%sdw%q%8%F`vlph+Hdqm+lvUjr`wJcQrj-43,>%**%qwp`%%%%%/%sdw%c%8%F`vlph+Hdqm+lvUjr`wJcQrj-75,>%**%cdiv`%%%%%/*%%%%F`vlphHdqm+lvUjr`wJcQrj%8%cpkfqljk-k,%~%%%%%%%%%%%%%%%%lc%-q|u`jc%k%$88%"kphg`w"%yy%k%9%5,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"D%kphg`w%bw`dq`w%qmdk%jw%`tpdi%qj%5%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%-k%$88%5,%##%--k%#%-k%(%4,,%888%5,>%%%%x>%%%%*//%%%%%/%Fjhupq`v%qm`%k`}q%ujr`w(jc(qrj%lkq`b`w%bw`dq`w%qmdk%jw%`tpdi%qj%qm`%uwjsla`a%ujvlqls`%lkq`b`w+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%k%Qm`%ujvlqls`%lkq`b`w%qj%q`vq+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%k`}q%ujr`w(jc(qrj%lkq`b`w+%%%%%/%%%%%/%E`}f`uqljk%~A`s`iju`w@wwjwx%D%kphg`w%bw`dq`w%qmdk%jw%`tpdi%qj%5%lv%w`tplw`a+%%%%%/%%%%%/%E`}dhui`%%%%%/%sdw%k%8%F`vlph+Hdqm+k`}qUjr`wJcQrj-7<,>%**%67%%%%%/%sdw%h%8%F`vlph+Hdqm+k`}qUjr`wJcQrj-67,>%**%67%%%%%/*%%%%F`vlphHdqm+k`}qUjr`wJcQrj%8%cpkfqljk-k,%~%%%%%%%%%%%%%%%%lc%-q|u`jc%k%$88%"kphg`w"%yy%k%9%5,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"D%kphg`w%bw`dq`w%qmdk%jw%`tpdi%qj%5%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%**%Cwjh%mqqu?**bwdumlfv+vqdkcjwa+`ap*{v`dka`w*glqmdfnv+mqhi&WjpkaPuUjr`wJc7%%%%%%%%((k>%%%%%%%%k%y8%k%;;%4>%%%%%%%%k%y8%k%;;%7>%%%%%%%%k%y8%k%;;%1>%%%%%%%%k%y8%k%;;%=>%%%%%%%%k%y8%k%;;%43>%%%%%%%%..k>%%%%%%%%w`qpwk%k>%%%%x>%%%%*//%%%%%/%Fjkvqwdlkq%d%sdip`%qj%il`%g`qr``k%qrj%sdip`v+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%sdip`%qj%fjkvqwdlk+%%%%%/%Eudwdh%~Kphg`wx%hlk%Qm`%hlklhph%sdip`+%%%%%/%Eudwdh%~Kphg`wx%hd}%Qm`%hd}lhph%sdip`+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%sdip`%fidhu`a%vj%qmdq%hlk%98%sdip`%98%hd}+%%%%%/*%%%%F`vlphHdqm+fidhu%8%cpkfqljk-sdip`)%hlk)%hd},%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-sdip`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"sdip`%lv%w`tplw`a",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-hlk,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"hlk%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-hd},,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"hd}%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%sdip`%9%hlk%:%hlk%?%sdip`%;%hd}%:%hd}%?%sdip`>%%%%x>%%%%sdw%wdkajhKphg`wB`k`wdqjw%8%k`r%H`wv`kk`Qrlvq`w-,>%%%%*//%%%%%/%V`qv%qm`%v``a%pv`a%g|%qm`%wdkajh%kphg`w%b`k`wdqjw%%%%%/%lk%~Eilkn%F`vlphHdqm&k`}qWdkajhKphg`wx+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%v``a%Dk%lkq`b`w%pv`a%dv%qm`%v``a+%%%%%/*%%%%F`vlphHdqm+v`qWdkajhKphg`wV``a%8%cpkfqljk-v``a,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-v``a,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"v``a%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%wdkajhKphg`wB`k`wdqjw%8%k`r%H`wv`kk`Qrlvq`w-v``a,>%%%%x>%%%%*//%%%%%/%B`k`wdq`v%d%wdkajh%cijdqlkb%ujlkq%kphg`w%lk%qm`%wdkb`%jc%^5+5)%4+5,%%%%%/%pvlkb%d%H`wv`kk`%qrlvq`w+%%%%%/%%%%%/%Ew`qpwkv%~Kphg`wx%D%wdkajh%kphg`w%lk%qm`%wdkb`%jc%^5+5)%4+5,+%%%%%/%%%%%/%Ev``%F`vlphHdqm+v`qWdkajhKphg`wV``a%%%%%/%Ev``%~Eilkn%mqqu?**`k+rlnlu`ald+jwb*rlnl*H`wv`kk`Zqrlvq`wyH`wv`kk`%qrlvq`w%jk%Rlnlu`aldx%%%%%/*%%%%F`vlphHdqm+k`}qWdkajhKphg`w%8%cpkfqljk-,%~%%%%%%%%w`qpwk%wdkajhKphg`wB`k`wdqjw+wdkajh-,>%%%%x>%%%%*//%%%%%/%B`k`wdq`v%d%wdkajh%kphg`w%g`qr``k%qrj%kphg`wv+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%hlk%Qm`%hlklhph%sdip`+%%%%%/%Eudwdh%~Kphg`wx%hd}%Qm`%hd}lhph%sdip`+%%%%%/%Ew`qpwkv%~Kphg`wx%D%wdkajh%kphg`w%g`qr``k%qm`%hlk%dka%hd}+%%%%%/*%%%%F`vlphHdqm+wdkajhG`qr``k%8%cpkfqljk-hlk)%hd},%~%%%%%%%%w`qpwk%F`vlphHdqm+k`}qWdkajhKphg`w-,%/%-hd}%(%hlk,%.%hlk>%%%%x>%%%%*//%%%%%/%Fjhupq`v%9fja`;Hdqm+dfjv-sdip`,9*fja`;)%gpq%clwvq%fidhuv%9fja`;sdip`9*fja`;%qj%qm`%wdkb`%^(4+5)%4+5X%%%%%/%vj%qmdq%qm`%cpkfqljk%rlii%k`s`w%w`qpwk%KdK+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%sdip`%cjw%rmlfm%qj%fjhupq`%dfjv+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%dfjv%jc%qm`%sdip`%lc%qm`%sdip`%lv%lk%qm`%wdkb`%^(4+5)%4+5X)%jw%qm`%dfjv%jc%(4+5%jw%4+5)%%%%%/%%%%%%%%%%rmlfm`s`w%lv%fijv`w)%lc%qm`%sdip`%lv%jpqvla`%qm`%wdkb`+%%%%%/*%%%%F`vlphHdqm+dfjvFidhu`a%8%cpkfqljk-sdip`,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-sdip`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"sdip`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%Hdqm+dfjv-F`vlphHdqm+fidhu-sdip`)%(4+5)%4+5,,>%%%%x>%%%%*//%%%%%/%Fjhupq`v%9fja`;Hdqm+dvlk-sdip`,9*fja`;)%gpq%clwvq%fidhuv%9fja`;sdip`9*fja`;%qj%qm`%wdkb`%^(4+5)%4+5X%%%%%/%vj%qmdq%qm`%cpkfqljk%rlii%k`s`w%w`qpwk%KdK+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%sdip`%Qm`%sdip`%cjw%rmlfm%qj%fjhupq`%dvlk+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%dvlk%jc%qm`%sdip`%lc%qm`%sdip`%lv%lk%qm`%wdkb`%^(4+5)%4+5X)%jw%qm`%dvlk%jc%(4+5%jw%4+5)%%%%%/%%%%%%%%%%rmlfm`s`w%lv%fijv`w)%lc%qm`%sdip`%lv%jpqvla`%qm`%wdkb`+%%%%%/*%%%%F`vlphHdqm+dvlkFidhu`a%8%cpkfqljk-sdip`,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-sdip`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"sdip`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%Hdqm+dvlk-F`vlphHdqm+fidhu-sdip`)%(4+5)%4+5,,>%%%%x>%%%%*//%%%%%/%Clkav%qm`%fmjwa%i`kbqm%g`qr``k%qrj%ujlkqv%bls`k%qm`%flwfi`"v%wdalpv%dka%qm`%dkbi`%g`qr``k%qm`%ujlkqv+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%dkbi`%Qm`%dkbi`%g`qr``k%qm`%qrj%ujlkqv+%%%%%/%Eudwdh%~Kphg`wx%wdalpv%Qm`%wdalpv%jc%qm`%flwfi`+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%fmjwa%i`kbqm+%%%%%/*%%%%F`vlphHdqm+fmjwaI`kbqm%8%cpkfqljk-dkbi`)%wdalpv,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-dkbi`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"dkbi`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-wdalpv,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"wdalpv%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%7+5%/%wdalpv%/%Hdqm+vlk-dkbi`%/%5+0,>%%%%x>%%%%*//%%%%%/%Clkav%qm`%ijbdwlqmh%jc%d%kphg`w%qj%d%gdv`+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%kphg`w%Qm`%kphg`w+%%%%%/%Eudwdh%~Kphg`wx%gdv`%Qm`%gdv`+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%w`vpiq+%%%%%/*%%%%F`vlphHdqm+ijbGdv`%8%cpkfqljk-kphg`w)%gdv`,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-kphg`w,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"kphg`w%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-gdv`,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"gdv`%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%Hdqm+ijb-kphg`w,%*%Hdqm+ijb-gdv`,>%%%%x>%%%%*//%%%%%/%Clkav%qm`%fpg`%wjjq%jc%d%kphg`w+%%%%%/%W`qpwkv%KdK%lc%9fja`;kphg`w9*fja`;%lv%kjq%uwjsla`a+%%%%%/%%%%%/%Ecpkfqljk%%%%%/%Eudwdh%~Kphg`wx%^kphg`wX%Qm`%kphg`w+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%w`vpiq+%%%%%/*%%%%F`vlphHdqm+fgwq%8%a`cdpiqSdip`-Hdqm+fgwq)%cpkfqljk%fgwq-kphg`w,%~%%%%%%%%sdw%w`vpiq%8%Hdqm+ujr-Hdqm+dgv-kphg`w,)%4+5%*%6+5,>%%%%%%%%w`qpwk%kphg`w%9%5+5%:%(w`vpiq%?%w`vpiq>%%%%x,>%%%%*//%%%%%/%Clkav%qm`%gdv`%7%ijbdwlqmh%jc%d%kphg`w+%%%%%/%%%%%/%Ecpkfqljk%%%%%/%Eudwdh%~Kphg`wx%kphg`w%Qm`%kphg`w+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%w`vpiq+%%%%%/*%%%%F`vlphHdqm+ijb7%8%a`cdpiqSdip`-Hdqm+ijb7)%cpkfqljk%ijb7-kphg`w,%~%%%%%%%%w`qpwk%Hdqm+ijb-kphg`w,%/%Hdqm+IJB7@>%%%%x,>%%%%*//%%%%%/%Euwlsdq`%%%%%/*%%%%F`vlphHdqm+cjb%8%cpkfqljk-alvqdkf`QjFdh`wd)%a`kvlq|,%~%%%%%%%%sdw%vfdidw%8%alvqdkf`QjFdh`wd%/%a`kvlq|>%%%%%%%%w`qpwk%4+5%(%Hdqm+`}u-(-vfdidw%/%vfdidw,,>%%%%x>%%%%*//%%%%%/%Fjhupq`v%d%cdvq%duuwj}lhdqljk%jc%Dqdk%cjw%lkupq%lk%qm`%wdkb`%^(4)%4X+%%%%%/%%%%%/%Gdv`a%jk%Hlfmdi%Awjgjq"v%duuwj}lhdqljk%cwjh%Vmda`wCdvqIlgv)%%%%%/%rmlfm%lk%qpwk%lv%gdv`a%jk%'@cclfl`kq%duuwj}lhdqljkv%cjw%qm`%dwfqdkb`kq%cpkfqljk)'%%%%%/%Wdodk)%V+%Vlfmpk%Rdkb%Lknji)%W+%Oj|di)%D+)%Hd|%7553+%%%%%/%Daduq`a%cwjh%Vmda`wCdvqIlgv%pka`w%HLQ%Ilf`kv`+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%}%Dk%lkupq%kphg`w%lk%qm`%wdkb`%^(4)%4X%%%%%/%Ew`qpwkv%~Kphg`wx%Dk%duuwj}lhdqljk%jc%dqdk-},%%%%%/*%%%%F`vlphHdqm+cdvqDuuwj}lhdq`Dqdk%8%cpkfqljk-},%~%%%%%%%%%%%%%%%%Fm`fn+q|u`Jc+kphg`w-"}")%},>%%%%%%%%%%%%%%%%w`qpwk%}%/%-(5+42=1%/%Hdqm+dgv-},%(%5+5336%/%}%/%}%.%4+5654,>%%%%x>%%%%*//%%%%%/%Fjhupq`v%d%cdvq%duuwj}lhdqljk%jc%Dqdk7-})%|,%cjw%dwglqwdw|%lkupq%vfdidwv+%%%%%/%%%%%/%Wdkb`%w`apfqljk%hdqm%gdv`a%jk%kslald"v%fb%w`c`w`kf`%lhui`h`kqdqljk?%mqqu?**a`s`iju`w+ajrkijda+kslald+fjh*fb*dqdk7+mqhi%%%%%/%%%%%/%Eudwdh%~Kphg`wx%}%Dk%lkupq%kphg`w%qmdq%lvk"q%`wj%lc%|%lv%`wj+%%%%%/%Eudwdh%~Kphg`wx%|%Dk%lkupq%kphg`w%qmdq%lvk"q%`wj%lc%}%lv%`wj+%%%%%/%Ew`qpwkv%~Kphg`wx%Dk%duuwj}lhdqljk%jc%dqdk7-})%|,%%%%%/*%%%%F`vlphHdqm+cdvqDuuwj}lhdq`Dqdk7%8%cpkfqljk-})%|,%~%%%%%%%%%%%%%%%%Fm`fn+q|u`Jc+kphg`w-"}")%},>%%%%%%%%Fm`fn+q|u`Jc+kphg`w-"|")%|,>%%%%%%%%%%%%%%%%**%dqdk%duuwj}lhdqljkv%dw`%pvpdii|%jki|%w`ildgi`%js`w%^(4)%4X%%%%%%%%**%Vj%w`apf`%qm`%wdkb`%g|%ciluulkb%rm`qm`w%}%jw%|%lv%jk%qju%gdv`a%jk%rmlfm%lv%glbb`w+%%%%%%%%sdw%juujvlq`>%%%%%%%%sdw%daodf`kq>%%%%%%%%sdw%q%8%Hdqm+dgv-},>%**%q%pv`a%dv%vrdu%dka%dqdk%w`vpiq+%%%%%%%%juujvlq`%8%Hdqm+dgv-|,>%%%%%%%%daodf`kq%8%Hdqm+hd}-q)%juujvlq`,>%%%%%%%%juujvlq`%8%Hdqm+hlk-q)%juujvlq`,>%%%%%%%%sdw%juujvlq`Js`wDaodf`kq%8%juujvlq`%*%daodf`kq>%%%%%%%%%%%%%%%%lc%-lvKdK-juujvlq`Js`wDaodf`kq,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"`lqm`w%}%jw%|%hpvq%g`%kjk`wj",>%%%%%%%%x%%%%%%%%%%%%%%%%q%8%F`vlphHdqm+cdvqDuuwj}lhdq`Dqdk-juujvlq`Js`wDaodf`kq,>%%%%%%%%**%Pkaj%wdkb`%w`apfqljk%%%%%%%%q%8%Hdqm+dgv-|,%;%Hdqm+dgv-},%:%F`vlphHdqm+ULZJS@WZQRJ%(%q%?%q>%%%%%%%%q%8%}%9%5+5%:%%F`vlphHdqm+UL%(%q%?%q>%%%%%%%%q%8%|%9%5+5%:%(q%?%q>%%%%%%%%w`qpwk%q>%%%%x>%%%%w`qpwk%F`vlphHdqm>x,>a`clk`-"Fjw`*Lka`}Adqdq|u`")^%%%%%%%%"+*a`clk`a")%%%%%%%%"+*A`s`iju`w@wwjw")%%%%%%%%"+*cw```Jgo`fq")%%%%%%%%"+*Hdqm")%%%%%%%%"+*R`gBIFjkvqdkqv"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a)%%%%%%%%A`s`iju`w@wwjw)%%%%%%%%cw```Jgo`fq)%%%%%%%%F`vlphHdqm)%%%%%%%%R`gBIFjkvqdkqv,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%Fjkvqdkqv%cjw%R`gBI%lka`}%adqdq|u`v+%%Qm`v`%fjww`vujkav%qj%qm`%%%%%/%9fja`;q|u`9*fja`;%udwdh`q`w%jc%~Eilkn%mqqu?**rrr+nmwjkjv+jwb*ju`kbi`v*van*ajfv*hdk*}mqhi*biAwdr@i`h`kqv+}hiyawdr@i`h`kqvx+%%%%%/%%%%%/%E`}ujwqv%Lka`}Adqdq|u`%%%%%/*%%%%sdw%Lka`}Adqdq|u`%8%~%%%%%%%%*//%%%%%%%%%/%=(glq%pkvlbk`a%g|q`%fjww`vujkalkb%qj%9fja`;PKVLBK@AZG\Q@9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Plkq=Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%PKVLBK@AZG\Q@%?%R`gBIFjkvqdkqv+PKVLBK@AZG\Q@)%%%%%%%%*//%%%%%%%%%/%43(glq%pkvlbk`a%vmjwq%fjww`vujkalkb%qj%9fja`;PKVLBK@AZVMJWQ9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Plkq43Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%PKVLBK@AZVMJWQ%?%R`gBIFjkvqdkqv+PKVLBK@AZVMJWQ)%%%%%%%%*//%%%%%%%%%/%67(glq%pkvlbk`a%lkq%fjww`vujkalkb%qj%9fja`;PKVLBK@AZLKQ9*fja`;%dka%qm`%q|u`%%%%%%%%%/%jc%dk%`i`h`kq%lk%9fja`;Plkq67Dwwd|9*fja`;+%%%%%%%%%/%%%%%%%%%/%Eq|u`%~Kphg`wx%%%%%%%%%/%Efjkvqdkq%%%%%%%%%/*%%%%%%%%PKVLBK@AZLKQ%?%R`gBIFjkvqdkqv+PKVLBK@AZLKQ%%%%x>%%%%*//%%%%%/%W`qpwkv%qm`%vl`)%lk%g|q`v)%jc%qm`%fjww`vujkalkb%adqdq|u`+%%%%%/%%%%%/%Eudwdh%~Lka`}Adqdq|u`x%lka`}Adqdq|u`%Qm`%lka`}%adqdq|u`%qj%b`q%qm`%vl`%jc+%%%%%/%Ew`qpwkv%~Kphg`wx%Qm`%vl`%lk%g|q`v+%%%%%/%%%%%/%E`}dhui`%%%%%/%**%W`qpwkv%7%%%%%/%sdw%vl`%8%F`vlph+Lka`}Adqdq|u`+b`qVl`LkG|q`v-F`vlph+Lka`}Adqdq|u`+PKVLBK@AZVMJWQ,>%%%%%/*%%%%Lka`}Adqdq|u`+b`qVl`LkG|q`v%8%cpkfqljk-lka`}Adqdq|u`,%~%%%%%%%%vrlqfm-lka`}Adqdq|u`,%~%%%%%%%%%%%%fdv`%Lka`}Adqdq|u`+PKVLBK@AZG\Q@?%%%%%%%%%%%%%%%%w`qpwk%Plkq=Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%%%%%fdv`%Lka`}Adqdq|u`+PKVLBK@AZVMJWQ?%%%%%%%%%%%%%%%%w`qpwk%Plkq43Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%%%%%fdv`%Lka`}Adqdq|u`+PKVLBK@AZLKQ?%%%%%%%%%%%%%%%%w`qpwk%Plkq67Dwwd|+G\Q@VZU@WZ@I@H@KQ>%%%%%%%%x%%%%%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"lka`}Adqdq|u`%lv%w`tplw`a%dka%hpvq%g`%d%sdila%Lka`}Adqdq|u`%fjkvqdkq+",>%%%%%%%%%%%%x>%%%%*//%%%%%/%Sdiladq`v%qmdq%qm`%uwjsla`a%lka`}%adqdq|u`%lv%d%sdila%~Eilkn%Lka`}Adqdq|u`x+%%%%%/%%%%%/%Eudwdh%~Lka`}Adqdq|u`x%lka`}Adqdq|u`%Qm`%lka`}%adqdq|u`%qj%sdiladq`+%%%%%/%Ew`qpwkv%~Gjji`dkx%9fja`;qwp`9*fja`;%lc%qm`%uwjsla`a%lka`}%adqdq|u`%lv%d%sdila%sdip`>%jqm`wrlv`)%9fja`;cdiv`9*fja`;+%%%%%/%%%%%/%E`}dhui`%%%%%/%lc%-$F`vlph+Lka`}Adqdq|u`+sdiladq`-lka`}Adqdq|u`,,%~%%%%%/%%%qmwjr%k`r%F`vlph+A`s`iju`w@wwjw-"lka`}Adqdq|u`%hpvq%g`%d%sdila%sdip`+",>%%%%%/%x%%%%%/*%%%%Lka`}Adqdq|u`+sdiladq`%8%cpkfqljk-lka`}Adqdq|u`,%~%%%%%%%%w`qpwk%a`clk`a-lka`}Adqdq|u`,%##%%%%%%%%%%%%%%%-lka`}Adqdq|u`%888%Lka`}Adqdq|u`+PKVLBK@AZG\Q@%yy%%%%%%%%%%%%%%%%lka`}Adqdq|u`%888%Lka`}Adqdq|u`+PKVLBK@AZVMJWQ%yy%%%%%%%%%%%%%%%%lka`}Adqdq|u`%888%Lka`}Adqdq|u`+PKVLBK@AZLKQ,>%%%%x>%%%%*//%%%%%/%Fw`dq`v%d%q|u`a%dwwd|%qmdq%rlii%vqjw`%lkalf`v)%pvlkb%`lqm`w%9fja`;9Plkq43Dwwd|9*fja`;%%%%%/%jw%9fja`;Plkq67Dwwd|9*fja`;%a`u`kalkb%jk%qm`%kphg`w%jc%s`wqlf`v+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%kphg`wJcS`wqlf`v%Kphg`w%jc%s`wqlf`v%qmdq%qm`%lkalf`v%rlii%w`c`w`kf`+%%%%%/%Eudwdh%~Kphg`wyDwwd|x%lkalf`vI`kbqmJwDwwd|%Udvv`a%qmwjpbm%qj%qm`%q|u`a%dwwd|%fjkvqwpfqjw+%%%%%/%Ew`qpwkv%~Plkq43Dwwd|yPlkq67Dwwd|x%D%9fja`;Plkq43Dwwd|9*fja`;%jw%9fja`;Plkq67Dwwd|9*fja`;%fjkvqwpfq`a%rlqm%9fja`;lkalf`vI`kbqmJwDwwd|9*fja`;+%%%%%/%%%%%/%E`}dhui`%%%%%/%qmlv+lkalf`v%8%F`vlph+Lka`}Adqdq|u`+fw`dq`Q|u`aDwwd|-ujvlqljkv+i`kbqm%*%6)%kphg`wJcLkalf`v,>%%%%%/*%%%%Lka`}Adqdq|u`+fw`dq`Q|u`aDwwd|%8%cpkfqljk-kphg`wJcS`wqlf`v)%lkalf`vI`kbqmJwDwwd|,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-kphg`wJcS`wqlf`v,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"kphg`wJcS`wqlf`v%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%lc%-kphg`wJcS`wqlf`v%;8%F`vlphHdqm+VL]Q\ZCJPWZNLIJG\Q@V,%~%%%%%%%%%%%%w`qpwk%k`r%Plkq67Dwwd|-lkalf`vI`kbqmJwDwwd|,>%%%%%%%%x%%%%%%%%w`qpwk%k`r%Plkq43Dwwd|-lkalf`vI`kbqmJwDwwd|,>%%%%x>%%%%*//%%%%%/%Fw`dq`v%d%q|u`a%dwwd|%cwjh%d%vjpwf`%dwwd|%gpcc`w+%%Qm`%w`vpiqlkb%q|u`a%dwwd|%rlii%vqjw`%lkalf`v)%pvlkb%`lqm`w%9fja`;9Plkq43Dwwd|9*fja`;%%%%%/%jw%9fja`;Plkq67Dwwd|9*fja`;%a`u`kalkb%jk%qm`%kphg`w%jc%s`wqlf`v+%%%%%/%%%%%/%Eudwdh%~Kphg`wx%kphg`wJcS`wqlf`v%Kphg`w%jc%s`wqlf`v%qmdq%qm`%lkalf`v%rlii%w`c`w`kf`+%%%%%/%Eudwdh%~Dwwd|Gpcc`wx%vjpwf`Dwwd|%Udvv`a%qmwjpbm%qj%qm`%q|u`a%dwwd|%fjkvqwpfqjw+%%%%%/%Eudwdh%~Kphg`wx%g|q`Jccv`q%Udvv`a%qmwjpbm%qj%qm`%q|u`a%dwwd|%fjkvqwpfqjw+%%%%%/%Eudwdh%~Kphg`wx%i`kbqm%Udvv`a%qmwjpbm%qj%qm`%q|u`a%dwwd|%fjkvqwpfqjw+%%%%%/%Ew`qpwkv%~Plkq43Dwwd|yPlkq67Dwwd|x%D%9fja`;Plkq43Dwwd|9*fja`;%jw%9fja`;Plkq67Dwwd|9*fja`;%fjkvqwpfq`a%rlqm%9fja`;vjpwf`Dwwd|9*fja`;)%9fja`;g|q`Jccv`q9*fja`;)%dka%9fja`;i`kbqm9*fja`;+%%%%%/%%%%%/*%%%%Lka`}Adqdq|u`+fw`dq`Q|u`aDwwd|CwjhDwwd|Gpcc`w%8%cpkfqljk-kphg`wJcS`wqlf`v)%vjpwf`Dwwd|)%g|q`Jccv`q)%i`kbqm,%~%%%%%%%%%%%%%%%%lc%-$a`clk`a-kphg`wJcS`wqlf`v,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"kphg`wJcS`wqlf`v%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-vjpwf`Dwwd|,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"vjpwf`Dwwd|%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%lc%-$a`clk`a-g|q`Jccv`q,,%~%%%%%%%%%%%%qmwjr%k`r%A`s`iju`w@wwjw-"g|q`Jccv`q%lv%w`tplw`a+",>%%%%%%%%x%%%%%%%%%%%%%%%%lc%-kphg`wJcS`wqlf`v%;8%F`vlphHdqm+VL]Q\ZCJPWZNLIJG\Q@V,%~%%%%%%%%%%%%w`qpwk%k`r%Plkq67Dwwd|-vjpwf`Dwwd|)%g|q`Jccv`q)%i`kbqm,>%%%%%%%%x%%%%%%%%w`qpwk%k`r%Plkq43Dwwd|-vjpwf`Dwwd|)%g|q`Jccv`q)%i`kbqm,>%%%%x>%%%%w`qpwk%cw```Jgo`fq-Lka`}Adqdq|u`,>x,>a`clk`-"Fjw`*Wpkqlh`@wwjw")^%%%%%%%%"+*a`clk`a"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%Fjkvqwpfqv%dk%`}f`uqljk%jgo`fq%qmdq%lv%qmwjrk%ap`%qj%dk%`wwjw%qmdq%fdk%jffpw%dq%wpkqlh`)%`+b+)%%%%%/%jpq%jc%h`hjw|)%fjpia%kjq%fjhuli`%vmda`w)%`qf+%%Lc%d%cpkfqljk%hd|%qmwjr%qmlv%%%%%/%`}f`uqljk)%qm`%fdiilkb%fja`%vmjpia%g`%uw`udw`a%qj%fdqfm%lq+%%%%%/%9gw%*;9gw%*;%%%%%/%Jk%qm`%jqm`w%mdka)%d%~Eilkn%A`s`iju`w@wwjwx%lkalfdq`v%dk%`}f`uqljk%ap`%%%%%/%qj%d%a`s`iju`w%`wwjw)%`+b+)%lksdila%dwbph`kq)%qmdq%pvpdii|%lkalfdq`v%d%gpb%lk%qm`%%%%%/%fdiilkb%fja`+%%%%%/%%%%%/%Edildv%Wpkqlh`@wwjw%%%%%/%Efjkvqwpfqjw%%%%%/%E`}q`kav%@wwjw%%%%%/%%%%%/%Eudwdh%~Vqwlkbx%^h`vvdb`X%Qm`%`wwjw%h`vvdb`%cjw%qmlv%`}f`uqljk+%%%%%/%%%%%/%Ev``%A`s`iju`w@wwjw%%%%%/*%%%%cpkfqljk%Wpkqlh`@wwjw-h`vvdb`,%~%%%%%%%%*//%%%%%%%%%/%"Wpkqlh`@wwjw"%lkalfdqlkb%qmdq%qmlv%`}f`uqljk%rdv%qmwjrk%ap`%qj%d%wpkqlh`%`wwjw+%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%qmlv+kdh`%8%"Wpkqlh`@wwjw">%%%%%%%%*//%%%%%%%%%/%Qm`%`}uidkdqljk%cjw%rm|%qmlv%`}f`uqljk%rdv%qmwjrk+%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%qmlv+h`vvdb`%8%h`vvdb`>%%%%%%%%**Gwjrv`wv%vpfm%dv%L@%ajk"q%mds`%d%vqdfn%uwju`wq|%pkqli%|jp%dfqpdii|%qmwjr%qm`%`wwjw+%%%%%%%%sdw%vqdfn>%%%%%%%%qw|%~%%%%%%%%%%%%qmwjr%k`r%@wwjw-,>%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%vqdfn%8%`+vqdfn>%%%%%%%%x%%%%%%%%*//%%%%%%%%%/%Qm`%vqdfn%qwdf`%jc%qmlv%`}f`uqljk)%lc%dsdlidgi`+%%%%%%%%%/%Eq|u`%~Vqwlkbx%%%%%%%%%/%Ew`dajki|%%%%%%%%%/*%%%%%%%%qmlv+vqdfn%8%vqdfn>%%%%x%%%%lc%-a`clk`a-Jgo`fq+fw`dq`,,%~%%%%%%%%Wpkqlh`@wwjw+uwjqjq|u`%8%Jgo`fq+fw`dq`-@wwjw+uwjqjq|u`,>%%%%%%%%Wpkqlh`@wwjw+uwjqjq|u`+fjkvqwpfqjw%8%Wpkqlh`@wwjw>%%%%x%%%%Wpkqlh`@wwjw+uwjqjq|u`+qjVqwlkb%8%cpkfqljk-,%~%%%%%%%%sdw%vqw%8%qmlv+kdh`%.%"?%"%.%qmlv+h`vvdb`>%%%%%%%%lc%-a`clk`a-qmlv+vqdfn,,%~%%%%%%%%%%%%vqw%.8%"Yk"%.%qmlv+vqdfn+qjVqwlkb-,>%%%%%%%%x%%%%%%%%w`qpwk%vqw>%%%%x>%%%%w`qpwk%Wpkqlh`@wwjw>x,>*//%%Eilf`kv`%%rm`k+ov%(%mqquv?**blqmpg+fjh*fpojov*rm`k%%HLQ%Ilf`kv`%-f,%fju|wlbmq%G%Fdsdil`w%#%O%Mdkk%/%D%ilbmqr`lbmq%FjhhjkOV%Uwjhlv`v*D%dka%rm`k-,%lhui`h`kqdqljk%/%rm`k%lv%udwq%jc%qm`%fpoj+ov%cdhli|%jc%ilgwdwl`v%-mqqu?**fpojov+fjh*,%/%/%Ilf`kv`a%pka`w%qm`%HLQ%Ilf`kv`%dq?%/%mqqu?**rrr+ju`kvjpwf`+jwb*ilf`kv`v*hlq(ilf`kv`+umu%/%/%Es`wvljk%4+2+4%/*-cpkfqljk-a`clk`,%~%"pv`%vqwlfq">a`clk`-"QmlwaUdwq|*rm`k")^X)cpkfqljk%-,%~sdw%w`apf`Dwwd|)%vilf`)%pka`c>****%Upgilf%DUL**rm`k+a`c`w%%%%%8%a`c`w>%%%%%**%Fw`dq`%d%a`c`ww`arm`k+w`vjis`%%%8%w`vjis`>%%%**%Fw`dq`%d%w`vjis`a%uwjhlv`rm`k+w`o`fq%%%%8%w`o`fq>%%%%**%Fw`dq`%d%w`o`fq`a%uwjhlv`rm`k+ojlk%%%%%%8%ojlk>%%%%%%**%Ojlk%7%jw%hjw`%uwjhlv`vrm`k+dii%%%%%%%8%dii>%%%%%%%**%W`vjis`%d%ilvq%jc%uwjhlv`vrm`k+hdu%%%%%%%8%hdu>%%%%%%%**%Dwwd|+hdu-,%cjw%uwjhlv`vrm`k+w`apf`%%%%8%w`apf`>%%%%**%Dwwd|+w`apf`-,%cjw%uwjhlv`vrm`k+dk|%%%%%%%8%dk|>%%%%%%%**%Jk`(rlkk`w%wdf`rm`k+vjh`%%%%%%8%vjh`>%%%%%%**%Hpiql(rlkk`w%wdf`rm`k+fmdlk%%%%%8%fmdlk>%%%%%**%Hdn`%d%uwjhlv`%qwlbb`w%dkjqm`w%w`vjis`wrm`k+lvUwjhlv`%8%lvUwjhlv`>%**%A`q`whlk`%lc%d%qmlkb%lv%d%uwjhlv`*//%/%W`blvq`w%dk%jgv`ws`w%cjw%d%uwjhlv`%jw%lhh`aldq`%sdip`+%/%/%Eudwdh%~/x%uwjhlv`JwSdip`%/%Eudwdh%~cpkfqljk:x%^jkCpiclii`aX%fdiigdfn%qj%g`%fdii`a%rm`k%uwjhlv`JwSdip`%lv%/%%%vpff`vvcpii|%cpiclii`a+%%Lc%uwjhlv`JwSdip`%lv%dk%lhh`aldq`%sdip`)%fdiigdfn%/%%%rlii%g`%lksjn`a%lhh`aldq`i|+%/%Eudwdh%~cpkfqljk:x%^jkW`o`fq`aX%fdiigdfn%qj%g`%fdii`a%rm`k%uwjhlv`JwSdip`%lv%/%%%w`o`fq`a+%/%Eudwdh%~cpkfqljk:x%^jkUwjbw`vvX%fdiigdfn%qj%g`%fdii`a%rm`k%uwjbw`vv%puadq`v%/%%%dw`%lvvp`a%cjw%uwjhlv`JwSdip`+%/%Ew`qpwkv%~Uwjhlv`x%d%k`r%~Eilkn%Uwjhlv`x%qmdq%rlii%fjhui`q`%rlqm%qm`%w`qpwk%/%%%sdip`%jc%fdiigdfn%jw%`wwgdfn%jw%qm`%fjhui`qljk%sdip`%jc%uwjhlv`JwSdip`%lc%/%%%fdiigdfn%dka*jw%`wwgdfn%lv%kjq%vpuuil`a+%/*cpkfqljk%rm`k-uwjhlv`JwSdip`)%jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,%~**%B`q%d%qwpvq`a%uwjhlv`%cjw%qm`%lkupq%uwjhlv`JwSdip`)%dka%qm`k**%w`blvq`w%uwjhlv`%mdkai`wvw`qpwk%w`vjis`-uwjhlv`JwSdip`,+qm`k-jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,>x*//%/%W`qpwkv%uwjhlv`JwSdip`%lc%uwjhlv`JwSdip`%lv%d%~Eilkn%Uwjhlv`x)%d%k`r%Uwjhlv`%lc%/%uwjhlv`JwSdip`%lv%d%cjw`lbk%uwjhlv`)%jw%d%k`r)%diw`da|(cpiclii`a%~Eilkn%Uwjhlv`x%/%rmjv`%sdip`%lv%uwjhlv`JwSdip`%lc%uwjhlv`JwSdip`%lv%dk%lhh`aldq`%sdip`+%/%/%Eudwdh%~/x%uwjhlv`JwSdip`%/%Ew`qpwkv%Bpdwdkq``a%qj%w`qpwk%d%qwpvq`a%Uwjhlv`+%%Lc%uwjhlv`JwSdip`%lv%d%rm`k+ov%~Eilkn%Uwjhlv`x%/%%%w`qpwkv%uwjhlv`JwSdip`)%jqm`wrlv`)%w`qpwkv%d%k`r)%diw`da|(w`vjis`a)%rm`k+ov%~Eilkn%Uwjhlv`x%/%%%rmjv`%w`vjipqljk%sdip`%lv?%/%%%/%qm`%w`vjipqljk%sdip`%jc%uwjhlv`JwSdip`%lc%lq"v%d%cjw`lbk%uwjhlv`)%jw%/%%%/%uwjhlv`JwSdip`%lc%lq"v%d%sdip`%/*cpkfqljk%w`vjis`-uwjhlv`JwSdip`,%~sdw%uwjhlv`)%a`c`ww`a>lc-uwjhlv`JwSdip`%lkvqdkf`jc%Uwjhlv`,%~**%Lq"v%d%rm`k+ov%uwjhlv`)%vj%r`%qwpvq%lquwjhlv`%8%uwjhlv`JwSdip`>x%`iv`%~**%Lq"v%kjq%d%rm`k+ov%uwjhlv`+%V``%lc%lq"v%d%cjw`lbk%uwjhlv`%jw%d%sdip`+lc-lvUwjhlv`-uwjhlv`JwSdip`,,%~**%Lq"v%d%qm`kdgi`)%gpq%r`%ajk"q%nkjr%rm`w`%lq%fdh`%cwjh)%vj%ajk"q%qwpvq**%lqv%lhui`h`kqdqljk%`kqlw`i|+%%Lkqwjapf`%d%qwpvq`a%hlaai`hdk%rm`k+ov%uwjhlv`a`c`ww`a%8%a`c`w-,>**%LHUJWQDKQ?%Qmlv%lv%qm`%jki|%uidf`%rm`k+ov%vmjpia%`s`w%fdii%+qm`k-,%jk%dk**%pkqwpvq`a%uwjhlv`+%Ajk"q%`}ujv`%qm`%w`qpwk%sdip`%qj%qm`%pkqwpvq`a%uwjhlv`uwjhlv`JwSdip`+qm`k-cpkfqljk-sdip`,%%~%a`c`ww`a+w`vjis`-sdip`,>%x)cpkfqljk-w`dvjk,%~%a`c`ww`a+w`o`fq-w`dvjk,>%x)cpkfqljk-puadq`,%~%a`c`ww`a+uwjbw`vv-puadq`,>%x,>uwjhlv`%8%a`c`ww`a+uwjhlv`>x%`iv`%~**%Lq"v%d%sdip`)%kjq%d%uwjhlv`+%%Fw`dq`%d%w`vjis`a%uwjhlv`%cjw%lq+uwjhlv`%8%cpiclii`a-uwjhlv`JwSdip`,>xxw`qpwk%uwjhlv`>x*//%/%W`qpwkv%d%w`o`fq`a%uwjhlv`%cjw%qm`%vpuuil`a%uwjhlv`JwSdip`+%%Qm`%w`qpwk`a%/%uwjhlv`%rlii%g`%w`o`fq`a%rlqm?%/%(%uwjhlv`JwSdip`)%lc%lq%lv%d%sdip`)%jw%/%(%lc%uwjhlv`JwSdip`%lv%d%uwjhlv`%/%%%(%uwjhlv`JwSdip`"v%sdip`%dcq`w%lq%lv%cpiclii`a%/%%%(%uwjhlv`JwSdip`"v%w`dvjk%dcq`w%lq%lv%w`o`fq`a%/%Eudwdh%~/x%uwjhlv`JwSdip`%qm`%w`o`fq`a%sdip`%jc%qm`%w`qpwk`a%~Eilkn%Uwjhlv`x%/%Ew`qpwkv%~Uwjhlv`x%w`o`fq`a%~Eilkn%Uwjhlv`x%/*cpkfqljk%w`o`fq-uwjhlv`JwSdip`,%~w`qpwk%rm`k-uwjhlv`JwSdip`)%w`o`fq`a,>x*//%/%Qwpvq`a%Uwjhlv`%fjkvqwpfqjw+%%D%Uwjhlv`%fw`dq`a%cwjh%qmlv%fjkvqwpfqjw%lv%/%d%qwpvq`a%rm`k+ov%uwjhlv`+%%Dk|%jqm`w%apfn(q|u`a%uwjhlv`%lv%fjkvla`w`a%/%pkqwpvq`a+%/%Efjkvqwpfqjw%/%Ekdh`%Uwjhlv`%/*cpkfqljk%Uwjhlv`-qm`k,%~qmlv+qm`k%8%qm`k>xUwjhlv`+uwjqjq|u`%8%~*//%/%W`blvq`w%d%fdiigdfn%qmdq%rlii%g`%fdii`a%rm`k%d%uwjhlv`%lv%/%cpiclii`a%jw%w`o`fq`a+%%Juqljkdii|%divj%w`blvq`w%d%uwjbw`vv%mdkai`w+%/%Vmjwqfpq%cjw%+qm`k-jkCpiclii`aJwW`o`fq`a)%jkCpiclii`aJwW`o`fq`a)%jkUwjbw`vv,%/%Eudwdh%~cpkfqljk:x%^jkCpiclii`aJwW`o`fq`aX%/%Eudwdh%~cpkfqljk:x%^jkUwjbw`vvX%/%Ew`qpwkv%~Uwjhlv`x%/*dird|v?%cpkfqljk-jkCpiclii`aJwW`o`fq`a)%jkUwjbw`vv,%~w`qpwk%qmlv+qm`k-jkCpiclii`aJwW`o`fq`a)%jkCpiclii`aJwW`o`fq`a)%jkUwjbw`vv,>x)*//%/%W`blvq`w%d%w`o`fqljk%mdkai`w+%%Vmjwqfpq%cjw%+qm`k-pka`clk`a)%jkW`o`fq`a,%/%Eudwdh%~cpkfqljk:x%jkW`o`fq`a%/%Ew`qpwkv%~Uwjhlv`x%/*jqm`wrlv`?%cpkfqljk-jkW`o`fq`a,%~w`qpwk%qmlv+qm`k-pka`c)%jkW`o`fq`a,>x)*//%/%Vmjwqfpq%cjw%+qm`k-cpkfqljk-,%~%w`qpwk%sdip`>%x,%/%Eudwdh%%~/x%sdip`%/%Ew`qpwkv%~Uwjhlv`x%d%uwjhlv`%qmdq?%/%%(%lv%cpiclii`a%lc%sdip`%lv%kjq%d%uwjhlv`)%jw%/%%(%lc%sdip`%lv%d%uwjhlv`)%rlii%cpiclii%rlqm%lqv%sdip`)%jw%w`o`fq%/%%%%rlqm%lqv%w`dvjk+%/*|l`ia?%cpkfqljk-sdip`,%~w`qpwk%qmlv+qm`k-cpkfqljk-,%~w`qpwk%sdip`>x,>x)*//%/%Dvvph`v%qmdq%qmlv%uwjhlv`%rlii%cpiclii%rlqm%dk%dwwd|)%dka%dwwdkb`v%/%cjw%qm`%jkCpiclii`a%qj%g`%fdii`a%rlqm%qm`%dwwd|%dv%lqv%dwbph`kq%ilvq%/%l+`+%jkCpiclii`a+vuw`da-pka`clk`a)%dwwd|,+%/%Eudwdh%~cpkfqljkx%jkCpiclii`a%cpkfqljk%qj%w`f`ls`%vuw`da%dwbph`kqv%/%Ew`qpwkv%~Uwjhlv`x%/*vuw`da?%cpkfqljk-jkCpiclii`a,%~w`qpwk%qmlv+qm`k-cpkfqljk-dwwd|,%~**%dwwd|%hd|%fjkqdlk%uwjhlv`v)%vj%w`vjis`%lqv%fjkq`kqv+w`qpwk%dii-dwwd|)%cpkfqljk-dwwd|,%~w`qpwk%jkCpiclii`a+duui|-pka`c)%dwwd|,>x,>x,>xx>*//%/%Fw`dq`%dk%diw`da|(w`vjis`a%uwjhlv`%cjw%qm`%vpuuil`a%sdip`%/%Euwlsdq`%/%/%Eudwdh%~/x%sdip`%/%Ew`qpwkv%~Uwjhlv`x%cpiclii`a%uwjhlv`%/*cpkfqljk%cpiclii`a-sdip`,%~sdw%u%8%k`r%Uwjhlv`-cpkfqljk-jkCpiclii`a,%~**%QJAJ?%Uwjhlv`v*D.%fm`fn%q|u`jc%jkCpiclii`aqw|%~w`qpwk%w`vjis`-jkCpiclii`a%:%jkCpiclii`a-sdip`,%?%sdip`,>x%fdqfm-`,%~w`qpwk%w`o`fq`a-`,>xx,>w`qpwk%u>x*//%/%Fw`dq`%dk%diw`da|(w`o`fq`a%~Eilkn%Uwjhlv`x%rlqm%qm`%vpuuil`a%/%w`o`fqljk%w`dvjk+%/%Euwlsdq`%/%/%Eudwdh%~/x%w`dvjk%/%Ew`qpwkv%~Uwjhlv`x%w`o`fq`a%uwjhlv`%/*cpkfqljk%w`o`fq`a-w`dvjk,%~sdw%u%8%k`r%Uwjhlv`-cpkfqljk-Z)%jkW`o`fq`a,%~**%QJAJ?%Uwjhlv`v*D.%fm`fn%q|u`jc%jkW`o`fq`aqw|%~w`qpwk%jkW`o`fq`a%:%w`vjis`-jkW`o`fq`a-w`dvjk,,%?%w`o`fq`a-w`dvjk,>x%fdqfm-`,%~w`qpwk%w`o`fq`a-`,>xx,>w`qpwk%u>x*//%/%Fw`dq`v%d%k`r)%A`c`ww`a%rlqm%cpii|%lvjidq`a%w`vjis`w%dka%uwjhlv`%udwqv)%/%`lqm`w%jw%gjqm%jc%rmlfm%hd|%g`%bls`k%jpq%vdc`i|%qj%fjkvph`wv+%/%Qm`%A`c`ww`a%lqv`ic%mdv%qm`%cpii%DUL?%w`vjis`)%w`o`fq)%uwjbw`vv)%dka%/%qm`k+%Qm`%w`vjis`w%mdv%w`vjis`)%w`o`fq)%dka%uwjbw`vv+%%Qm`%uwjhlv`%/%jki|%mdv%qm`k+%/%/%Ew`qpwkv%~A`c`ww`ax%/*cpkfqljk%a`c`w-,%~sdw%a`c`ww`a)%uwjhlv`)%mdkai`wv)%uwjbw`vvMdkai`wv)Zqm`k)%Zuwjbw`vv)%Zw`vjis`>*//%/%Qm`%uwjhlv`%cjw%qm`%k`r%a`c`ww`a%/%Eq|u`%~Uwjhlv`x%/*uwjhlv`%8%k`r%Uwjhlv`-qm`k,>*//%/%Qm`%cpii%A`c`ww`a%jgo`fq)%rlqm%~Eilkn%Uwjhlv`x%dka%~Eilkn%W`vjis`wx%udwqv%/%Efidvv%A`c`ww`a%/%Ekdh`%A`c`ww`a%/*a`c`ww`a%8%~qm`k?%%%%%qm`k)%**%A@UW@FDQ@A?%pv`%a`c`ww`a+uwjhlv`+qm`kw`vjis`?%%uwjhlv`W`vjis`)w`o`fq?%%%uwjhlv`W`o`fq)**%QJAJ?%Fjkvla`w%w`kdhlkb%uwjbw`vv-,%qj%kjqlc|-,uwjbw`vv?%uwjhlv`Uwjbw`vv)uwjhlv`?%%uwjhlv`)w`vjis`w?%~w`vjis`?%%uwjhlv`W`vjis`)w`o`fq?%%%uwjhlv`W`o`fq)uwjbw`vv?%uwjhlv`Uwjbw`vvxx>mdkai`wv%8%^X>uwjbw`vvMdkai`wv%8%^X>*//%/%Uw`(w`vjipqljk%qm`k-,%qmdq%daav%qm`%vpuuil`a%fdiigdfn)%`wwgdfn)%dka%uwjbgdfn%/%cpkfqljkv%qj%qm`%w`blvq`w`a%ilvq`k`wv%/%Euwlsdq`%/%/%Eudwdh%~cpkfqljk:x%^jkCpiclii`aX%w`vjipqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkW`o`fq`aX%w`o`fqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkUwjbw`vvX%uwjbw`vv%mdkai`w%/*Zqm`k%8%cpkfqljk-jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,%~**%QJAJ?%Uwjhlv`v*D.%fm`fn%q|u`jc%jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vvsdw%a`c`ww`a)%uwjbw`vvMdkai`w>a`c`ww`a%8%a`c`w-,>uwjbw`vvMdkai`w%8%q|u`jc%jkUwjbw`vv%888%"cpkfqljk":%cpkfqljk-puadq`,%~qw|%~**%Diijr%uwjbw`vv%mdkai`w%qj%qwdkvcjwh%uwjbw`vv%`s`kqa`c`ww`a+uwjbw`vv-jkUwjbw`vv-puadq`,,>x%fdqfm-`,%~**%Pv`%fdpbmq%sdip`%dv%uwjbw`vva`c`ww`a+uwjbw`vv-`,>xx?%cpkfqljk-puadq`,%~%a`c`ww`a+uwjbw`vv-puadq`,>%x>mdkai`wv+upvm-cpkfqljk-uwjhlv`,%~uwjhlv`+qm`k-jkCpiclii`a)%jkW`o`fq`a,+qm`k-a`c`ww`a+w`vjis`)%a`c`ww`a+w`o`fq)%uwjbw`vvMdkai`w,>x,>uwjbw`vvMdkai`wv+upvm-uwjbw`vvMdkai`w,>w`qpwk%a`c`ww`a+uwjhlv`>x>*//%/%Lvvp`%d%uwjbw`vv%`s`kq)%kjqlc|lkb%dii%uwjbw`vv%ilvq`k`wv%/%Euwlsdq`%/%Eudwdh%~/x%puadq`%uwjbw`vv%`s`kq%ud|ijda%qj%udvv%qj%dii%ilvq`k`wv%/*Zuwjbw`vv%8%cpkfqljk-puadq`,%~uwjf`vvTp`p`-uwjbw`vvMdkai`wv)%puadq`,>w`qpwk%puadq`>x>*//%/%Qwdkvlqljk%cwjh%uw`(w`vjipqljk%vqdq`%qj%ujvq(w`vjipqljk%vqdq`)%kjqlc|lkb%/%dii%ilvq`k`wv%jc%qm`%w`vjipqljk%jw%w`o`fqljk%/%Euwlsdq`%/%Eudwdh%~/x%sdip`%qm`%sdip`%jc%qmlv%a`c`ww`a%/*Zw`vjis`%8%cpkfqljk-sdip`,%~sdip`%8%w`vjis`-sdip`,>**%W`uidf`%Zqm`k%rlqm%jk`%qmdq%alw`fqi|%kjqlcl`v%rlqm%qm`%w`vpiq+Zqm`k%8%sdip`+qm`k>**%W`uidf`%Zw`vjis`%vj%qmdq%qmlv%A`c`ww`a%fdk%jki|%g`%w`vjis`a%jkf`Zw`vjis`%8%w`vjis`>**%Hdn`%Zuwjbw`vv%d%kjju)%qj%alvdiijr%uwjbw`vv%cjw%qm`%w`vjis`a%uwjhlv`+Zuwjbw`vv%8%kjju>**%Kjqlc|%mdkai`wvuwjf`vvTp`p`-mdkai`wv)%sdip`,>**%Cw``%uwjbw`vvMdkai`wv%dwwd|%vlkf`%r`"ii%k`s`w%lvvp`%uwjbw`vv%`s`kqvuwjbw`vvMdkai`wv%8%mdkai`wv%8%pka`c>w`qpwk%sdip`>x>w`qpwk%a`c`ww`a>*//%/%Rwduu`w%qj%diijr%Zqm`k%qj%g`%w`uidf`a%vdc`i|%/%Eudwdh%~cpkfqljk:x%^jkCpiclii`aX%w`vjipqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkW`o`fq`aX%w`o`fqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkUwjbw`vvX%uwjbw`vv%mdkai`w%/%Ew`qpwkv%~Uwjhlv`x%k`r%uwjhlv`%/*cpkfqljk%qm`k-jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,%~**%QJAJ?%Uwjhlv`v*D.%fm`fn%q|u`jc%jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vvw`qpwk%Zqm`k-jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,>x*//%/%Rwduu`w%qj%diijr%Zw`vjis`%qj%g`%w`uidf`a%/*cpkfqljk%uwjhlv`W`vjis`-sdi,%~w`qpwk%Zw`vjis`-sdi,>x*//%/%Rwduu`w%qj%diijr%Zw`o`fq%qj%g`%w`uidf`a%/*cpkfqljk%uwjhlv`W`o`fq-`ww,%~w`qpwk%Zw`vjis`-w`o`fq`a-`ww,,>x*//%/%Rwduu`w%qj%diijr%Zuwjbw`vv%qj%g`%w`uidf`a%/*cpkfqljk%uwjhlv`Uwjbw`vv-puadq`,%~w`qpwk%Zuwjbw`vv-puadq`,>xx*//%/%A`q`whlk`v%lc%uwjhlv`JwSdip`%lv%d%uwjhlv`%jw%kjq+%%Pv`v%qm`%c`dqpw`%/%q`vq%cwjh%mqqu?**rlnl+fjhhjkov+jwb*rlnl*Uwjhlv`v*D%qj%a`q`whlk`%lc%/%uwjhlv`JwSdip`%lv%d%uwjhlv`+%/%/%Eudwdh%~/x%uwjhlv`JwSdip`%dk|qmlkb%/%Ew`qpwkv%~gjji`dkx%qwp`%lc%uwjhlv`JwSdip`%lv%d%~Eilkn%Uwjhlv`x%/*cpkfqljk%lvUwjhlv`-uwjhlv`JwSdip`,%~w`qpwk%uwjhlv`JwSdip`%##%q|u`jc%uwjhlv`JwSdip`+qm`k%888%"cpkfqljk">x*//%/%Lklqldq`v%d%fjhu`qlqls`%wdf`)%w`qpwklkb%d%uwjhlv`%qmdq%rlii%w`vjis`%rm`k%/%mjrHdk|%jc%qm`%vpuuil`a%uwjhlv`vJwSdip`v%mds`%w`vjis`a)%jw%rlii%w`o`fq%rm`k%/%lq%g`fjh`v%lhujvvlgi`%cjw%mjrHdk|%qj%w`vjis`)%cjw%`}dhui`)%rm`k%/%-uwjhlv`vJwSdip`v+i`kbqm%(%mjrHdk|,%.%4%lkupq%uwjhlv`v%w`o`fq+%/%/%Eudwdh%~Dwwd|x%uwjhlv`vJwSdip`v%dwwd|%jc%dk|qmlkb)%hd|%fjkqdlk%d%hl}%/%%%%%%jc%uwjhlv`v%dka%sdip`v%/%Eudwdh%mjrHdk|%~kphg`wx%kphg`w%jc%uwjhlv`vJwSdip`v%qj%w`vjis`%/%Eudwdh%~cpkfqljk:x%^jkCpiclii`aX%w`vjipqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkW`o`fq`aX%w`o`fqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkUwjbw`vvX%uwjbw`vv%mdkai`w%/%Ew`qpwkv%~Uwjhlv`x%uwjhlv`%qmdq%rlii%w`vjis`%qj%dk%dwwd|%jc%mjrHdk|%sdip`v%qmdq%/%w`vjis`a%clwvq)%jw%rlii%w`o`fq%rlqm%dk%dwwd|%jc%-uwjhlv`vJwSdip`v+i`kbqm%(%mjrHdk|,%.%4%/%w`o`fqljk%w`dvjkv+%/*cpkfqljk%vjh`-uwjhlv`vJwSdip`v)%mjrHdk|)%jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,%~fm`fnFdiigdfnv-7)%dwbph`kqv,>w`qpwk%rm`k-uwjhlv`vJwSdip`v)%cpkfqljk-uwjhlv`vJwSdip`v,%~sdw%qjW`vjis`)%qjW`o`fq)%sdip`v)%w`dvjkv)%a`c`ww`a)%cpicliiJk`)%w`o`fqJk`)%uwjbw`vv)%i`k)%l>i`k%8%uwjhlv`vJwSdip`v+i`kbqm%;;;%5>qjW`vjis`%8%Hdqm+hd}-5)%Hdqm+hlk-mjrHdk|)%i`k,,>sdip`v%8%^X>qjW`o`fq%8%-i`k%(%qjW`vjis`,%.%4>w`dvjkv%8%^X>a`c`ww`a%8%a`c`w-,>**%Kj%lq`hv%lk%qm`%lkupq)%w`vjis`%lhh`aldq`i|lc%-$qjW`vjis`,%~a`c`ww`a+w`vjis`-sdip`v,>x%`iv`%~uwjbw`vv%8%a`c`ww`a+uwjbw`vv>w`o`fqJk`%8%cpkfqljk-w`dvjk,%~w`dvjkv+upvm-w`dvjk,>lc-$((qjW`o`fq,%~cpicliiJk`%8%w`o`fqJk`%8%kjju>a`c`ww`a+w`o`fq-w`dvjkv,>xx>cpicliiJk`%8%cpkfqljk-sdi,%~**%Qmlv%jwa`wv%qm`%sdip`v%gdv`a%jk%uwjhlv`%w`vjipqljk%jwa`w**%Dkjqm`w%vqwdq`b|%rjpia%g`%qj%pv`%qm`%jwlblkdi%ujvlqljk%jc**%qm`%fjww`vujkalkb%uwjhlv`+sdip`v+upvm-sdi,>lc%-$((qjW`vjis`,%~cpicliiJk`%8%w`o`fqJk`%8%kjju>a`c`ww`a+w`vjis`-sdip`v,>xx>cjw-l%8%5>%l%9%i`k>%..l,%~lc-l%lk%uwjhlv`vJwSdip`v,%~rm`k-uwjhlv`vJwSdip`v^lX)%cpiclii`w)%w`o`fq`w)%uwjbw`vv,>xxxw`qpwk%a`c`ww`a+qm`k-jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,>cpkfqljk%w`o`fq`w-w`dvjk,%~w`o`fqJk`-w`dvjk,>xcpkfqljk%cpiclii`w-sdi,%~cpicliiJk`-sdi,>xx,>x*//%/%Lklqldq`v%d%fjhu`qlqls`%wdf`)%w`qpwklkb%d%uwjhlv`%qmdq%rlii%w`vjis`%rm`k%/%dk|%jk`%jc%qm`%vpuuil`a%uwjhlv`vJwSdip`v%mdv%w`vjis`a%jw%rlii%w`o`fq%rm`k%/%/dii/%uwjhlv`vJwSdip`v%mds`%w`o`fq`a+%/%/%Eudwdh%~Dwwd|yUwjhlv`x%uwjhlv`vJwSdip`v%dwwd|%jc%dk|qmlkb)%hd|%fjkqdlk%d%hl}%/%%%%%%jc%~Eilkn%Uwjhlv`xv%dka%sdip`v%/%Eudwdh%~cpkfqljk:x%^jkCpiclii`aX%w`vjipqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkW`o`fq`aX%w`o`fqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkUwjbw`vvX%uwjbw`vv%mdkai`w%/%Ew`qpwkv%~Uwjhlv`x%uwjhlv`%qmdq%rlii%w`vjis`%qj%qm`%sdip`%qmdq%w`vjis`a%clwvq)%jw%/%rlii%w`o`fq%rlqm%dk%dwwd|%jc%dii%w`o`fq`a%lkupqv+%/*cpkfqljk%dk|-uwjhlv`vJwSdip`v)%jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,%~cpkfqljk%pkrwduVlkbi`W`vpiq-sdi,%~w`qpwk%jkCpiclii`a%:%jkCpiclii`a-sdi^5X,%?%sdi^5X>xw`qpwk%vjh`-uwjhlv`vJwSdip`v)%4)%pkrwduVlkbi`W`vpiq)%jkW`o`fq`a)%jkUwjbw`vv,>x*//%/%W`qpwk%d%uwjhlv`%qmdq%rlii%w`vjis`%jki|%jkf`%dii%qm`%vpuuil`a%uwjhlv`vJwSdip`v%/%mds`%w`vjis`a+%Qm`%w`vjipqljk%sdip`%jc%qm`%w`qpwk`a%uwjhlv`%rlii%g`%dk%dwwd|%/%fjkqdlklkb%qm`%w`vjipqljk%sdip`v%jc%`dfm%jc%qm`%uwjhlv`vJwSdip`v+%/%Eh`hg`wJc%rm`k%/%/%Eudwdh%~Dwwd|yUwjhlv`x%uwjhlv`vJwSdip`v%dwwd|%jc%dk|qmlkb)%hd|%fjkqdlk%d%hl}%/%%%%%%jc%~Eilkn%Uwjhlv`xv%dka%sdip`v%/%Eudwdh%~cpkfqljk:x%^jkCpiclii`aX%w`vjipqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkW`o`fq`aX%w`o`fqljk%mdkai`w%/%Eudwdh%~cpkfqljk:x%^jkUwjbw`vvX%uwjbw`vv%mdkai`w%/%Ew`qpwkv%~Uwjhlv`x%/*cpkfqljk%dii-uwjhlv`vJwSdip`v)%jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,%~fm`fnFdiigdfnv-4)%dwbph`kqv,>w`qpwk%hdu-uwjhlv`vJwSdip`v)%la`kqlq|,+qm`k-jkCpiclii`a)%jkW`o`fq`a)%jkUwjbw`vv,>x*//%/%Ojlkv%hpiqlui`%uwjhlv`v%lkqj%d%vlkbi`%w`qpwk`a%uwjhlv`+%/%Ew`qpwkv%~Uwjhlv`x%d%uwjhlv`%qmdq%rlii%cpiclii%rm`k%/dii/%qm`%lkupq%uwjhlv`v%/%mds`%cpiclii`a)%jw%rlii%w`o`fq%rm`k%/dk|%jk`/%jc%qm`%lkupq%uwjhlv`v%w`o`fqv+%/*cpkfqljk%ojlk-*/%+++uwjhlv`v%/*,%~w`qpwk%hdu-dwbph`kqv)%la`kqlq|,>x*//%/%Qwdalqljkdi%hdu%cpkfqljk)%vlhlidw%qj%eDwwd|+uwjqjq|u`+hdu-,e)%gpq%diijrv%/%lkupq%qj%fjkqdlk%~Eilkn%Uwjhlv`xv%dka*jw%sdip`v)%dka%hduCpkf%hd|%w`qpwk%/%`lqm`w%d%sdip`%jw%d%~Eilkn%Uwjhlv`x%/%/%Eudwdh%~Dwwd|yUwjhlv`x%uwjhlv`%dwwd|%jc%dk|qmlkb)%hd|%fjkqdlk%d%hl}%/%%%%%%jc%~Eilkn%Uwjhlv`xv%dka%sdip`v%/%Eudwdh%~cpkfqljkx%hduCpkf%hduulkb%cpkfqljk%hduCpkf-sdip`,%rmlfm%hd|%w`qpwk%/%%%%%%`lqm`w%d%~Eilkn%Uwjhlv`x%jw%sdip`%/%Ew`qpwkv%~Uwjhlv`x%d%~Eilkn%Uwjhlv`x%qmdq%rlii%w`vjis`%qj%dk%dwwd|%fjkqdlklkb%/%%%%%%qm`%hduu`a%jpqupq%sdip`v+%/*cpkfqljk%hdu-uwjhlv`)%hduCpkf,%~w`qpwk%rm`k-uwjhlv`)%cpkfqljk-dwwd|,%~sdw%w`vpiqv)%i`k)%qjW`vjis`)%w`vjis`)%l)%a>**%Vlkf`%r`%nkjr%qm`%w`vpiqlkb%i`kbqm)%r`%fdk%uw`diijfdq`%qm`%w`vpiqv**%dwwd|%qj%dsjla%dwwd|%`}udkvljkv+qjW`vjis`%8%i`k%8%dwwd|+i`kbqm%;;;%5>w`vpiqv%8%^X>a%8%a`c`w-,>lc-$qjW`vjis`,%~a+w`vjis`-w`vpiqv,>x%`iv`%~w`vjis`%8%cpkfqljk%w`vjis`Jk`-lq`h)%l,%~rm`k-lq`h)%hduCpkf,+qm`k-cpkfqljk-hduu`a,%~w`vpiqv^lX%8%hduu`a>lc-$((qjW`vjis`,%~a+w`vjis`-w`vpiqv,>xx)%a+w`o`fq,>x>**%Vlkf`%hduCpkf%hd|%g`%dv|kf)%b`q%dii%lksjfdqljkv%jc%lq%lkqj%cilbmqcjw-l%8%5>%l%9%i`k>%l..,%~lc-l%lk%dwwd|,%~w`vjis`-dwwd|^lX)%l,>x%`iv`%~((qjW`vjis`>xxxw`qpwk%a+uwjhlv`>x,>x*//%/%Qwdalqljkdi%w`apf`%cpkfqljk)%vlhlidw%qj%eDwwd|+uwjqjq|u`+w`apf`-,e)%gpq%/%lkupq%hd|%fjkqdlk%uwjhlv`v%dka*jw%sdip`v)%dka%w`apf`Cpkf%/%hd|%w`qpwk%`lqm`w%d%sdip`%jw%d%uwjhlv`)%/dka/%lklqldiSdip`%hd|%/%g`%d%uwjhlv`%cjw%qm`%vqdwqlkb%sdip`+%/%/%Eudwdh%~Dwwd|yUwjhlv`x%uwjhlv`%dwwd|%jw%uwjhlv`%cjw%dk%dwwd|%jc%dk|qmlkb)%/%%%%%%hd|%fjkqdlk%d%hl}%jc%uwjhlv`v%dka%sdip`v+%/%Eudwdh%~cpkfqljkx%w`apf`Cpkf%w`apf`%cpkfqljk%w`apf`-fpww`kqSdip`)%k`}qSdip`)%lka`})%qjqdi,)%/%%%%%%rm`w`%qjqdi%lv%qm`%qjqdi%kphg`w%jc%lq`hv%g`lkb%w`apf`a)%dka%rlii%g`%qm`%vdh`%/%%%%%%lk%`dfm%fdii%qj%w`apf`Cpkf+%/%Ew`qpwkv%~Uwjhlv`x%qmdq%rlii%w`vjis`%qj%qm`%clkdi%w`apf`a%sdip`%/*cpkfqljk%w`apf`-uwjhlv`)%w`apf`Cpkf%*/)%lklqldiSdip`%/*,%~sdw%dwbv%8%vilf`+fdii-dwbph`kqv)%4,>w`qpwk%rm`k-uwjhlv`)%cpkfqljk-dwwd|,%~sdw%qjqdi>qjqdi%8%dwwd|+i`kbqm>**%Rwdu%qm`%vpuuil`a%w`apf`Cpkf%rlqm%jk`%qmdq%mdkai`v%uwjhlv`v%dka%qm`k**%a`i`bdq`v%qj%qm`%vpuuil`a+dwbv^5X%8%cpkfqljk%-fpww`kq)%sdi)%l,%~w`qpwk%rm`k-fpww`kq)%cpkfqljk%-f,%~w`qpwk%rm`k-sdi)%cpkfqljk%-sdip`,%~w`qpwk%w`apf`Cpkf-f)%sdip`)%l)%qjqdi,>x,>x,>x>w`qpwk%w`apf`Dwwd|+duui|-dwwd|)%dwbv,>x,>x*//%/%@kvpw`%qmdq%w`vjipqljk%jc%uwjhlv`JwSdip`%rlii%qwlbb`w%w`vjis`w%rlqm%qm`%/%sdip`%jw%w`dvjk%jc%uwjhlv`JwSdip`)%jw%lkvq`da%rlqm%w`vjis`Sdip`%lc%lq%lv%uwjsla`a+%/%/%Eudwdh%uwjhlv`JwSdip`%/%Eudwdh%~Jgo`fqx%w`vjis`w%/%Eudwdh%~cpkfqljkx%w`vjis`w+w`vjis`%/%Eudwdh%~cpkfqljkx%w`vjis`w+w`o`fq%/%Eudwdh%~/x%^w`vjis`Sdip`X%/%Ew`qpwkv%~Uwjhlv`x%/*cpkfqljk%fmdlk-uwjhlv`JwSdip`)%w`vjis`w)%w`vjis`Sdip`,%~sdw%pv`W`vjis`Sdip`%8%dwbph`kqv+i`kbqm%;%7>w`qpwk%rm`k-uwjhlv`JwSdip`)cpkfqljk-sdi,%~sdi%8%pv`W`vjis`Sdip`%:%w`vjis`Sdip`%?%sdi>w`vjis`w+w`vjis`-sdi,>w`qpwk%sdi>x)cpkfqljk-w`dvjk,%~w`vjis`w+w`o`fq-w`dvjk,>w`qpwk%w`o`fq`a-w`dvjk,>x)w`vjis`w+uwjbw`vv,>x****%Pqlilq|%cpkfqljkv***//%/%Duui|%dii%cpkfqljkv%lk%tp`p`%qj%sdip`%/%Eudwdh%~Dwwd|x%tp`p`%dwwd|%jc%cpkfqljkv%qj%`}`fpq`%/%Eudwdh%~/x%sdip`%dwbph`kq%udvv`a%qj%`dfm%cpkfqljk%/*cpkfqljk%uwjf`vvTp`p`-tp`p`)%sdip`,%~sdw%mdkai`w)%l%8%5>rmli`%-mdkai`w%8%tp`p`^l..X,%~mdkai`w-sdip`,>xx*//%/%M`iu`w%qmdq%fm`fnv%dwwd|JcFdiigdfnv%qj%`kvpw`%qmdq%`dfm%`i`h`kq%lv%`lqm`w%/%d%cpkfqljk)%jw%kpii%jw%pka`clk`a+%/%Euwlsdq`%/%Eudwdh%~kphg`wx%vqdwq%lka`}%dq%rmlfm%qj%vqdwq%fm`fnlkb%lq`hv%lk%dwwd|JcFdiigdfnv%/%Eudwdh%~Dwwd|x%dwwd|JcFdiigdfnv%dwwd|%qj%fm`fn%/%Eqmwjrv%~@wwjwx%lc%dk|%`i`h`kq%jc%dwwd|JcFdiigdfnv%lv%vjh`qmlkb%jqm`w%qmdk%/%d%cpkfqljkv)%kpii)%jw%pka`clk`a+%/*cpkfqljk%fm`fnFdiigdfnv-vqdwq)%dwwd|JcFdiigdfnv,%~**%QJAJ?%Uwjhlv`v*D.%puadq`%q|u`%fm`fnlkb%dka%ajfvsdw%dwb)%l%8%dwwd|JcFdiigdfnv+i`kbqm>rmli`-l%;%vqdwq,%~dwb%8%dwwd|JcFdiigdfnv^((lX>lc%-dwb%$8%kpii%##%q|u`jc%dwb%$8%"cpkfqljk",%~qmwjr%k`r%@wwjw-"dwb%".l."%hpvq%g`%d%cpkfqljk",>xxx*//%/%Kj(Ju%cpkfqljk%pv`a%lk%h`qmja%w`uidf`h`kq%/%Euwlsdq`%/*cpkfqljk%kjju-,%~xvilf`%8%^X+vilf`>**%@V0%w`apf`%lhui`h`kqdqljk%lc%kdqls`%kjq%dsdlidgi`**%V``?%mqqu?**`v0+blqmpg+fjh*&}40+1+1+74%dv%qm`w`%dw`%hdk|**%vu`flclfv%dka%`ab`%fdv`v+w`apf`Dwwd|%8%^X+w`apf`%yycpkfqljk-w`apf`Cpkf%*/)%lklqldiSdip`%/*,%~*/ovmlkq%hd}fjhui`}lq|?%2/***%@V0%alfqdq`v%qmdq%w`apf`+i`kbqm%888%4**%Qmlv%lhui`h`kqdqljk%a`sldq`v%cwjh%@V0%vu`f%lk%qm`%cjiijrlkb%rd|v?**%4+%Lq%aj`v%kjq%fm`fn%lc%w`apf`Cpkf%lv%d%Fdiidgi`sdw%dww)%dwbv)%w`apf`a)%i`k)%l>l%8%5>**%Qmlv%b`k`wdq`v%d%ovmlkq%rdwklkb)%a`vulq`%g`lkb%sdila**%'Hlvvlkb%"k`r"%uw`cl}%rm`k%lksjnlkb%d%fjkvqwpfqjw+'**%V``%mqquv?**blqmpg+fjh*ovmlkq*ovmlkq*lvvp`v*6<7dww%8%Jgo`fq-qmlv,>i`k%8%dww+i`kbqm%;;;%5>dwbv%8%dwbph`kqv>**%Lc%kj%lklqldiSdip`)%pv`%clwvq%lq`h%jc%dwwd|%-r`%nkjr%i`kbqm%$88%5%m`w`,**%dka%daopvq%l%qj%vqdwq%dq%v`fjka%lq`hlc-dwbv+i`kbqm%98%4,%~**%Vnlu%qj%qm`%clwvq%w`di%`i`h`kq%lk%qm`%dwwd|cjw->>,%~lc-l%lk%dww,%~w`apf`a%8%dww^l..X>gw`dn>x**%Lc%r`%w`dfm`a%qm`%`ka%jc%qm`%dwwd|%rlqmjpq%clkalkb%dk|%w`di**%`i`h`kqv)%lq"v%d%Q|u`@wwjwlc-..l%;8%i`k,%~qmwjr%k`r%Q|u`@wwjw-,>xxx%`iv`%~**%Lc%lklqldiSdip`%uwjsla`a)%pv`%lqw`apf`a%8%dwbv^4X>x**%Aj%qm`%dfqpdi%w`apf`cjw->l%9%i`k>%..l,%~**%Vnlu%mji`vlc-l%lk%dww,%~w`apf`a%8%w`apf`Cpkf-w`apf`a)%dww^lX)%l)%dww,>xxw`qpwk%w`apf`a>x>cpkfqljk%la`kqlq|-},%~w`qpwk%}>xw`qpwk%rm`k>x,>x,-q|u`jc%a`clk`%88%"cpkfqljk"%##%a`clk`+dha:%a`clk`?%cpkfqljk%-cdfqjw|,%~%q|u`jc%`}ujwqv%888%"jgo`fq":%-hjapi`+`}ujwqv%8%cdfqjw|-,,?%-qmlv+rm`k%%%%%%8%cdfqjw|-,,>x**%Gjli`wuidq`%cjw%DHA)%Kja`)%dka%gwjrv`w%bijgdi,>a`clk`-"Fjw`*cjwhdq@wwjw")^%%%%%%%%"+*a`clk`a"%%%%X)%cpkfqljk-%%%%%%%%a`clk`a,%~%%%%"pv`%vqwlfq">%%%%*//%%%%%/%Cjwhdqv%dk%`wwjw%jgo`fq%lkqj%d%Vqwlkb+%%Lc%dsdlidgi`)%pv`v%kdh`)%h`vvdb`)%dka%vqdfn%%%%%/%uwju`wql`v)%jqm`wrlv`)%cdiiv%gdfn%jk%qjVqwlkb-,+%%%%%/%%%%%/%E`}ujwqv%cjwhdq@wwjw%%%%%/%%%%%/%Eudwdh%~/x%jgo`fq%Qm`%lq`h%qj%clka%lk%qm`%dwwd|+%%%%%/%Ew`qpwkv%~Vqwlkbx%D%vqwlkb%fjkqdlklkb%qm`%cjwhdqq`a%`wwjw+%%%%%/*%%%%cpkfqljk%cjwhdq@wwjw-jgo`fq,%~%%%%%%%%sdw%w`vpiq>%%%%%%%%sdw%kdh`%8%jgo`fq+kdh`>%%%%%%%%sdw%h`vvdb`%8%jgo`fq+h`vvdb`>%%%%%%%%lc%-a`clk`a-kdh`,%##%a`clk`a-h`vvdb`,,%~%%%%%%%%%%%%w`vpiq%8%kdh`%.%"?%"%.%h`vvdb`>%%%%%%%%x%`iv`%~%%%%%%%%%%%%w`vpiq%8%jgo`fq+qjVqwlkb-,>%%%%%%%%x%%%%%%%%sdw%vqdfn%8%jgo`fq+vqdfn>%%%%%%%%lc%-a`clk`a-vqdfn,,%~%%%%%%%%%%%%w`vpiq%.8%"Yk"%.%vqdfn>%%%%%%%%x%%%%%%%%w`qpwk%w`vpiq>%%%%x%%%%w`qpwk%cjwhdq@wwjw>x,>a`clk`-"Rjwn`wv*fw`dq`QdvnUwjf`vvjwRjwn`w")^%%%%%%%%"++*QmlwaUdwq|*rm`k")%%%%%%%%"++*Fjw`*a`cdpiqSdip`")%%%%%%%%"++*Fjw`*a`clk`a")%%%%%%%%"++*Fjw`*cjwhdq@wwjw"%%%%X)%cpkfqljk-%%%%%%%%rm`k)%%%%%%%%a`cdpiqSdip`)%%%%%%%%a`clk`a)%%%%%%%%cjwhdq@wwjw,%~%%%%"pv`%vqwlfq">%%%%**%fw`dq`]]]B`jh`qw|%cpkfqljkv%hd|%w`qpwk%B`jh`qw|%jw%d%Uwjhlv`%qmdq%w`vjis`v%qj%B`jh`qw|%%%%**%lc%qm`%cpkfqljk%w`tplw`v%dff`vv%qj%Duuwj}lhdq`Q`wwdlkM`lbmqv+%%%%**%Cjw%cpii|%v|kfmwjkjpv%cpkfqljkv)%opvq%rwduulkb%qm`%cpkfqljk%fdii%lk%d%erm`ke%Uwjhlv`%aj`vk"q%%%%**%mdkai`%`wwjwv%fjww`fqi|)%m`kf`%qw|(fdqfm%%%%cpkfqljk%fdiiDkaRwdu-rjwn`wCpkfqljk)%udwdh`q`wv)%qwdkvc`wdgi`Jgo`fqv,%~%%%%%%%%sdw%w`vpiqJwUwjhlv`>%%%%%%%%qw|%~%%%%%%%%%%%%w`vpiqJwUwjhlv`%8%rjwn`wCpkfqljk-udwdh`q`wv)%qwdkvc`wdgi`Jgo`fqv,>%%%%%%%%%%%%w`qpwk%w`vpiqJwUwjhlv`>%**%`wwjwv%mdkai`a%g|%Uwjhlv`%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%w`qpwk%rm`k+w`o`fq-`,>%%%%%%%%x%%%%x%%%%*//%%%%%/%Fw`dq`v%dk%daduq`w%cpkfqljk%qj%diijr%d%fdifpidqljk%cpkfqljk%qj%ju`wdq`%dv%d%R`g%Rjwn`w)%%%%%/%udlw`a%rlqm%QdvnUwjf`vvjw)%qj%w`f`ls`%qdvnv%dka%w`qpwk%w`vpiqv+%%%%%/%%%%%/%E`}ujwqv%fw`dq`QdvnUwjf`vvjwRjwn`w%%%%%/%%%%%/%Eudwdh%~fw`dq`QdvnUwjf`vvjwRjwn`w{Rjwn`wCpkfqljkx%rjwn`wCpkfqljk%Qm`%fdifpidqljk%cpkfqljk)%%%%%/%%%%%%%%rmlfm%qdn`v%udwdh`q`wv%dka%w`qpwkv%d%w`vpiq+%%%%%/%Ew`qpwkv%~fw`dq`QdvnUwjf`vvjwRjwn`w{QdvnUwjf`vvjwRjwn`wCpkfqljkx%D%cpkfqljk%qmdq%daduqv%qm`%%%%%/%%%%%%%%%%fdifpidqljk%cpkfqljk%qj%rjwn%dv%d%R`g%Rjwn`w%jkh`vvdb`%ilvq`k`w%rlqm%QdvnUwjf`vvjw+%%%%%/%%%%%/%%%%%/%E`}dhui`%%%%%/%cpkfqljk%ajFdifpidqljk-udwdh`q`wv)%qwdkvc`wdgi`Jgo`fqv,%~%%%%%/%%%**%fdifpidq`%vjh`%w`vpiq%pvlkb%qm`%lkupqv%lk%udwdh`q`wv%%%%%/%%%w`qpwk%w`vpiq>%%%%%/%x%%%%%/%%%%%/%w`qpwk%F`vlph+fw`dq`QdvnUwjf`vvjwRjwn`w-ajFdifpidqljk,>%%%%%/%**%qm`%w`vpiqlkb%cpkfqljk%lv%fjhudqlgi`%rlqm%QdvnUwjf`vvjw%%%%%/%%%%%/%Ev``%QdvnUwjf`vvjw%%%%%/%Ev``%~Eilkn%mqqu?**rrr+r6+jwb*QW*rjwn`wv*yR`g%Rjwn`wvx%%%%%/%Ev``%~Eilkn%mqqu?**rrr+r6+jwb*QW*mqhi0*fjhhjk(ajh(lkq`wcdf`v+mqhi&qwdkvc`wdgi`(jgo`fqvyQwdkvc`wdgi`%jgo`fqvx%%%%%/*%%%%cpkfqljk%fw`dq`QdvnUwjf`vvjwRjwn`w-rjwn`wCpkfqljk,%~%%%%%%%%sdw%ujvqH`vvdb`>%%%%%%%%w`qpwk%cpkfqljk-`s`kq,%~%%%%%%%%%%%%*/bijgdi%v`ic/*%%%%%%%%%%%%sdw%adqd%8%`s`kq+adqd>%%%%%%%%%%%%sdw%qwdkvc`wdgi`Jgo`fqv%8%^X>%%%%%%%%%%%%sdw%w`vujkv`H`vvdb`%8%~%%%%%%%%%%%%%%%%la%?%adqd+la)%%%%%%%%%%%%%%%%w`vpiq%?%pka`clk`a)%%%%%%%%%%%%%%%%`wwjw%?%pka`clk`a%%%%%%%%%%%%x>%%%%%%%%%%%%w`qpwk%rm`k-fdiiDkaRwdu-rjwn`wCpkfqljk)%adqd+udwdh`q`wv)%qwdkvc`wdgi`Jgo`fqv,,%%%%%%%%%%%%%%%%+qm`k-cpkfqljk-w`vpiq,%~%%%%%%%%%%%%%%%%%%%%w`vujkv`H`vvdb`+w`vpiq%8%w`vpiq>%%%%%%%%%%%%%%%%x,%%%%%%%%%%%%%%%%+jqm`wrlv`-cpkfqljk-`,%~%%%%%%%%%%%%%%%%%%%%lc%-`%lkvqdkf`jc%@wwjw,%~%%%%%%%%%%%%%%%%%%%%%%%%**%@wwjwv%fdk"q%g`%ujvq`a%lk%d%h`vvdb`)%fju|%qm`%uwju`wql`v%%%%%%%%%%%%%%%%%%%%%%%%w`vujkv`H`vvdb`+`wwjw%8%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%kdh`%?%`+kdh`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%h`vvdb`%?%`+h`vvdb`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%vqdfn%?%`+vqdfn%%%%%%%%%%%%%%%%%%%%%%%%x>%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%w`vujkv`H`vvdb`+`wwjw%8%`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,%%%%%%%%%%%%%%%%+dird|v-cpkfqljk-,%~%%%%%%%%%%%%%%%%%%%%lc%-$a`clk`a-ujvqH`vvdb`,,%~%%%%%%%%%%%%%%%%%%%%%%%%ujvqH`vvdb`%8%a`cdpiqSdip`-v`ic+r`gnlqUjvqH`vvdb`)%v`ic+ujvqH`vvdb`,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%lc%-$adqd+fdkQwdkvc`wDwwd|Gpcc`w,%~%%%%%%%%%%%%%%%%%%%%%%%%qwdkvc`wdgi`Jgo`fqv+i`kbqm%8%5>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%qw|%~%%%%%%%%%%%%%%%%%%%%%%%%ujvqH`vvdb`-w`vujkv`H`vvdb`)%qwdkvc`wdgi`Jgo`fqv,>%%%%%%%%%%%%%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%%%%%%%%%%%%%**%vjh`qmlkb%r`kq%rwjkb%qw|lkb%qj%ujvq%qm`%h`vvdb`)%ujvq%d%vlhui`w%%%%%%%%%%%%%%%%%%%%%%%%**%`wwjw%qmdq%r`%fdk%g`%vpw`%rlii%g`%fijk`dgi`%%%%%%%%%%%%%%%%%%%%%%%%w`vujkv`H`vvdb`+w`vpiq%8%pka`clk`a>%%%%%%%%%%%%%%%%%%%%%%%%w`vujkv`H`vvdb`+`wwjw%8%"ujvqH`vvdb`%cdli`a%rlqm%`wwjw?%"%.%cjwhdq@wwjw-`,%.%"Yk%%rlqm%w`vujkv`H`vvdb`?%"%.%OVJK+vqwlkblc|-w`vujkv`H`vvdb`,>%%%%%%%%%%%%%%%%%%%%%%%%ujvqH`vvdb`-w`vujkv`H`vvdb`,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,>%%%%%%%%x>%%%%x%%%%*//%%%%%/%D%cpkfqljk%qmdq%u`wcjwhv%d%fdifpidqljk%lk%d%R`g%Rjwn`w+%%%%%/%Efdiigdfn%fw`dq`QdvnUwjf`vvjwRjwn`w{Rjwn`wCpkfqljk%%%%%/%%%%%/%Eudwdh%~Jgo`fqx%udwdh`q`wv%Udwdh`q`wv%qj%qm`%fdifpidqljk+%%%%%/%Eudwdh%~Dwwd|x%qwdkvc`wdgi`Jgo`fqv%Dk%dwwd|%qmdq%vmjpia%g`%clii`a%rlqm%w`c`w`kf`v%qj%jgo`fqv%lkvla`%%%%%/%%%%%%%%qm`%w`vpiq%qmdq%vmjpia%g`%qwdkvc`ww`a%gdfn%qj%qm`%hdlk%ajfph`kq%lkvq`da%jc%fjul`a+%%%%%/%Ew`qpwkv%~Jgo`fqx%Qm`%w`vpiq%jc%qm`%fdifpidqljk+%%%%%/%%%%%/%E`}dhui`%%%%%/%cpkfqljk%fdifpidq`-udwdh`q`wv)%qwdkvc`wdgi`Jgo`fqv,%~%%%%%/%%%**%u`wcjwh%rmdq`s`w%fdifpidqljk%lv%k`f`vvdw|+%%%%%/%%%sdw%q|u`aDwwd|%8%k`r%Cijdq67Dwwd|-5,>%%%%%/%%%%%/%%%**%q|u`a%dwwd|v%dw`%qwdkvc`wdgi`%%%%%/%%%qwdkvc`wdgi`Jgo`fqv+upvm-q|u`aDwwd|,%%%%%/%%%%%/%%%w`qpwk%~%%%%%/%%%%%%q|u`aDwwd|%?%q|u`aDwwd|%%%%%/%%%x>%%%%%/%x%%%%%/*%%%%*//%%%%%/%D%R`g%Rjwn`w%h`vvdb`%`s`kq%mdkai`w%cpkfqljk%qmdq%mdkai`v%qm`%lkq`wdfqljk%rlqm%QdvnUwjf`vvjw)%%%%%/%vu`flclfdii|)%qdvn%LA%hdkdb`h`kq%dka%ujvqlkb%d%w`vujkv`%h`vvdb`%fjkqdlklkb%qm`%w`vpiq+%%%%%/%Efdiigdfn%fw`dq`QdvnUwjf`vvjwRjwn`w{QdvnUwjf`vvjwRjwn`wCpkfqljk%%%%%/%%%%%/%Eudwdh%~Jgo`fqx%`s`kq%Qm`%jkh`vvdb`%`s`kq%jgo`fq+%%%%%/*%%%%w`qpwk%fw`dq`QdvnUwjf`vvjwRjwn`w>x,>a`clk`-"Rjwn`wv*a`fja`Awdfj")^%%%%%%%%"++*Fjw`*Fjhujk`kqAdqdq|u`")%%%%%%%%"++*Fjw`*a`clk`a")%%%%%%%%"++*Fjw`*Lka`}Adqdq|u`")%%%%%%%%"++*Fjw`*Wpkqlh`@wwjw")%%%%%%%%"+*fw`dq`QdvnUwjf`vvjwRjwn`w"%%%%X)%cpkfqljk-%%%%%%%%Fjhujk`kqAdqdq|u`)%%%%%%%%a`clk`a)%%%%%%%%Lka`}Adqdq|u`)%%%%%%%%Wpkqlh`@wwjw)%%%%%%%%fw`dq`QdvnUwjf`vvjwRjwn`w,%~%%%%"pv`%vqwlfq">%%%%sdw%awdfj>%%%%cpkfqljk%a`fja`Lka`}Dwwd|-awdfjB`jh`qw|)%awdfjA`fja`w,%~%%%%%%%%sdw%kphUjlkqv%8%awdfjB`jh`qw|+kphZujlkqv-,>%%%%%%%%sdw%kphCdf`v%8%awdfjB`jh`qw|+kphZcdf`v-,>%%%%%%%%sdw%cdf`Lkalf`v%8%k`r%awdfj+AwdfjLkq67Dwwd|-,>%%%%%%%%sdw%kphLkalf`v%8%kphCdf`v%/%6>%%%%%%%%sdw%lka`}Dwwd|%8%Lka`}Adqdq|u`+fw`dq`Q|u`aDwwd|-kphUjlkqv)%kphLkalf`v,>%%%%%%%%sdw%jccv`q%8%5>%%%%%%%%cjw%-sdw%l%8%5>%l%9%kphCdf`v>%..l,%~%%%%%%%%%%%%awdfjA`fja`w+B`qCdf`CwjhH`vm-awdfjB`jh`qw|)%l)%cdf`Lkalf`v,>%%%%%%%%%%%%lka`}Dwwd|^jccv`q%.%5X%8%cdf`Lkalf`v+B`qSdip`-5,>%%%%%%%%%%%%lka`}Dwwd|^jccv`q%.%4X%8%cdf`Lkalf`v+B`qSdip`-4,>%%%%%%%%%%%%lka`}Dwwd|^jccv`q%.%7X%8%cdf`Lkalf`v+B`qSdip`-7,>%%%%%%%%%%%%jccv`q%.8%6>%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-cdf`Lkalf`v,>%%%%%%%%w`qpwk%~%%%%%%%%%%%%q|u`aDwwd|%?%lka`}Dwwd|)%%%%%%%%%%%%kphg`wJcLkalf`v%?%kphLkalf`v%%%%%%%%x>%%%%x%%%%cpkfqljk%a`fja`Tpdkql`aAwdfjQ|u`aDwwd|-awdfjB`jh`qw|)%awdfjA`fja`w)%awdfjDqqwlgpq`)%tpdkqldqljk)%s`wq`}Dwwd|I`kbqm,%~%%%%%%%%sdw%s`wq`}Dwwd|>%%%%%%%%sdw%dqqwlgpq`Adqd>%%%%%%%%lc%-tpdkqldqljk+tpdkqldqljkGlqv%98%=,%~%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjPLkq=Dwwd|-,>%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Plkq=Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`PLkq=CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%x%`iv`%~%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjPLkq43Dwwd|-,>%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Plkq43Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`PLkq43CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%x%%%%%%%%cjw%-sdw%l%8%5>%l%9%s`wq`}Dwwd|I`kbqm>%..l,%~%%%%%%%%%%%%s`wq`}Dwwd|^lX%8%dqqwlgpq`Adqd+B`qSdip`-l,>%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-dqqwlgpq`Adqd,>%%%%%%%%w`qpwk%s`wq`}Dwwd|>%%%%x%%%%cpkfqljk%a`fja`AwdfjQ|u`aDwwd|-awdfjB`jh`qw|)%awdfjA`fja`w)%awdfjDqqwlgpq`)%s`wq`}Dwwd|I`kbqm,%~%%%%%%%%sdw%s`wq`}Dwwd|>%%%%%%%%sdw%dqqwlgpq`Adqd>%%%%%%%%**%Vjh`%dqqwlgpq`%q|u`v%dw`%fdvq`a%ajrk%qj%67%glq%vlkf`%Awdfj%jki|%w`qpwkv%67%glq%sdip`v%%%%%%%%vrlqfm%-awdfjDqqwlgpq`+adqdZq|u`-,,%~%%%%%%%%%%%%fdv`%4?%fdv`%44?%**%AQZLKQ=%jw%AQZGJJI%%%%%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjLkq=Dwwd|-,>%%%%%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Lkq=Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`Lkq=CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%fdv`%7?%**%AQZPLKQ=%%%%%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjPLkq=Dwwd|-,>%%%%%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Plkq=Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`PLkq=CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%fdv`%6?%**%AQZLKQ43%%%%%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjLkq43Dwwd|-,>%%%%%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Lkq43Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`Lkq43CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%fdv`%1?%**%AQZPLKQ43%%%%%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjPLkq43Dwwd|-,>%%%%%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Plkq43Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`PLkq43CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%fdv`%0?%fdv`%2?%**%AQZLKQ67%jw%AQZLKQ31%%%%%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjLkq67Dwwd|-,>%%%%%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Lkq67Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`Lkq67CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%fdv`%3?%fdv`%=?%**%AQZPLKQ67%jw%AQZPLKQ31%%%%%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjPLkq67Dwwd|-,>%%%%%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Plkq67Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`PLkq67CjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%fdv`%<?%fdv`%45?%**%AQZCIJDQ67%jw%AQZCIJDQ31%%%%%%%%%%%%%%%%dqqwlgpq`Adqd%8%k`r%awdfj+AwdfjCijdq67Dwwd|-,>%%%%%%%%%%%%%%%%s`wq`}Dwwd|%8%k`r%Cijdq67Dwwd|-s`wq`}Dwwd|I`kbqm,>%%%%%%%%%%%%%%%%awdfjA`fja`w+B`qDqqwlgpq`CijdqCjwDiiUjlkqv-awdfjB`jh`qw|)%awdfjDqqwlgpq`)%dqqwlgpq`Adqd,>%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%x%%%%%%%%cjw%-sdw%l%8%5>%l%9%s`wq`}Dwwd|I`kbqm>%..l,%~%%%%%%%%%%%%s`wq`}Dwwd|^lX%8%dqqwlgpq`Adqd+B`qSdip`-l,>%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-dqqwlgpq`Adqd,>%%%%%%%%w`qpwk%s`wq`}Dwwd|>%%%%x%%%%cpkfqljk%a`fja`Dqqwlgpq`-awdfjB`jh`qw|)%awdfjA`fja`w)%awdfjDqqwlgpq`,%~%%%%%%%%sdw%kphUjlkqv%8%awdfjB`jh`qw|+kphZujlkqv-,>%%%%%%%%sdw%kphFjhujk`kqv%8%awdfjDqqwlgpq`+kphZfjhujk`kqv-,>%%%%%%%%sdw%tpdkqldqljk>%%%%%%%%sdw%qwdkvcjwh%8%k`r%awdfj+Dqqwlgpq`TpdkqldqljkQwdkvcjwh-,>%%%%%%%%lc%-qwdkvcjwh+LklqCwjhDqqwlgpq`-awdfjDqqwlgpq`,,%~%%%%%%%%%%%%sdw%hlkSdip`v%8%k`r%Dwwd|-kphFjhujk`kqv,>%%%%%%%%%%%%cjw%-sdw%l%8%5>%l%9%kphFjhujk`kqv>%..l,%~%%%%%%%%%%%%%%%%hlkSdip`v^lX%8%qwdkvcjwh+hlkZsdip`-l,>%%%%%%%%%%%%x%%%%%%%%%%%%tpdkqldqljk%8%~%%%%%%%%%%%%%%%%tpdkqldqljkGlqv%?%qwdkvcjwh+tpdkqldqljkZglqv-,)%%%%%%%%%%%%%%%%hlkSdip`v%?%hlkSdip`v)%%%%%%%%%%%%%%%%wdkb`%?%qwdkvcjwh+wdkb`-,)%%%%%%%%%%%%%%%%jfq@kfja`a%?%cdiv`%%%%%%%%%%%%x>%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-qwdkvcjwh,>%%%%%%%%qwdkvcjwh%8%k`r%awdfj+Dqqwlgpq`Jfqdm`awjkQwdkvcjwh-,>%%%%%%%%lc%-qwdkvcjwh+LklqCwjhDqqwlgpq`-awdfjDqqwlgpq`,,%~%%%%%%%%%%%%tpdkqldqljk%8%~%%%%%%%%%%%%%%%%tpdkqldqljkGlqv%?%qwdkvcjwh+tpdkqldqljkZglqv-,)%%%%%%%%%%%%%%%%jfq@kfja`a%?%qwp`%%%%%%%%%%%%x>%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-qwdkvcjwh,>%%%%%%%%sdw%s`wq`}Dwwd|I`kbqm%8%kphUjlkqv%/%kphFjhujk`kqv>%%%%%%%%sdw%s`wq`}Dwwd|>%%%%%%%%lc%-a`clk`a-tpdkqldqljk,,%~%%%%%%%%%%%%s`wq`}Dwwd|%8%a`fja`Tpdkql`aAwdfjQ|u`aDwwd|-awdfjB`jh`qw|)%awdfjA`fja`w)%awdfjDqqwlgpq`)%tpdkqldqljk)%s`wq`}Dwwd|I`kbqm,>%%%%%%%%x%`iv`%~%%%%%%%%%%%%s`wq`}Dwwd|%8%a`fja`AwdfjQ|u`aDwwd|-awdfjB`jh`qw|)%awdfjA`fja`w)%awdfjDqqwlgpq`)%s`wq`}Dwwd|I`kbqm,>%%%%%%%%x%%%%%%%%sdw%fjhujk`kqAdqdq|u`%8%Fjhujk`kqAdqdq|u`+cwjhQ|u`aDwwd|-s`wq`}Dwwd|,>%%%%%%%%w`qpwk%~%%%%%%%%%%%%dwwd|%?%s`wq`}Dwwd|)%%%%%%%%%%%%adqd%?%~%%%%%%%%%%%%%%%%fjhujk`kqvU`wDqqwlgpq`%?%kphFjhujk`kqv)%%%%%%%%%%%%%%%%fjhujk`kqAdqdq|u`%?%fjhujk`kqAdqdq|u`)%%%%%%%%%%%%%%%%g|q`Jccv`q%?%awdfjDqqwlgpq`+g|q`Zjccv`q-,)%%%%%%%%%%%%%%%%g|q`Vqwla`%?%Fjhujk`kqAdqdq|u`+b`qVl`LkG|q`v-fjhujk`kqAdqdq|u`,%/%kphFjhujk`kqv)%%%%%%%%%%%%%%%%kjwhdil`a%?%awdfjDqqwlgpq`+kjwhdil`a-,)%%%%%%%%%%%%%%%%tpdkqldqljk%?%tpdkqldqljk%%%%%%%%%%%%x%%%%%%%%x>%%%%x%%%%cpkfqljk%a`fja`UjlkqFijpa-udwdh`q`wv,%~%%%%%%%%sdw%awdfjA`fja`w%8%k`r%awdfj+A`fja`w-,>%%%%%%%%lc%-udwdh`q`wv+a`tpdkql`LkVmda`w,%~%%%%%%%%%%%%awdfjA`fja`w+VnluDqqwlgpq`Qwdkvcjwh-awdfj+UJVLQLJK,>%%%%%%%%%%%%awdfjA`fja`w+VnluDqqwlgpq`Qwdkvcjwh-awdfj+KJWHDI,>%%%%%%%%x%%%%%%%%sdw%gpcc`w%8%k`r%awdfj+A`fja`wGpcc`w-,>%%%%%%%%gpcc`w+Lklq-udwdh`q`wv+gpcc`w)%udwdh`q`wv+gpcc`w+i`kbqm,>%%%%%%%%sdw%b`jh`qw|Q|u`%8%awdfjA`fja`w+B`q@kfja`aB`jh`qw|Q|u`-gpcc`w,>%%%%%%%%lc%-b`jh`qw|Q|u`%$88%awdfj+UJLKQZFIJPA,%~%%%%%%%%%%%%qmwjr%k`r%Wpkqlh`@wwjw-"Awdfj%b`jh`qw|%q|u`%hpvq%g`%UJLKQZFIJPA+",>%%%%%%%%x%%%%%%%%sdw%awdfjUjlkqFijpa%8%k`r%awdfj+UjlkqFijpa-,>%%%%%%%%sdw%a`fjalkbVqdqpv%8%awdfjA`fja`w+A`fja`Gpcc`wQjUjlkqFijpa-gpcc`w)%awdfjUjlkqFijpa,>%%%%%%%%lc%-$a`fjalkbVqdqpv+jn-,%yy%awdfjUjlkqFijpa+uqw%888%5,%~%%%%%%%%%%%%qmwjr%k`r%Wpkqlh`@wwjw-"@wwjw%a`fjalkb%awdfj%ujlkq%fijpa?%"%.%a`fjalkbVqdqpv+`wwjwZhvb-,,>%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-gpcc`w,>%%%%%%%%sdw%w`vpiq%8%~x>%%%%%%%%sdw%uwju`wql`v%8%udwdh`q`wv+uwju`wql`v>%%%%%%%%cjw%-sdw%uwju`wq|Kdh`%lk%uwju`wql`v,%~%%%%%%%%%%%%lc%-uwju`wql`v+mdvJrkUwju`wq|-uwju`wq|Kdh`,,%~%%%%%%%%%%%%%%%%sdw%dqqwlgpq`La%8%uwju`wql`v^uwju`wq|Kdh`X>%%%%%%%%%%%%%%%%sdw%awdfjDqqwlgpq`%8%awdfjA`fja`w+B`qDqqwlgpq`G|Pkltp`La-awdfjUjlkqFijpa)%dqqwlgpq`La,>%%%%%%%%%%%%%%%%w`vpiq^uwju`wq|Kdh`X%8%a`fja`Dqqwlgpq`-awdfjUjlkqFijpa)%awdfjA`fja`w)%awdfjDqqwlgpq`,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-awdfjUjlkqFijpa,>%%%%%%%%awdfj+a`vqwj|-awdfjA`fja`w,>%%%%%%%%w`qpwk%w`vpiq>%%%%x%%%%cpkfqljk%a`fja`Uwlhlqls`-udwdh`q`wv,%~%%%%%%%%sdw%awdfjA`fja`w%8%k`r%awdfj+A`fja`w-,>%%%%%%%%**%Vnlu%dii%udwdh`q`w%q|u`v%`}f`uq%b`k`wlf%%%%%%%%sdw%dqqwlgpq`vQjVnlu%8%^"UJVLQLJK")%"KJWHDI")%"FJIJW")%"Q@]ZFJJWA"X>%%%%%%%%lc%-udwdh`q`wv+a`tpdkql`LkVmda`w,%~%%%%%%%%%%%%cjw%-sdw%l%8%5>%l%9%dqqwlgpq`vQjVnlu+i`kbqm>%..l,%~%%%%%%%%%%%%%%%%awdfjA`fja`w+VnluDqqwlgpq`Qwdkvcjwh-awdfj^dqqwlgpq`vQjVnlu^lXX,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%sdw%gpcc`wSl`r%8%udwdh`q`wv+gpcc`wSl`r>%%%%%%%%sdw%gpcc`w%8%k`r%awdfj+A`fja`wGpcc`w-,>%%%%%%%%gpcc`w+Lklq-udwdh`q`wv+dwwd|)%gpcc`wSl`r+g|q`I`kbqm,>%%%%%%%%sdw%b`jh`qw|Q|u`%8%awdfjA`fja`w+B`q@kfja`aB`jh`qw|Q|u`-gpcc`w,>%%%%%%%%lc%-b`jh`qw|Q|u`%$88%awdfj+QWLDKBPIDWZH@VM,%~%%%%%%%%%%%%qmwjr%k`r%Wpkqlh`@wwjw-"Pkvpuujwq`a%awdfj%h`vm%b`jh`qw|%q|u`+",>%%%%%%%%x%%%%%%%%sdw%awdfjB`jh`qw|%8%k`r%awdfj+H`vm-,>%%%%%%%%sdw%a`fjalkbVqdqpv%8%awdfjA`fja`w+A`fja`Gpcc`wQjH`vm-gpcc`w)%awdfjB`jh`qw|,>%%%%%%%%lc%-$a`fjalkbVqdqpv+jn-,%yy%awdfjB`jh`qw|+uqw%888%5,%~%%%%%%%%%%%%qmwjr%k`r%Wpkqlh`@wwjw-"@wwjw%a`fjalkb%awdfj%h`vm%b`jh`qw|?%"%.%a`fjalkbVqdqpv+`wwjwZhvb-,,>%%%%%%%%x%%%%%%%%awdfj+a`vqwj|-gpcc`w,>%%%%%%%%sdw%dqqwlgpq`Adqd%8%~x>%%%%%%%%sdw%fjhuw`vv`aDqqwlgpq`v%8%udwdh`q`wv+fjhuw`vv`aDqqwlgpq`v>%%%%%%%%cjw%-sdw%dqqwlgpq`Kdh`%lk%fjhuw`vv`aDqqwlgpq`v,%~%%%%%%%%%%%%lc%-fjhuw`vv`aDqqwlgpq`v+mdvJrkUwju`wq|-dqqwlgpq`Kdh`,,%~%%%%%%%%%%%%%%%%sdw%fjhuw`vv`aDqqwlgpq`%8%fjhuw`vv`aDqqwlgpq`v^dqqwlgpq`Kdh`X>%%%%%%%%%%%%%%%%sdw%awdfjDqqwlgpq`%8%awdfjA`fja`w+B`qDqqwlgpq`G|Pkltp`La-awdfjB`jh`qw|)%fjhuw`vv`aDqqwlgpq`,>%%%%%%%%%%%%%%%%dqqwlgpq`Adqd^dqqwlgpq`Kdh`X%8%a`fja`Dqqwlgpq`-awdfjB`jh`qw|)%awdfjA`fja`w)%awdfjDqqwlgpq`,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%sdw%w`vpiq%8%~%%%%%%%%%%%%lka`}Dwwd|%?%a`fja`Lka`}Dwwd|-awdfjB`jh`qw|)%awdfjA`fja`w,)%%%%%%%%%%%%dqqwlgpq`Adqd%?%dqqwlgpq`Adqd%%%%%%%%x>%%%%%%%%awdfj+a`vqwj|-awdfjB`jh`qw|,>%%%%%%%%awdfj+a`vqwj|-awdfjA`fja`w,>%%%%%%%%w`qpwk%w`vpiq>%%%%x%%%%cpkfqljk%a`fja`-udwdh`q`wv,%~%%%%%%%%lc%-a`clk`a-udwdh`q`wv+uwlhlqls`,,%~%%%%%%%%%%%%w`qpwk%a`fja`Uwlhlqls`-udwdh`q`wv,>%%%%%%%%x%%%%%%%%w`qpwk%a`fja`UjlkqFijpa-udwdh`q`wv,>%%%%x%%%%cpkfqljk%lklqRjwn`w-awdfjHjapi`,%~%%%%%%%%awdfj%8%awdfjHjapi`>%%%%%%%%v`ic+jkh`vvdb`%8%fw`dq`QdvnUwjf`vvjwRjwn`w-a`fja`,>%%%%%%%%v`ic+ujvqH`vvdb`-qwp`,>%%%%x%%%%cpkfqljk%a`fja`Awdfj-`s`kq,%~%%%%%%%%sdw%adqd%8%`s`kq+adqd>%%%%%%%%**%@}u`fq%qm`%clwvq%h`vvdb`%qj%g`%qj%ijda%d%r`g%dvv`hgi|%hjapi`%%%%%%%%sdw%rdvhFjkclb%8%adqd+r`gDvv`hgi|Fjkclb>%%%%%%%%lc%-a`clk`a-rdvhFjkclb,,%~%%%%%%%%%%%%**%W`tplw`%dka%fjhuli`%R`gDvv`hgi|%hjapi`)%jw%pv`%cdiigdfn%lc%kjq%vpuujwq`a%%%%%%%%%%%%w`qpwk%w`tplw`-^rdvhFjkclb+hjapi`UdqmX)%cpkfqljk-awdfjHjapi`,%~%%%%%%%%%%%%%%%%lc%-a`clk`a-rdvhFjkclb+rdvhGlkdw|Cli`,,%~%%%%%%%%%%%%%%%%%%%%lc%-$a`clk`a-awdfjHjapi`,,%~%%%%%%%%%%%%%%%%%%%%%%%%awdfjHjapi`%8%v`ic+AwdfjA`fja`wHjapi`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%awdfjHjapi`-rdvhFjkclb,+qm`k-cpkfqljk%-fjhuli`aHjapi`,%~%%%%%%%%%%%%%%%%%%%%%%%%lklqRjwn`w-fjhuli`aHjapi`,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%lklqRjwn`w-awdfjHjapi`-,,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x,>%%%%%%%%x%%%%x%%%%w`qpwk%a`fja`Awdfj>x,>x-,,>
+/**
+ * Cesium - https://github.com/AnalyticalGraphicsInc/cesium
+ *
+ * Copyright 2011-2017 Cesium Contributors
+ *
+ * Licensed under the Apache License, Version 2.0 (the "License");
+ * you may not use this file except in compliance with the License.
+ * You may obtain a copy of the License at
+ *
+ * http://www.apache.org/licenses/LICENSE-2.0
+ *
+ * Unless required by applicable law or agreed to in writing, software
+ * distributed under the License is distributed on an "AS IS" BASIS,
+ * WITHOUT WARRANTIES OR CONDITIONS OF ANY KIND, either express or implied.
+ * See the License for the specific language governing permissions and
+ * limitations under the License.
+ *
+ * Columbus View (Pat. Pend.)
+ *
+ * Portions licensed separately.
+ * See https://github.com/AnalyticalGraphicsInc/cesium/blob/master/LICENSE.md for full licensing details.
+ */
+(function () {
+define('Core/defined',[],function() {
+    'use strict';
+
+    /**
+     * @exports defined
+     *
+     * @param {*} value The object.
+     * @returns {Boolean} Returns true if the object is defined, returns false otherwise.
+     *
+     * @example
+     * if (Cesium.defined(positions)) {
+     *      doSomething();
+     * } else {
+     *      doSomethingElse();
+     * }
+     */
+    function defined(value) {
+        return value !== undefined && value !== null;
+    }
+
+    return defined;
+});
+
+define('Core/freezeObject',[
+        './defined'
+    ], function(
+        defined) {
+    'use strict';
+
+    /**
+     * Freezes an object, using Object.freeze if available, otherwise returns
+     * the object unchanged.  This function should be used in setup code to prevent
+     * errors from completely halting JavaScript execution in legacy browsers.
+     *
+     * @private
+     *
+     * @exports freezeObject
+     */
+    var freezeObject = Object.freeze;
+    if (!defined(freezeObject)) {
+        freezeObject = function(o) {
+            return o;
+        };
+    }
+
+    return freezeObject;
+});
+
+define('Core/defaultValue',[
+        './freezeObject'
+    ], function(
+        freezeObject) {
+    'use strict';
+
+    /**
+     * Returns the first parameter if not undefined, otherwise the second parameter.
+     * Useful for setting a default value for a parameter.
+     *
+     * @exports defaultValue
+     *
+     * @param {*} a
+     * @param {*} b
+     * @returns {*} Returns the first parameter if not undefined, otherwise the second parameter.
+     *
+     * @example
+     * param = Cesium.defaultValue(param, 'default');
+     */
+    function defaultValue(a, b) {
+        if (a !== undefined && a !== null) {
+            return a;
+        }
+        return b;
+    }
+
+    /**
+     * A frozen empty object that can be used as the default value for options passed as
+     * an object literal.
+     * @type {Object}
+     */
+    defaultValue.EMPTY_OBJECT = freezeObject({});
+
+    return defaultValue;
+});
+
+define('Core/DeveloperError',[
+        './defined'
+    ], function(
+        defined) {
+    'use strict';
+
+    /**
+     * Constructs an exception object that is thrown due to a developer error, e.g., invalid argument,
+     * argument out of range, etc.  This exception should only be thrown during development;
+     * it usually indicates a bug in the calling code.  This exception should never be
+     * caught; instead the calling code should strive not to generate it.
+     * <br /><br />
+     * On the other hand, a {@link RuntimeError} indicates an exception that may
+     * be thrown at runtime, e.g., out of memory, that the calling code should be prepared
+     * to catch.
+     *
+     * @alias DeveloperError
+     * @constructor
+     * @extends Error
+     *
+     * @param {String} [message] The error message for this exception.
+     *
+     * @see RuntimeError
+     */
+    function DeveloperError(message) {
+        /**
+         * 'DeveloperError' indicating that this exception was thrown due to a developer error.
+         * @type {String}
+         * @readonly
+         */
+        this.name = 'DeveloperError';
+
+        /**
+         * The explanation for why this exception was thrown.
+         * @type {String}
+         * @readonly
+         */
+        this.message = message;
+
+        //Browsers such as IE don't have a stack property until you actually throw the error.
+        var stack;
+        try {
+            throw new Error();
+        } catch (e) {
+            stack = e.stack;
+        }
+
+        /**
+         * The stack trace of this exception, if available.
+         * @type {String}
+         * @readonly
+         */
+        this.stack = stack;
+    }
+
+    if (defined(Object.create)) {
+        DeveloperError.prototype = Object.create(Error.prototype);
+        DeveloperError.prototype.constructor = DeveloperError;
+    }
+
+    DeveloperError.prototype.toString = function() {
+        var str = this.name + ': ' + this.message;
+
+        if (defined(this.stack)) {
+            str += '\n' + this.stack.toString();
+        }
+
+        return str;
+    };
+
+    /**
+     * @private
+     */
+    DeveloperError.throwInstantiationError = function() {
+        throw new DeveloperError('This function defines an interface and should not be called directly.');
+    };
+
+    return DeveloperError;
+});
+
+define('Core/defineProperties',[
+        './defined'
+    ], function(
+        defined) {
+    'use strict';
+
+    var definePropertyWorks = (function() {
+        try {
+            return 'x' in Object.defineProperty({}, 'x', {});
+        } catch (e) {
+            return false;
+        }
+    })();
+
+    /**
+     * Defines properties on an object, using Object.defineProperties if available,
+     * otherwise returns the object unchanged.  This function should be used in
+     * setup code to prevent errors from completely halting JavaScript execution
+     * in legacy browsers.
+     *
+     * @private
+     *
+     * @exports defineProperties
+     */
+    var defineProperties = Object.defineProperties;
+    if (!definePropertyWorks || !defined(defineProperties)) {
+        defineProperties = function(o) {
+            return o;
+        };
+    }
+
+    return defineProperties;
+});
+
+define('Core/Fullscreen',[
+        './defined',
+        './defineProperties'
+    ], function(
+        defined,
+        defineProperties) {
+    'use strict';
+
+    var _supportsFullscreen;
+    var _names = {
+        requestFullscreen : undefined,
+        exitFullscreen : undefined,
+        fullscreenEnabled : undefined,
+        fullscreenElement : undefined,
+        fullscreenchange : undefined,
+        fullscreenerror : undefined
+    };
+
+    /**
+     * Browser-independent functions for working with the standard fullscreen API.
+     *
+     * @exports Fullscreen
+     *
+     * @see {@link http://dvcs.w3.org/hg/fullscreen/raw-file/tip/Overview.html|W3C Fullscreen Living Specification}
+     */
+    var Fullscreen = {};
+
+    defineProperties(Fullscreen, {
+        /**
+         * The element that is currently fullscreen, if any.  To simply check if the
+         * browser is in fullscreen mode or not, use {@link Fullscreen#fullscreen}.
+         * @memberof Fullscreen
+         * @type {Object}
+         * @readonly
+         */
+        element : {
+            get : function() {
+                if (!Fullscreen.supportsFullscreen()) {
+                    return undefined;
+                }
+
+                return document[_names.fullscreenElement];
+            }
+        },
+
+        /**
+         * The name of the event on the document that is fired when fullscreen is
+         * entered or exited.  This event name is intended for use with addEventListener.
+         * In your event handler, to determine if the browser is in fullscreen mode or not,
+         * use {@link Fullscreen#fullscreen}.
+         * @memberof Fullscreen
+         * @type {String}
+         * @readonly
+         */
+        changeEventName : {
+            get : function() {
+                if (!Fullscreen.supportsFullscreen()) {
+                    return undefined;
+                }
+
+                return _names.fullscreenchange;
+            }
+        },
+
+        /**
+         * The name of the event that is fired when a fullscreen error
+         * occurs.  This event name is intended for use with addEventListener.
+         * @memberof Fullscreen
+         * @type {String}
+         * @readonly
+         */
+        errorEventName : {
+            get : function() {
+                if (!Fullscreen.supportsFullscreen()) {
+                    return undefined;
+                }
+
+                return _names.fullscreenerror;
+            }
+        },
+
+        /**
+         * Determine whether the browser will allow an element to be made fullscreen, or not.
+         * For example, by default, iframes cannot go fullscreen unless the containing page
+         * adds an "allowfullscreen" attribute (or prefixed equivalent).
+         * @memberof Fullscreen
+         * @type {Boolean}
+         * @readonly
+         */
+        enabled : {
+            get : function() {
+                if (!Fullscreen.supportsFullscreen()) {
+                    return undefined;
+                }
+
+                return document[_names.fullscreenEnabled];
+            }
+        },
+
+        /**
+         * Determines if the browser is currently in fullscreen mode.
+         * @memberof Fullscreen
+         * @type {Boolean}
+         * @readonly
+         */
+        fullscreen : {
+            get : function() {
+                if (!Fullscreen.supportsFullscreen()) {
+                    return undefined;
+                }
+
+                return Fullscreen.element !== null;
+            }
+        }
+    });
+
+    /**
+     * Detects whether the browser supports the standard fullscreen API.
+     *
+     * @returns {Boolean} <code>true</code> if the browser supports the standard fullscreen API,
+     * <code>false</code> otherwise.
+     */
+    Fullscreen.supportsFullscreen = function() {
+        if (defined(_supportsFullscreen)) {
+            return _supportsFullscreen;
+        }
+
+        _supportsFullscreen = false;
+
+        var body = document.body;
+        if (typeof body.requestFullscreen === 'function') {
+            // go with the unprefixed, standard set of names
+            _names.requestFullscreen = 'requestFullscreen';
+            _names.exitFullscreen = 'exitFullscreen';
+            _names.fullscreenEnabled = 'fullscreenEnabled';
+            _names.fullscreenElement = 'fullscreenElement';
+            _names.fullscreenchange = 'fullscreenchange';
+            _names.fullscreenerror = 'fullscreenerror';
+            _supportsFullscreen = true;
+            return _supportsFullscreen;
+        }
+
+        //check for the correct combination of prefix plus the various names that browsers use
+        var prefixes = ['webkit', 'moz', 'o', 'ms', 'khtml'];
+        var name;
+        for (var i = 0, len = prefixes.length; i < len; ++i) {
+            var prefix = prefixes[i];
+
+            // casing of Fullscreen differs across browsers
+            name = prefix + 'RequestFullscreen';
+            if (typeof body[name] === 'function') {
+                _names.requestFullscreen = name;
+                _supportsFullscreen = true;
+            } else {
+                name = prefix + 'RequestFullScreen';
+                if (typeof body[name] === 'function') {
+                    _names.requestFullscreen = name;
+                    _supportsFullscreen = true;
+                }
+            }
+
+            // disagreement about whether it's "exit" as per spec, or "cancel"
+            name = prefix + 'ExitFullscreen';
+            if (typeof document[name] === 'function') {
+                _names.exitFullscreen = name;
+            } else {
+                name = prefix + 'CancelFullScreen';
+                if (typeof document[name] === 'function') {
+                    _names.exitFullscreen = name;
+                }
+            }
+
+            // casing of Fullscreen differs across browsers
+            name = prefix + 'FullscreenEnabled';
+            if (document[name] !== undefined) {
+                _names.fullscreenEnabled = name;
+            } else {
+                name = prefix + 'FullScreenEnabled';
+                if (document[name] !== undefined) {
+                    _names.fullscreenEnabled = name;
+                }
+            }
+
+            // casing of Fullscreen differs across browsers
+            name = prefix + 'FullscreenElement';
+            if (document[name] !== undefined) {
+                _names.fullscreenElement = name;
+            } else {
+                name = prefix + 'FullScreenElement';
+                if (document[name] !== undefined) {
+                    _names.fullscreenElement = name;
+                }
+            }
+
+            // thankfully, event names are all lowercase per spec
+            name = prefix + 'fullscreenchange';
+            // event names do not have 'on' in the front, but the property on the document does
+            if (document['on' + name] !== undefined) {
+                //except on IE
+                if (prefix === 'ms') {
+                    name = 'MSFullscreenChange';
+                }
+                _names.fullscreenchange = name;
+            }
+
+            name = prefix + 'fullscreenerror';
+            if (document['on' + name] !== undefined) {
+                //except on IE
+                if (prefix === 'ms') {
+                    name = 'MSFullscreenError';
+                }
+                _names.fullscreenerror = name;
+            }
+        }
+
+        return _supportsFullscreen;
+    };
+
+    /**
+     * Asynchronously requests the browser to enter fullscreen mode on the given element.
+     * If fullscreen mode is not supported by the browser, does nothing.
+     *
+     * @param {Object} element The HTML element which will be placed into fullscreen mode.
+     * @param {HMDVRDevice} [vrDevice] The VR device.
+     *
+     * @example
+     * // Put the entire page into fullscreen.
+     * Cesium.Fullscreen.requestFullscreen(document.body)
+     *
+     * // Place only the Cesium canvas into fullscreen.
+     * Cesium.Fullscreen.requestFullscreen(scene.canvas)
+     */
+    Fullscreen.requestFullscreen = function(element, vrDevice) {
+        if (!Fullscreen.supportsFullscreen()) {
+            return;
+        }
+
+        element[_names.requestFullscreen]({ vrDisplay: vrDevice });
+    };
+
+    /**
+     * Asynchronously exits fullscreen mode.  If the browser is not currently
+     * in fullscreen, or if fullscreen mode is not supported by the browser, does nothing.
+     */
+    Fullscreen.exitFullscreen = function() {
+        if (!Fullscreen.supportsFullscreen()) {
+            return;
+        }
+
+        document[_names.exitFullscreen]();
+    };
+
+    return Fullscreen;
+});
+
+define('Core/FeatureDetection',[
+        './defaultValue',
+        './defined',
+        './Fullscreen'
+    ], function(
+        defaultValue,
+        defined,
+        Fullscreen) {
+    'use strict';
+    /*global CanvasPixelArray*/
+
+    var theNavigator;
+    if (typeof navigator !== 'undefined') {
+        theNavigator = navigator;
+    } else {
+        theNavigator = {};
+    }
+
+    function extractVersion(versionString) {
+        var parts = versionString.split('.');
+        for (var i = 0, len = parts.length; i < len; ++i) {
+            parts[i] = parseInt(parts[i], 10);
+        }
+        return parts;
+    }
+
+    var isChromeResult;
+    var chromeVersionResult;
+    function isChrome() {
+        if (!defined(isChromeResult)) {
+            isChromeResult = false;
+            // Edge contains Chrome in the user agent too
+            if (!isEdge()) {
+                var fields = (/ Chrome\/([\.0-9]+)/).exec(theNavigator.userAgent);
+                if (fields !== null) {
+                    isChromeResult = true;
+                    chromeVersionResult = extractVersion(fields[1]);
+                }
+            }
+        }
+
+        return isChromeResult;
+    }
+
+    function chromeVersion() {
+        return isChrome() && chromeVersionResult;
+    }
+
+    var isSafariResult;
+    var safariVersionResult;
+    function isSafari() {
+        if (!defined(isSafariResult)) {
+            isSafariResult = false;
+
+            // Chrome and Edge contain Safari in the user agent too
+            if (!isChrome() && !isEdge() && (/ Safari\/[\.0-9]+/).test(theNavigator.userAgent)) {
+                var fields = (/ Version\/([\.0-9]+)/).exec(theNavigator.userAgent);
+                if (fields !== null) {
+                    isSafariResult = true;
+                    safariVersionResult = extractVersion(fields[1]);
+                }
+            }
+        }
+
+        return isSafariResult;
+    }
+
+    function safariVersion() {
+        return isSafari() && safariVersionResult;
+    }
+
+    var isWebkitResult;
+    var webkitVersionResult;
+    function isWebkit() {
+        if (!defined(isWebkitResult)) {
+            isWebkitResult = false;
+
+            var fields = (/ AppleWebKit\/([\.0-9]+)(\+?)/).exec(theNavigator.userAgent);
+            if (fields !== null) {
+                isWebkitResult = true;
+                webkitVersionResult = extractVersion(fields[1]);
+                webkitVersionResult.isNightly = !!fields[2];
+            }
+        }
+
+        return isWebkitResult;
+    }
+
+    function webkitVersion() {
+        return isWebkit() && webkitVersionResult;
+    }
+
+    var isInternetExplorerResult;
+    var internetExplorerVersionResult;
+    function isInternetExplorer() {
+        if (!defined(isInternetExplorerResult)) {
+            isInternetExplorerResult = false;
+
+            var fields;
+            if (theNavigator.appName === 'Microsoft Internet Explorer') {
+                fields = /MSIE ([0-9]{1,}[\.0-9]{0,})/.exec(theNavigator.userAgent);
+                if (fields !== null) {
+                    isInternetExplorerResult = true;
+                    internetExplorerVersionResult = extractVersion(fields[1]);
+                }
+            } else if (theNavigator.appName === 'Netscape') {
+                fields = /Trident\/.*rv:([0-9]{1,}[\.0-9]{0,})/.exec(theNavigator.userAgent);
+                if (fields !== null) {
+                    isInternetExplorerResult = true;
+                    internetExplorerVersionResult = extractVersion(fields[1]);
+                }
+            }
+        }
+        return isInternetExplorerResult;
+    }
+
+    function internetExplorerVersion() {
+        return isInternetExplorer() && internetExplorerVersionResult;
+    }
+
+    var isEdgeResult;
+    var edgeVersionResult;
+    function isEdge() {
+        if (!defined(isEdgeResult)) {
+            isEdgeResult = false;
+            var fields = (/ Edge\/([\.0-9]+)/).exec(theNavigator.userAgent);
+            if (fields !== null) {
+                isEdgeResult = true;
+                edgeVersionResult = extractVersion(fields[1]);
+            }
+        }
+        return isEdgeResult;
+    }
+
+    function edgeVersion() {
+        return isEdge() && edgeVersionResult;
+    }
+
+    var isFirefoxResult;
+    var firefoxVersionResult;
+    function isFirefox() {
+        if (!defined(isFirefoxResult)) {
+            isFirefoxResult = false;
+
+            var fields = /Firefox\/([\.0-9]+)/.exec(theNavigator.userAgent);
+            if (fields !== null) {
+                isFirefoxResult = true;
+                firefoxVersionResult = extractVersion(fields[1]);
+            }
+        }
+        return isFirefoxResult;
+    }
+
+    var isWindowsResult;
+    function isWindows() {
+        if (!defined(isWindowsResult)) {
+            isWindowsResult = /Windows/i.test(theNavigator.appVersion);
+        }
+        return isWindowsResult;
+    }
+
+    function firefoxVersion() {
+        return isFirefox() && firefoxVersionResult;
+    }
+
+    var hasPointerEvents;
+    function supportsPointerEvents() {
+        if (!defined(hasPointerEvents)) {
+            //While navigator.pointerEnabled is deprecated in the W3C specification
+            //we still need to use it if it exists in order to support browsers
+            //that rely on it, such as the Windows WebBrowser control which defines
+            //PointerEvent but sets navigator.pointerEnabled to false.
+
+            //Firefox disabled because of https://github.com/AnalyticalGraphicsInc/cesium/issues/6372
+            hasPointerEvents = !isFirefox() && typeof PointerEvent !== 'undefined' && (!defined(theNavigator.pointerEnabled) || theNavigator.pointerEnabled);
+        }
+        return hasPointerEvents;
+    }
+
+    var imageRenderingValueResult;
+    var supportsImageRenderingPixelatedResult;
+    function supportsImageRenderingPixelated() {
+        if (!defined(supportsImageRenderingPixelatedResult)) {
+            var canvas = document.createElement('canvas');
+            canvas.setAttribute('style',
+                                'image-rendering: -moz-crisp-edges;' +
+                                'image-rendering: pixelated;');
+            //canvas.style.imageRendering will be undefined, null or an empty string on unsupported browsers.
+            var tmp = canvas.style.imageRendering;
+            supportsImageRenderingPixelatedResult = defined(tmp) && tmp !== '';
+            if (supportsImageRenderingPixelatedResult) {
+                imageRenderingValueResult = tmp;
+            }
+        }
+        return supportsImageRenderingPixelatedResult;
+    }
+
+    function imageRenderingValue() {
+        return supportsImageRenderingPixelated() ? imageRenderingValueResult : undefined;
+    }
+
+    var typedArrayTypes = [];
+    if (typeof ArrayBuffer !== 'undefined') {
+        typedArrayTypes.push(Int8Array, Uint8Array, Int16Array, Uint16Array, Int32Array, Uint32Array, Float32Array, Float64Array);
+
+        if (typeof Uint8ClampedArray !== 'undefined') {
+            typedArrayTypes.push(Uint8ClampedArray);
+        }
+
+        if (typeof CanvasPixelArray !== 'undefined') {
+            typedArrayTypes.push(CanvasPixelArray);
+        }
+    }
+
+    /**
+     * A set of functions to detect whether the current browser supports
+     * various features.
+     *
+     * @exports FeatureDetection
+     */
+    var FeatureDetection = {
+        isChrome : isChrome,
+        chromeVersion : chromeVersion,
+        isSafari : isSafari,
+        safariVersion : safariVersion,
+        isWebkit : isWebkit,
+        webkitVersion : webkitVersion,
+        isInternetExplorer : isInternetExplorer,
+        internetExplorerVersion : internetExplorerVersion,
+        isEdge : isEdge,
+        edgeVersion : edgeVersion,
+        isFirefox : isFirefox,
+        firefoxVersion : firefoxVersion,
+        isWindows : isWindows,
+        hardwareConcurrency : defaultValue(theNavigator.hardwareConcurrency, 3),
+        supportsPointerEvents : supportsPointerEvents,
+        supportsImageRenderingPixelated: supportsImageRenderingPixelated,
+        imageRenderingValue: imageRenderingValue,
+        typedArrayTypes: typedArrayTypes
+    };
+
+    /**
+     * Detects whether the current browser supports the full screen standard.
+     *
+     * @returns {Boolean} true if the browser supports the full screen standard, false if not.
+     *
+     * @see Fullscreen
+     * @see {@link http://dvcs.w3.org/hg/fullscreen/raw-file/tip/Overview.html|W3C Fullscreen Living Specification}
+     */
+    FeatureDetection.supportsFullscreen = function() {
+        return Fullscreen.supportsFullscreen();
+    };
+
+    /**
+     * Detects whether the current browser supports typed arrays.
+     *
+     * @returns {Boolean} true if the browser supports typed arrays, false if not.
+     *
+     * @see {@link http://www.khronos.org/registry/typedarray/specs/latest/|Typed Array Specification}
+     */
+    FeatureDetection.supportsTypedArrays = function() {
+        return typeof ArrayBuffer !== 'undefined';
+    };
+
+    /**
+     * Detects whether the current browser supports Web Workers.
+     *
+     * @returns {Boolean} true if the browsers supports Web Workers, false if not.
+     *
+     * @see {@link http://www.w3.org/TR/workers/}
+     */
+    FeatureDetection.supportsWebWorkers = function() {
+        return typeof Worker !== 'undefined';
+    };
+
+    /**
+     * Detects whether the current browser supports Web Assembly.
+     *
+     * @returns {Boolean} true if the browsers supports Web Assembly, false if not.
+     *
+     * @see {@link https://developer.mozilla.org/en-US/docs/WebAssembly}
+     */
+    FeatureDetection.supportsWebAssembly = function() {
+        return typeof WebAssembly !== 'undefined' && !FeatureDetection.isEdge();
+    };
+
+    return FeatureDetection;
+});
+
+define('Core/WebGLConstants',[
+        './freezeObject'
+    ], function(
+        freezeObject) {
+    'use strict';
+
+    /**
+     * Enum containing WebGL Constant values by name.
+     * for use without an active WebGL context, or in cases where certain constants are unavailable using the WebGL context
+     * (For example, in [Safari 9]{@link https://github.com/AnalyticalGraphicsInc/cesium/issues/2989}).
+     *
+     * These match the constants from the [WebGL 1.0]{@link https://www.khronos.org/registry/webgl/specs/latest/1.0/}
+     * and [WebGL 2.0]{@link https://www.khronos.org/registry/webgl/specs/latest/2.0/}
+     * specifications.
+     *
+     * @exports WebGLConstants
+     */
+    var WebGLConstants = {
+        DEPTH_BUFFER_BIT : 0x00000100,
+        STENCIL_BUFFER_BIT : 0x00000400,
+        COLOR_BUFFER_BIT : 0x00004000,
+        POINTS : 0x0000,
+        LINES : 0x0001,
+        LINE_LOOP : 0x0002,
+        LINE_STRIP : 0x0003,
+        TRIANGLES : 0x0004,
+        TRIANGLE_STRIP : 0x0005,
+        TRIANGLE_FAN : 0x0006,
+        ZERO : 0,
+        ONE : 1,
+        SRC_COLOR : 0x0300,
+        ONE_MINUS_SRC_COLOR : 0x0301,
+        SRC_ALPHA : 0x0302,
+        ONE_MINUS_SRC_ALPHA : 0x0303,
+        DST_ALPHA : 0x0304,
+        ONE_MINUS_DST_ALPHA : 0x0305,
+        DST_COLOR : 0x0306,
+        ONE_MINUS_DST_COLOR : 0x0307,
+        SRC_ALPHA_SATURATE : 0x0308,
+        FUNC_ADD : 0x8006,
+        BLEND_EQUATION : 0x8009,
+        BLEND_EQUATION_RGB : 0x8009, // same as BLEND_EQUATION
+        BLEND_EQUATION_ALPHA : 0x883D,
+        FUNC_SUBTRACT : 0x800A,
+        FUNC_REVERSE_SUBTRACT : 0x800B,
+        BLEND_DST_RGB : 0x80C8,
+        BLEND_SRC_RGB : 0x80C9,
+        BLEND_DST_ALPHA : 0x80CA,
+        BLEND_SRC_ALPHA : 0x80CB,
+        CONSTANT_COLOR : 0x8001,
+        ONE_MINUS_CONSTANT_COLOR : 0x8002,
+        CONSTANT_ALPHA : 0x8003,
+        ONE_MINUS_CONSTANT_ALPHA : 0x8004,
+        BLEND_COLOR : 0x8005,
+        ARRAY_BUFFER : 0x8892,
+        ELEMENT_ARRAY_BUFFER : 0x8893,
+        ARRAY_BUFFER_BINDING : 0x8894,
+        ELEMENT_ARRAY_BUFFER_BINDING : 0x8895,
+        STREAM_DRAW : 0x88E0,
+        STATIC_DRAW : 0x88E4,
+        DYNAMIC_DRAW : 0x88E8,
+        BUFFER_SIZE : 0x8764,
+        BUFFER_USAGE : 0x8765,
+        CURRENT_VERTEX_ATTRIB : 0x8626,
+        FRONT : 0x0404,
+        BACK : 0x0405,
+        FRONT_AND_BACK : 0x0408,
+        CULL_FACE : 0x0B44,
+        BLEND : 0x0BE2,
+        DITHER : 0x0BD0,
+        STENCIL_TEST : 0x0B90,
+        DEPTH_TEST : 0x0B71,
+        SCISSOR_TEST : 0x0C11,
+        POLYGON_OFFSET_FILL : 0x8037,
+        SAMPLE_ALPHA_TO_COVERAGE : 0x809E,
+        SAMPLE_COVERAGE : 0x80A0,
+        NO_ERROR : 0,
+        INVALID_ENUM : 0x0500,
+        INVALID_VALUE : 0x0501,
+        INVALID_OPERATION : 0x0502,
+        OUT_OF_MEMORY : 0x0505,
+        CW : 0x0900,
+        CCW : 0x0901,
+        LINE_WIDTH : 0x0B21,
+        ALIASED_POINT_SIZE_RANGE : 0x846D,
+        ALIASED_LINE_WIDTH_RANGE : 0x846E,
+        CULL_FACE_MODE : 0x0B45,
+        FRONT_FACE : 0x0B46,
+        DEPTH_RANGE : 0x0B70,
+        DEPTH_WRITEMASK : 0x0B72,
+        DEPTH_CLEAR_VALUE : 0x0B73,
+        DEPTH_FUNC : 0x0B74,
+        STENCIL_CLEAR_VALUE : 0x0B91,
+        STENCIL_FUNC : 0x0B92,
+        STENCIL_FAIL : 0x0B94,
+        STENCIL_PASS_DEPTH_FAIL : 0x0B95,
+        STENCIL_PASS_DEPTH_PASS : 0x0B96,
+        STENCIL_REF : 0x0B97,
+        STENCIL_VALUE_MASK : 0x0B93,
+        STENCIL_WRITEMASK : 0x0B98,
+        STENCIL_BACK_FUNC : 0x8800,
+        STENCIL_BACK_FAIL : 0x8801,
+        STENCIL_BACK_PASS_DEPTH_FAIL : 0x8802,
+        STENCIL_BACK_PASS_DEPTH_PASS : 0x8803,
+        STENCIL_BACK_REF : 0x8CA3,
+        STENCIL_BACK_VALUE_MASK : 0x8CA4,
+        STENCIL_BACK_WRITEMASK : 0x8CA5,
+        VIEWPORT : 0x0BA2,
+        SCISSOR_BOX : 0x0C10,
+        COLOR_CLEAR_VALUE : 0x0C22,
+        COLOR_WRITEMASK : 0x0C23,
+        UNPACK_ALIGNMENT : 0x0CF5,
+        PACK_ALIGNMENT : 0x0D05,
+        MAX_TEXTURE_SIZE : 0x0D33,
+        MAX_VIEWPORT_DIMS : 0x0D3A,
+        SUBPIXEL_BITS : 0x0D50,
+        RED_BITS : 0x0D52,
+        GREEN_BITS : 0x0D53,
+        BLUE_BITS : 0x0D54,
+        ALPHA_BITS : 0x0D55,
+        DEPTH_BITS : 0x0D56,
+        STENCIL_BITS : 0x0D57,
+        POLYGON_OFFSET_UNITS : 0x2A00,
+        POLYGON_OFFSET_FACTOR : 0x8038,
+        TEXTURE_BINDING_2D : 0x8069,
+        SAMPLE_BUFFERS : 0x80A8,
+        SAMPLES : 0x80A9,
+        SAMPLE_COVERAGE_VALUE : 0x80AA,
+        SAMPLE_COVERAGE_INVERT : 0x80AB,
+        COMPRESSED_TEXTURE_FORMATS : 0x86A3,
+        DONT_CARE : 0x1100,
+        FASTEST : 0x1101,
+        NICEST : 0x1102,
+        GENERATE_MIPMAP_HINT : 0x8192,
+        BYTE : 0x1400,
+        UNSIGNED_BYTE : 0x1401,
+        SHORT : 0x1402,
+        UNSIGNED_SHORT : 0x1403,
+        INT : 0x1404,
+        UNSIGNED_INT : 0x1405,
+        FLOAT : 0x1406,
+        DEPTH_COMPONENT : 0x1902,
+        ALPHA : 0x1906,
+        RGB : 0x1907,
+        RGBA : 0x1908,
+        LUMINANCE : 0x1909,
+        LUMINANCE_ALPHA : 0x190A,
+        UNSIGNED_SHORT_4_4_4_4 : 0x8033,
+        UNSIGNED_SHORT_5_5_5_1 : 0x8034,
+        UNSIGNED_SHORT_5_6_5 : 0x8363,
+        FRAGMENT_SHADER : 0x8B30,
+        VERTEX_SHADER : 0x8B31,
+        MAX_VERTEX_ATTRIBS : 0x8869,
+        MAX_VERTEX_UNIFORM_VECTORS : 0x8DFB,
+        MAX_VARYING_VECTORS : 0x8DFC,
+        MAX_COMBINED_TEXTURE_IMAGE_UNITS : 0x8B4D,
+        MAX_VERTEX_TEXTURE_IMAGE_UNITS : 0x8B4C,
+        MAX_TEXTURE_IMAGE_UNITS : 0x8872,
+        MAX_FRAGMENT_UNIFORM_VECTORS : 0x8DFD,
+        SHADER_TYPE : 0x8B4F,
+        DELETE_STATUS : 0x8B80,
+        LINK_STATUS : 0x8B82,
+        VALIDATE_STATUS : 0x8B83,
+        ATTACHED_SHADERS : 0x8B85,
+        ACTIVE_UNIFORMS : 0x8B86,
+        ACTIVE_ATTRIBUTES : 0x8B89,
+        SHADING_LANGUAGE_VERSION : 0x8B8C,
+        CURRENT_PROGRAM : 0x8B8D,
+        NEVER : 0x0200,
+        LESS : 0x0201,
+        EQUAL : 0x0202,
+        LEQUAL : 0x0203,
+        GREATER : 0x0204,
+        NOTEQUAL : 0x0205,
+        GEQUAL : 0x0206,
+        ALWAYS : 0x0207,
+        KEEP : 0x1E00,
+        REPLACE : 0x1E01,
+        INCR : 0x1E02,
+        DECR : 0x1E03,
+        INVERT : 0x150A,
+        INCR_WRAP : 0x8507,
+        DECR_WRAP : 0x8508,
+        VENDOR : 0x1F00,
+        RENDERER : 0x1F01,
+        VERSION : 0x1F02,
+        NEAREST : 0x2600,
+        LINEAR : 0x2601,
+        NEAREST_MIPMAP_NEAREST : 0x2700,
+        LINEAR_MIPMAP_NEAREST : 0x2701,
+        NEAREST_MIPMAP_LINEAR : 0x2702,
+        LINEAR_MIPMAP_LINEAR : 0x2703,
+        TEXTURE_MAG_FILTER : 0x2800,
+        TEXTURE_MIN_FILTER : 0x2801,
+        TEXTURE_WRAP_S : 0x2802,
+        TEXTURE_WRAP_T : 0x2803,
+        TEXTURE_2D : 0x0DE1,
+        TEXTURE : 0x1702,
+        TEXTURE_CUBE_MAP : 0x8513,
+        TEXTURE_BINDING_CUBE_MAP : 0x8514,
+        TEXTURE_CUBE_MAP_POSITIVE_X : 0x8515,
+        TEXTURE_CUBE_MAP_NEGATIVE_X : 0x8516,
+        TEXTURE_CUBE_MAP_POSITIVE_Y : 0x8517,
+        TEXTURE_CUBE_MAP_NEGATIVE_Y : 0x8518,
+        TEXTURE_CUBE_MAP_POSITIVE_Z : 0x8519,
+        TEXTURE_CUBE_MAP_NEGATIVE_Z : 0x851A,
+        MAX_CUBE_MAP_TEXTURE_SIZE : 0x851C,
+        TEXTURE0 : 0x84C0,
+        TEXTURE1 : 0x84C1,
+        TEXTURE2 : 0x84C2,
+        TEXTURE3 : 0x84C3,
+        TEXTURE4 : 0x84C4,
+        TEXTURE5 : 0x84C5,
+        TEXTURE6 : 0x84C6,
+        TEXTURE7 : 0x84C7,
+        TEXTURE8 : 0x84C8,
+        TEXTURE9 : 0x84C9,
+        TEXTURE10 : 0x84CA,
+        TEXTURE11 : 0x84CB,
+        TEXTURE12 : 0x84CC,
+        TEXTURE13 : 0x84CD,
+        TEXTURE14 : 0x84CE,
+        TEXTURE15 : 0x84CF,
+        TEXTURE16 : 0x84D0,
+        TEXTURE17 : 0x84D1,
+        TEXTURE18 : 0x84D2,
+        TEXTURE19 : 0x84D3,
+        TEXTURE20 : 0x84D4,
+        TEXTURE21 : 0x84D5,
+        TEXTURE22 : 0x84D6,
+        TEXTURE23 : 0x84D7,
+        TEXTURE24 : 0x84D8,
+        TEXTURE25 : 0x84D9,
+        TEXTURE26 : 0x84DA,
+        TEXTURE27 : 0x84DB,
+        TEXTURE28 : 0x84DC,
+        TEXTURE29 : 0x84DD,
+        TEXTURE30 : 0x84DE,
+        TEXTURE31 : 0x84DF,
+        ACTIVE_TEXTURE : 0x84E0,
+        REPEAT : 0x2901,
+        CLAMP_TO_EDGE : 0x812F,
+        MIRRORED_REPEAT : 0x8370,
+        FLOAT_VEC2 : 0x8B50,
+        FLOAT_VEC3 : 0x8B51,
+        FLOAT_VEC4 : 0x8B52,
+        INT_VEC2 : 0x8B53,
+        INT_VEC3 : 0x8B54,
+        INT_VEC4 : 0x8B55,
+        BOOL : 0x8B56,
+        BOOL_VEC2 : 0x8B57,
+        BOOL_VEC3 : 0x8B58,
+        BOOL_VEC4 : 0x8B59,
+        FLOAT_MAT2 : 0x8B5A,
+        FLOAT_MAT3 : 0x8B5B,
+        FLOAT_MAT4 : 0x8B5C,
+        SAMPLER_2D : 0x8B5E,
+        SAMPLER_CUBE : 0x8B60,
+        VERTEX_ATTRIB_ARRAY_ENABLED : 0x8622,
+        VERTEX_ATTRIB_ARRAY_SIZE : 0x8623,
+        VERTEX_ATTRIB_ARRAY_STRIDE : 0x8624,
+        VERTEX_ATTRIB_ARRAY_TYPE : 0x8625,
+        VERTEX_ATTRIB_ARRAY_NORMALIZED : 0x886A,
+        VERTEX_ATTRIB_ARRAY_POINTER : 0x8645,
+        VERTEX_ATTRIB_ARRAY_BUFFER_BINDING : 0x889F,
+        IMPLEMENTATION_COLOR_READ_TYPE : 0x8B9A,
+        IMPLEMENTATION_COLOR_READ_FORMAT : 0x8B9B,
+        COMPILE_STATUS : 0x8B81,
+        LOW_FLOAT : 0x8DF0,
+        MEDIUM_FLOAT : 0x8DF1,
+        HIGH_FLOAT : 0x8DF2,
+        LOW_INT : 0x8DF3,
+        MEDIUM_INT : 0x8DF4,
+        HIGH_INT : 0x8DF5,
+        FRAMEBUFFER : 0x8D40,
+        RENDERBUFFER : 0x8D41,
+        RGBA4 : 0x8056,
+        RGB5_A1 : 0x8057,
+        RGB565 : 0x8D62,
+        DEPTH_COMPONENT16 : 0x81A5,
+        STENCIL_INDEX : 0x1901,
+        STENCIL_INDEX8 : 0x8D48,
+        DEPTH_STENCIL : 0x84F9,
+        RENDERBUFFER_WIDTH : 0x8D42,
+        RENDERBUFFER_HEIGHT : 0x8D43,
+        RENDERBUFFER_INTERNAL_FORMAT : 0x8D44,
+        RENDERBUFFER_RED_SIZE : 0x8D50,
+        RENDERBUFFER_GREEN_SIZE : 0x8D51,
+        RENDERBUFFER_BLUE_SIZE : 0x8D52,
+        RENDERBUFFER_ALPHA_SIZE : 0x8D53,
+        RENDERBUFFER_DEPTH_SIZE : 0x8D54,
+        RENDERBUFFER_STENCIL_SIZE : 0x8D55,
+        FRAMEBUFFER_ATTACHMENT_OBJECT_TYPE : 0x8CD0,
+        FRAMEBUFFER_ATTACHMENT_OBJECT_NAME : 0x8CD1,
+        FRAMEBUFFER_ATTACHMENT_TEXTURE_LEVEL : 0x8CD2,
+        FRAMEBUFFER_ATTACHMENT_TEXTURE_CUBE_MAP_FACE : 0x8CD3,
+        COLOR_ATTACHMENT0 : 0x8CE0,
+        DEPTH_ATTACHMENT : 0x8D00,
+        STENCIL_ATTACHMENT : 0x8D20,
+        DEPTH_STENCIL_ATTACHMENT : 0x821A,
+        NONE : 0,
+        FRAMEBUFFER_COMPLETE : 0x8CD5,
+        FRAMEBUFFER_INCOMPLETE_ATTACHMENT : 0x8CD6,
+        FRAMEBUFFER_INCOMPLETE_MISSING_ATTACHMENT : 0x8CD7,
+        FRAMEBUFFER_INCOMPLETE_DIMENSIONS : 0x8CD9,
+        FRAMEBUFFER_UNSUPPORTED : 0x8CDD,
+        FRAMEBUFFER_BINDING : 0x8CA6,
+        RENDERBUFFER_BINDING : 0x8CA7,
+        MAX_RENDERBUFFER_SIZE : 0x84E8,
+        INVALID_FRAMEBUFFER_OPERATION : 0x0506,
+        UNPACK_FLIP_Y_WEBGL : 0x9240,
+        UNPACK_PREMULTIPLY_ALPHA_WEBGL : 0x9241,
+        CONTEXT_LOST_WEBGL : 0x9242,
+        UNPACK_COLORSPACE_CONVERSION_WEBGL : 0x9243,
+        BROWSER_DEFAULT_WEBGL : 0x9244,
+
+        // WEBGL_compressed_texture_s3tc
+        COMPRESSED_RGB_S3TC_DXT1_EXT : 0x83F0,
+        COMPRESSED_RGBA_S3TC_DXT1_EXT : 0x83F1,
+        COMPRESSED_RGBA_S3TC_DXT3_EXT : 0x83F2,
+        COMPRESSED_RGBA_S3TC_DXT5_EXT : 0x83F3,
+
+        // WEBGL_compressed_texture_pvrtc
+        COMPRESSED_RGB_PVRTC_4BPPV1_IMG : 0x8C00,
+        COMPRESSED_RGB_PVRTC_2BPPV1_IMG : 0x8C01,
+        COMPRESSED_RGBA_PVRTC_4BPPV1_IMG : 0x8C02,
+        COMPRESSED_RGBA_PVRTC_2BPPV1_IMG : 0x8C03,
+
+        // WEBGL_compressed_texture_etc1
+        COMPRESSED_RGB_ETC1_WEBGL : 0x8D64,
+
+        // EXT_color_buffer_half_float
+        HALF_FLOAT_OES : 0x8D61,
+
+        // Desktop OpenGL
+        DOUBLE : 0x140A,
+
+        // WebGL 2
+        READ_BUFFER : 0x0C02,
+        UNPACK_ROW_LENGTH : 0x0CF2,
+        UNPACK_SKIP_ROWS : 0x0CF3,
+        UNPACK_SKIP_PIXELS : 0x0CF4,
+        PACK_ROW_LENGTH : 0x0D02,
+        PACK_SKIP_ROWS : 0x0D03,
+        PACK_SKIP_PIXELS : 0x0D04,
+        COLOR : 0x1800,
+        DEPTH : 0x1801,
+        STENCIL : 0x1802,
+        RED : 0x1903,
+        RGB8 : 0x8051,
+        RGBA8 : 0x8058,
+        RGB10_A2 : 0x8059,
+        TEXTURE_BINDING_3D : 0x806A,
+        UNPACK_SKIP_IMAGES : 0x806D,
+        UNPACK_IMAGE_HEIGHT : 0x806E,
+        TEXTURE_3D : 0x806F,
+        TEXTURE_WRAP_R : 0x8072,
+        MAX_3D_TEXTURE_SIZE : 0x8073,
+        UNSIGNED_INT_2_10_10_10_REV : 0x8368,
+        MAX_ELEMENTS_VERTICES : 0x80E8,
+        MAX_ELEMENTS_INDICES : 0x80E9,
+        TEXTURE_MIN_LOD : 0x813A,
+        TEXTURE_MAX_LOD : 0x813B,
+        TEXTURE_BASE_LEVEL : 0x813C,
+        TEXTURE_MAX_LEVEL : 0x813D,
+        MIN : 0x8007,
+        MAX : 0x8008,
+        DEPTH_COMPONENT24 : 0x81A6,
+        MAX_TEXTURE_LOD_BIAS : 0x84FD,
+        TEXTURE_COMPARE_MODE : 0x884C,
+        TEXTURE_COMPARE_FUNC : 0x884D,
+        CURRENT_QUERY : 0x8865,
+        QUERY_RESULT : 0x8866,
+        QUERY_RESULT_AVAILABLE : 0x8867,
+        STREAM_READ : 0x88E1,
+        STREAM_COPY : 0x88E2,
+        STATIC_READ : 0x88E5,
+        STATIC_COPY : 0x88E6,
+        DYNAMIC_READ : 0x88E9,
+        DYNAMIC_COPY : 0x88EA,
+        MAX_DRAW_BUFFERS : 0x8824,
+        DRAW_BUFFER0 : 0x8825,
+        DRAW_BUFFER1 : 0x8826,
+        DRAW_BUFFER2 : 0x8827,
+        DRAW_BUFFER3 : 0x8828,
+        DRAW_BUFFER4 : 0x8829,
+        DRAW_BUFFER5 : 0x882A,
+        DRAW_BUFFER6 : 0x882B,
+        DRAW_BUFFER7 : 0x882C,
+        DRAW_BUFFER8 : 0x882D,
+        DRAW_BUFFER9 : 0x882E,
+        DRAW_BUFFER10 : 0x882F,
+        DRAW_BUFFER11 : 0x8830,
+        DRAW_BUFFER12 : 0x8831,
+        DRAW_BUFFER13 : 0x8832,
+        DRAW_BUFFER14 : 0x8833,
+        DRAW_BUFFER15 : 0x8834,
+        MAX_FRAGMENT_UNIFORM_COMPONENTS : 0x8B49,
+        MAX_VERTEX_UNIFORM_COMPONENTS : 0x8B4A,
+        SAMPLER_3D : 0x8B5F,
+        SAMPLER_2D_SHADOW : 0x8B62,
+        FRAGMENT_SHADER_DERIVATIVE_HINT : 0x8B8B,
+        PIXEL_PACK_BUFFER : 0x88EB,
+        PIXEL_UNPACK_BUFFER : 0x88EC,
+        PIXEL_PACK_BUFFER_BINDING : 0x88ED,
+        PIXEL_UNPACK_BUFFER_BINDING : 0x88EF,
+        FLOAT_MAT2x3 : 0x8B65,
+        FLOAT_MAT2x4 : 0x8B66,
+        FLOAT_MAT3x2 : 0x8B67,
+        FLOAT_MAT3x4 : 0x8B68,
+        FLOAT_MAT4x2 : 0x8B69,
+        FLOAT_MAT4x3 : 0x8B6A,
+        SRGB : 0x8C40,
+        SRGB8 : 0x8C41,
+        SRGB8_ALPHA8 : 0x8C43,
+        COMPARE_REF_TO_TEXTURE : 0x884E,
+        RGBA32F : 0x8814,
+        RGB32F : 0x8815,
+        RGBA16F : 0x881A,
+        RGB16F : 0x881B,
+        VERTEX_ATTRIB_ARRAY_INTEGER : 0x88FD,
+        MAX_ARRAY_TEXTURE_LAYERS : 0x88FF,
+        MIN_PROGRAM_TEXEL_OFFSET : 0x8904,
+        MAX_PROGRAM_TEXEL_OFFSET : 0x8905,
+        MAX_VARYING_COMPONENTS : 0x8B4B,
+        TEXTURE_2D_ARRAY : 0x8C1A,
+        TEXTURE_BINDING_2D_ARRAY : 0x8C1D,
+        R11F_G11F_B10F : 0x8C3A,
+        UNSIGNED_INT_10F_11F_11F_REV : 0x8C3B,
+        RGB9_E5 : 0x8C3D,
+        UNSIGNED_INT_5_9_9_9_REV : 0x8C3E,
+        TRANSFORM_FEEDBACK_BUFFER_MODE : 0x8C7F,
+        MAX_TRANSFORM_FEEDBACK_SEPARATE_COMPONENTS : 0x8C80,
+        TRANSFORM_FEEDBACK_VARYINGS : 0x8C83,
+        TRANSFORM_FEEDBACK_BUFFER_START : 0x8C84,
+        TRANSFORM_FEEDBACK_BUFFER_SIZE : 0x8C85,
+        TRANSFORM_FEEDBACK_PRIMITIVES_WRITTEN : 0x8C88,
+        RASTERIZER_DISCARD : 0x8C89,
+        MAX_TRANSFORM_FEEDBACK_INTERLEAVED_COMPONENTS : 0x8C8A,
+        MAX_TRANSFORM_FEEDBACK_SEPARATE_ATTRIBS : 0x8C8B,
+        INTERLEAVED_ATTRIBS : 0x8C8C,
+        SEPARATE_ATTRIBS : 0x8C8D,
+        TRANSFORM_FEEDBACK_BUFFER : 0x8C8E,
+        TRANSFORM_FEEDBACK_BUFFER_BINDING : 0x8C8F,
+        RGBA32UI : 0x8D70,
+        RGB32UI : 0x8D71,
+        RGBA16UI : 0x8D76,
+        RGB16UI : 0x8D77,
+        RGBA8UI : 0x8D7C,
+        RGB8UI : 0x8D7D,
+        RGBA32I : 0x8D82,
+        RGB32I : 0x8D83,
+        RGBA16I : 0x8D88,
+        RGB16I : 0x8D89,
+        RGBA8I : 0x8D8E,
+        RGB8I : 0x8D8F,
+        RED_INTEGER : 0x8D94,
+        RGB_INTEGER : 0x8D98,
+        RGBA_INTEGER : 0x8D99,
+        SAMPLER_2D_ARRAY : 0x8DC1,
+        SAMPLER_2D_ARRAY_SHADOW : 0x8DC4,
+        SAMPLER_CUBE_SHADOW : 0x8DC5,
+        UNSIGNED_INT_VEC2 : 0x8DC6,
+        UNSIGNED_INT_VEC3 : 0x8DC7,
+        UNSIGNED_INT_VEC4 : 0x8DC8,
+        INT_SAMPLER_2D : 0x8DCA,
+        INT_SAMPLER_3D : 0x8DCB,
+        INT_SAMPLER_CUBE : 0x8DCC,
+        INT_SAMPLER_2D_ARRAY : 0x8DCF,
+        UNSIGNED_INT_SAMPLER_2D : 0x8DD2,
+        UNSIGNED_INT_SAMPLER_3D : 0x8DD3,
+        UNSIGNED_INT_SAMPLER_CUBE : 0x8DD4,
+        UNSIGNED_INT_SAMPLER_2D_ARRAY : 0x8DD7,
+        DEPTH_COMPONENT32F : 0x8CAC,
+        DEPTH32F_STENCIL8 : 0x8CAD,
+        FLOAT_32_UNSIGNED_INT_24_8_REV : 0x8DAD,
+        FRAMEBUFFER_ATTACHMENT_COLOR_ENCODING : 0x8210,
+        FRAMEBUFFER_ATTACHMENT_COMPONENT_TYPE : 0x8211,
+        FRAMEBUFFER_ATTACHMENT_RED_SIZE : 0x8212,
+        FRAMEBUFFER_ATTACHMENT_GREEN_SIZE : 0x8213,
+        FRAMEBUFFER_ATTACHMENT_BLUE_SIZE : 0x8214,
+        FRAMEBUFFER_ATTACHMENT_ALPHA_SIZE : 0x8215,
+        FRAMEBUFFER_ATTACHMENT_DEPTH_SIZE : 0x8216,
+        FRAMEBUFFER_ATTACHMENT_STENCIL_SIZE : 0x8217,
+        FRAMEBUFFER_DEFAULT : 0x8218,
+        UNSIGNED_INT_24_8 : 0x84FA,
+        DEPTH24_STENCIL8 : 0x88F0,
+        UNSIGNED_NORMALIZED : 0x8C17,
+        DRAW_FRAMEBUFFER_BINDING : 0x8CA6, // Same as FRAMEBUFFER_BINDING
+        READ_FRAMEBUFFER : 0x8CA8,
+        DRAW_FRAMEBUFFER : 0x8CA9,
+        READ_FRAMEBUFFER_BINDING : 0x8CAA,
+        RENDERBUFFER_SAMPLES : 0x8CAB,
+        FRAMEBUFFER_ATTACHMENT_TEXTURE_LAYER : 0x8CD4,
+        MAX_COLOR_ATTACHMENTS : 0x8CDF,
+        COLOR_ATTACHMENT1 : 0x8CE1,
+        COLOR_ATTACHMENT2 : 0x8CE2,
+        COLOR_ATTACHMENT3 : 0x8CE3,
+        COLOR_ATTACHMENT4 : 0x8CE4,
+        COLOR_ATTACHMENT5 : 0x8CE5,
+        COLOR_ATTACHMENT6 : 0x8CE6,
+        COLOR_ATTACHMENT7 : 0x8CE7,
+        COLOR_ATTACHMENT8 : 0x8CE8,
+        COLOR_ATTACHMENT9 : 0x8CE9,
+        COLOR_ATTACHMENT10 : 0x8CEA,
+        COLOR_ATTACHMENT11 : 0x8CEB,
+        COLOR_ATTACHMENT12 : 0x8CEC,
+        COLOR_ATTACHMENT13 : 0x8CED,
+        COLOR_ATTACHMENT14 : 0x8CEE,
+        COLOR_ATTACHMENT15 : 0x8CEF,
+        FRAMEBUFFER_INCOMPLETE_MULTISAMPLE : 0x8D56,
+        MAX_SAMPLES : 0x8D57,
+        HALF_FLOAT : 0x140B,
+        RG : 0x8227,
+        RG_INTEGER : 0x8228,
+        R8 : 0x8229,
+        RG8 : 0x822B,
+        R16F : 0x822D,
+        R32F : 0x822E,
+        RG16F : 0x822F,
+        RG32F : 0x8230,
+        R8I : 0x8231,
+        R8UI : 0x8232,
+        R16I : 0x8233,
+        R16UI : 0x8234,
+        R32I : 0x8235,
+        R32UI : 0x8236,
+        RG8I : 0x8237,
+        RG8UI : 0x8238,
+        RG16I : 0x8239,
+        RG16UI : 0x823A,
+        RG32I : 0x823B,
+        RG32UI : 0x823C,
+        VERTEX_ARRAY_BINDING : 0x85B5,
+        R8_SNORM : 0x8F94,
+        RG8_SNORM : 0x8F95,
+        RGB8_SNORM : 0x8F96,
+        RGBA8_SNORM : 0x8F97,
+        SIGNED_NORMALIZED : 0x8F9C,
+        COPY_READ_BUFFER : 0x8F36,
+        COPY_WRITE_BUFFER : 0x8F37,
+        COPY_READ_BUFFER_BINDING : 0x8F36, // Same as COPY_READ_BUFFER
+        COPY_WRITE_BUFFER_BINDING : 0x8F37, // Same as COPY_WRITE_BUFFER
+        UNIFORM_BUFFER : 0x8A11,
+        UNIFORM_BUFFER_BINDING : 0x8A28,
+        UNIFORM_BUFFER_START : 0x8A29,
+        UNIFORM_BUFFER_SIZE : 0x8A2A,
+        MAX_VERTEX_UNIFORM_BLOCKS : 0x8A2B,
+        MAX_FRAGMENT_UNIFORM_BLOCKS : 0x8A2D,
+        MAX_COMBINED_UNIFORM_BLOCKS : 0x8A2E,
+        MAX_UNIFORM_BUFFER_BINDINGS : 0x8A2F,
+        MAX_UNIFORM_BLOCK_SIZE : 0x8A30,
+        MAX_COMBINED_VERTEX_UNIFORM_COMPONENTS : 0x8A31,
+        MAX_COMBINED_FRAGMENT_UNIFORM_COMPONENTS : 0x8A33,
+        UNIFORM_BUFFER_OFFSET_ALIGNMENT : 0x8A34,
+        ACTIVE_UNIFORM_BLOCKS : 0x8A36,
+        UNIFORM_TYPE : 0x8A37,
+        UNIFORM_SIZE : 0x8A38,
+        UNIFORM_BLOCK_INDEX : 0x8A3A,
+        UNIFORM_OFFSET : 0x8A3B,
+        UNIFORM_ARRAY_STRIDE : 0x8A3C,
+        UNIFORM_MATRIX_STRIDE : 0x8A3D,
+        UNIFORM_IS_ROW_MAJOR : 0x8A3E,
+        UNIFORM_BLOCK_BINDING : 0x8A3F,
+        UNIFORM_BLOCK_DATA_SIZE : 0x8A40,
+        UNIFORM_BLOCK_ACTIVE_UNIFORMS : 0x8A42,
+        UNIFORM_BLOCK_ACTIVE_UNIFORM_INDICES : 0x8A43,
+        UNIFORM_BLOCK_REFERENCED_BY_VERTEX_SHADER : 0x8A44,
+        UNIFORM_BLOCK_REFERENCED_BY_FRAGMENT_SHADER : 0x8A46,
+        INVALID_INDEX : 0xFFFFFFFF,
+        MAX_VERTEX_OUTPUT_COMPONENTS : 0x9122,
+        MAX_FRAGMENT_INPUT_COMPONENTS : 0x9125,
+        MAX_SERVER_WAIT_TIMEOUT : 0x9111,
+        OBJECT_TYPE : 0x9112,
+        SYNC_CONDITION : 0x9113,
+        SYNC_STATUS : 0x9114,
+        SYNC_FLAGS : 0x9115,
+        SYNC_FENCE : 0x9116,
+        SYNC_GPU_COMMANDS_COMPLETE : 0x9117,
+        UNSIGNALED : 0x9118,
+        SIGNALED : 0x9119,
+        ALREADY_SIGNALED : 0x911A,
+        TIMEOUT_EXPIRED : 0x911B,
+        CONDITION_SATISFIED : 0x911C,
+        WAIT_FAILED : 0x911D,
+        SYNC_FLUSH_COMMANDS_BIT : 0x00000001,
+        VERTEX_ATTRIB_ARRAY_DIVISOR : 0x88FE,
+        ANY_SAMPLES_PASSED : 0x8C2F,
+        ANY_SAMPLES_PASSED_CONSERVATIVE : 0x8D6A,
+        SAMPLER_BINDING : 0x8919,
+        RGB10_A2UI : 0x906F,
+        INT_2_10_10_10_REV : 0x8D9F,
+        TRANSFORM_FEEDBACK : 0x8E22,
+        TRANSFORM_FEEDBACK_PAUSED : 0x8E23,
+        TRANSFORM_FEEDBACK_ACTIVE : 0x8E24,
+        TRANSFORM_FEEDBACK_BINDING : 0x8E25,
+        COMPRESSED_R11_EAC : 0x9270,
+        COMPRESSED_SIGNED_R11_EAC : 0x9271,
+        COMPRESSED_RG11_EAC : 0x9272,
+        COMPRESSED_SIGNED_RG11_EAC : 0x9273,
+        COMPRESSED_RGB8_ETC2 : 0x9274,
+        COMPRESSED_SRGB8_ETC2 : 0x9275,
+        COMPRESSED_RGB8_PUNCHTHROUGH_ALPHA1_ETC2 : 0x9276,
+        COMPRESSED_SRGB8_PUNCHTHROUGH_ALPHA1_ETC2 : 0x9277,
+        COMPRESSED_RGBA8_ETC2_EAC : 0x9278,
+        COMPRESSED_SRGB8_ALPHA8_ETC2_EAC : 0x9279,
+        TEXTURE_IMMUTABLE_FORMAT : 0x912F,
+        MAX_ELEMENT_INDEX : 0x8D6B,
+        TEXTURE_IMMUTABLE_LEVELS : 0x82DF,
+
+        // Extensions
+        MAX_TEXTURE_MAX_ANISOTROPY_EXT : 0x84FF
+    };
+
+    return freezeObject(WebGLConstants);
+});
+
+define('Core/ComponentDatatype',[
+        './defaultValue',
+        './defined',
+        './DeveloperError',
+        './FeatureDetection',
+        './freezeObject',
+        './WebGLConstants'
+    ], function(
+        defaultValue,
+        defined,
+        DeveloperError,
+        FeatureDetection,
+        freezeObject,
+        WebGLConstants) {
+    'use strict';
+
+    // Bail out if the browser doesn't support typed arrays, to prevent the setup function
+    // from failing, since we won't be able to create a WebGL context anyway.
+    if (!FeatureDetection.supportsTypedArrays()) {
+        return {};
+    }
+
+    /**
+     * WebGL component datatypes.  Components are intrinsics,
+     * which form attributes, which form vertices.
+     *
+     * @exports ComponentDatatype
+     */
+    var ComponentDatatype = {
+        /**
+         * 8-bit signed byte corresponding to <code>gl.BYTE</code> and the type
+         * of an element in <code>Int8Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        BYTE : WebGLConstants.BYTE,
+
+        /**
+         * 8-bit unsigned byte corresponding to <code>UNSIGNED_BYTE</code> and the type
+         * of an element in <code>Uint8Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        UNSIGNED_BYTE : WebGLConstants.UNSIGNED_BYTE,
+
+        /**
+         * 16-bit signed short corresponding to <code>SHORT</code> and the type
+         * of an element in <code>Int16Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        SHORT : WebGLConstants.SHORT,
+
+        /**
+         * 16-bit unsigned short corresponding to <code>UNSIGNED_SHORT</code> and the type
+         * of an element in <code>Uint16Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        UNSIGNED_SHORT : WebGLConstants.UNSIGNED_SHORT,
+
+        /**
+         * 32-bit signed int corresponding to <code>INT</code> and the type
+         * of an element in <code>Int32Array</code>.
+         *
+         * @memberOf ComponentDatatype
+         *
+         * @type {Number}
+         * @constant
+         */
+        INT : WebGLConstants.INT,
+
+        /**
+         * 32-bit unsigned int corresponding to <code>UNSIGNED_INT</code> and the type
+         * of an element in <code>Uint32Array</code>.
+         *
+         * @memberOf ComponentDatatype
+         *
+         * @type {Number}
+         * @constant
+         */
+        UNSIGNED_INT : WebGLConstants.UNSIGNED_INT,
+
+        /**
+         * 32-bit floating-point corresponding to <code>FLOAT</code> and the type
+         * of an element in <code>Float32Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        FLOAT : WebGLConstants.FLOAT,
+
+        /**
+         * 64-bit floating-point corresponding to <code>gl.DOUBLE</code> (in Desktop OpenGL;
+         * this is not supported in WebGL, and is emulated in Cesium via {@link GeometryPipeline.encodeAttribute})
+         * and the type of an element in <code>Float64Array</code>.
+         *
+         * @memberOf ComponentDatatype
+         *
+         * @type {Number}
+         * @constant
+         * @default 0x140A
+         */
+        DOUBLE : WebGLConstants.DOUBLE
+    };
+
+    /**
+     * Returns the size, in bytes, of the corresponding datatype.
+     *
+     * @param {ComponentDatatype} componentDatatype The component datatype to get the size of.
+     * @returns {Number} The size in bytes.
+     *
+     * @exception {DeveloperError} componentDatatype is not a valid value.
+     *
+     * @example
+     * // Returns Int8Array.BYTES_PER_ELEMENT
+     * var size = Cesium.ComponentDatatype.getSizeInBytes(Cesium.ComponentDatatype.BYTE);
+     */
+    ComponentDatatype.getSizeInBytes = function(componentDatatype){
+                if (!defined(componentDatatype)) {
+            throw new DeveloperError('value is required.');
+        }
+        
+        switch (componentDatatype) {
+        case ComponentDatatype.BYTE:
+            return Int8Array.BYTES_PER_ELEMENT;
+        case ComponentDatatype.UNSIGNED_BYTE:
+            return Uint8Array.BYTES_PER_ELEMENT;
+        case ComponentDatatype.SHORT:
+            return Int16Array.BYTES_PER_ELEMENT;
+        case ComponentDatatype.UNSIGNED_SHORT:
+            return Uint16Array.BYTES_PER_ELEMENT;
+        case ComponentDatatype.INT:
+            return Int32Array.BYTES_PER_ELEMENT;
+        case ComponentDatatype.UNSIGNED_INT:
+            return Uint32Array.BYTES_PER_ELEMENT;
+        case ComponentDatatype.FLOAT:
+            return Float32Array.BYTES_PER_ELEMENT;
+        case ComponentDatatype.DOUBLE:
+            return Float64Array.BYTES_PER_ELEMENT;
+                default:
+            throw new DeveloperError('componentDatatype is not a valid value.');
+                }
+    };
+
+    /**
+     * Gets the {@link ComponentDatatype} for the provided TypedArray instance.
+     *
+     * @param {TypedArray} array The typed array.
+     * @returns {ComponentDatatype} The ComponentDatatype for the provided array, or undefined if the array is not a TypedArray.
+     */
+    ComponentDatatype.fromTypedArray = function(array) {
+        if (array instanceof Int8Array) {
+            return ComponentDatatype.BYTE;
+        }
+        if (array instanceof Uint8Array) {
+            return ComponentDatatype.UNSIGNED_BYTE;
+        }
+        if (array instanceof Int16Array) {
+            return ComponentDatatype.SHORT;
+        }
+        if (array instanceof Uint16Array) {
+            return ComponentDatatype.UNSIGNED_SHORT;
+        }
+        if (array instanceof Int32Array) {
+            return ComponentDatatype.INT;
+        }
+        if (array instanceof Uint32Array) {
+            return ComponentDatatype.UNSIGNED_INT;
+        }
+        if (array instanceof Float32Array) {
+            return ComponentDatatype.FLOAT;
+        }
+        if (array instanceof Float64Array) {
+            return ComponentDatatype.DOUBLE;
+        }
+    };
+
+    /**
+     * Validates that the provided component datatype is a valid {@link ComponentDatatype}
+     *
+     * @param {ComponentDatatype} componentDatatype The component datatype to validate.
+     * @returns {Boolean} <code>true</code> if the provided component datatype is a valid value; otherwise, <code>false</code>.
+     *
+     * @example
+     * if (!Cesium.ComponentDatatype.validate(componentDatatype)) {
+     *   throw new Cesium.DeveloperError('componentDatatype must be a valid value.');
+     * }
+     */
+    ComponentDatatype.validate = function(componentDatatype) {
+        return defined(componentDatatype) &&
+               (componentDatatype === ComponentDatatype.BYTE ||
+                componentDatatype === ComponentDatatype.UNSIGNED_BYTE ||
+                componentDatatype === ComponentDatatype.SHORT ||
+                componentDatatype === ComponentDatatype.UNSIGNED_SHORT ||
+                componentDatatype === ComponentDatatype.INT ||
+                componentDatatype === ComponentDatatype.UNSIGNED_INT ||
+                componentDatatype === ComponentDatatype.FLOAT ||
+                componentDatatype === ComponentDatatype.DOUBLE);
+    };
+
+    /**
+     * Creates a typed array corresponding to component data type.
+     *
+     * @param {ComponentDatatype} componentDatatype The component data type.
+     * @param {Number|Array} valuesOrLength The length of the array to create or an array.
+     * @returns {Int8Array|Uint8Array|Int16Array|Uint16Array|Int32Array|Uint32Array|Float32Array|Float64Array} A typed array.
+     *
+     * @exception {DeveloperError} componentDatatype is not a valid value.
+     *
+     * @example
+     * // creates a Float32Array with length of 100
+     * var typedArray = Cesium.ComponentDatatype.createTypedArray(Cesium.ComponentDatatype.FLOAT, 100);
+     */
+    ComponentDatatype.createTypedArray = function(componentDatatype, valuesOrLength) {
+                if (!defined(componentDatatype)) {
+            throw new DeveloperError('componentDatatype is required.');
+        }
+        if (!defined(valuesOrLength)) {
+            throw new DeveloperError('valuesOrLength is required.');
+        }
+        
+        switch (componentDatatype) {
+        case ComponentDatatype.BYTE:
+            return new Int8Array(valuesOrLength);
+        case ComponentDatatype.UNSIGNED_BYTE:
+            return new Uint8Array(valuesOrLength);
+        case ComponentDatatype.SHORT:
+            return new Int16Array(valuesOrLength);
+        case ComponentDatatype.UNSIGNED_SHORT:
+            return new Uint16Array(valuesOrLength);
+        case ComponentDatatype.INT:
+            return new Int32Array(valuesOrLength);
+        case ComponentDatatype.UNSIGNED_INT:
+            return new Uint32Array(valuesOrLength);
+        case ComponentDatatype.FLOAT:
+            return new Float32Array(valuesOrLength);
+        case ComponentDatatype.DOUBLE:
+            return new Float64Array(valuesOrLength);
+                default:
+            throw new DeveloperError('componentDatatype is not a valid value.');
+                }
+    };
+
+    /**
+     * Creates a typed view of an array of bytes.
+     *
+     * @param {ComponentDatatype} componentDatatype The type of the view to create.
+     * @param {ArrayBuffer} buffer The buffer storage to use for the view.
+     * @param {Number} [byteOffset] The offset, in bytes, to the first element in the view.
+     * @param {Number} [length] The number of elements in the view.
+     * @returns {Int8Array|Uint8Array|Int16Array|Uint16Array|Int32Array|Uint32Array|Float32Array|Float64Array} A typed array view of the buffer.
+     *
+     * @exception {DeveloperError} componentDatatype is not a valid value.
+     */
+    ComponentDatatype.createArrayBufferView = function(componentDatatype, buffer, byteOffset, length) {
+                if (!defined(componentDatatype)) {
+            throw new DeveloperError('componentDatatype is required.');
+        }
+        if (!defined(buffer)) {
+            throw new DeveloperError('buffer is required.');
+        }
+        
+        byteOffset = defaultValue(byteOffset, 0);
+        length = defaultValue(length, (buffer.byteLength - byteOffset) / ComponentDatatype.getSizeInBytes(componentDatatype));
+
+        switch (componentDatatype) {
+        case ComponentDatatype.BYTE:
+            return new Int8Array(buffer, byteOffset, length);
+        case ComponentDatatype.UNSIGNED_BYTE:
+            return new Uint8Array(buffer, byteOffset, length);
+        case ComponentDatatype.SHORT:
+            return new Int16Array(buffer, byteOffset, length);
+        case ComponentDatatype.UNSIGNED_SHORT:
+            return new Uint16Array(buffer, byteOffset, length);
+        case ComponentDatatype.INT:
+            return new Int32Array(buffer, byteOffset, length);
+        case ComponentDatatype.UNSIGNED_INT:
+            return new Uint32Array(buffer, byteOffset, length);
+        case ComponentDatatype.FLOAT:
+            return new Float32Array(buffer, byteOffset, length);
+        case ComponentDatatype.DOUBLE:
+            return new Float64Array(buffer, byteOffset, length);
+                default:
+            throw new DeveloperError('componentDatatype is not a valid value.');
+                }
+    };
+
+    /**
+     * Get the ComponentDatatype from its name.
+     *
+     * @param {String} name The name of the ComponentDatatype.
+     * @returns {ComponentDatatype} The ComponentDatatype.
+     *
+     * @exception {DeveloperError} name is not a valid value.
+     */
+    ComponentDatatype.fromName = function(name) {
+        switch (name) {
+            case 'BYTE':
+                return ComponentDatatype.BYTE;
+            case 'UNSIGNED_BYTE':
+                return ComponentDatatype.UNSIGNED_BYTE;
+            case 'SHORT':
+                return ComponentDatatype.SHORT;
+            case 'UNSIGNED_SHORT':
+                return ComponentDatatype.UNSIGNED_SHORT;
+            case 'INT':
+                return ComponentDatatype.INT;
+            case 'UNSIGNED_INT':
+                return ComponentDatatype.UNSIGNED_INT;
+            case 'FLOAT':
+                return ComponentDatatype.FLOAT;
+            case 'DOUBLE':
+                return ComponentDatatype.DOUBLE;
+                        default:
+                throw new DeveloperError('name is not a valid value.');
+                    }
+    };
+
+    return freezeObject(ComponentDatatype);
+});
+
+/*
+  I've wrapped Makoto Matsumoto and Takuji Nishimura's code in a namespace
+  so it's better encapsulated. Now you can have multiple random number generators
+  and they won't stomp all over eachother's state.
+
+  If you want to use this as a substitute for Math.random(), use the random()
+  method like so:
+
+  var m = new MersenneTwister();
+  var randomNumber = m.random();
+
+  You can also call the other genrand_{foo}() methods on the instance.
+
+  If you want to use a specific seed in order to get a repeatable random
+  sequence, pass an integer into the constructor:
+
+  var m = new MersenneTwister(123);
+
+  and that will always produce the same random sequence.
+
+  Sean McCullough (banksean@gmail.com)
+*/
+
+/*
+   A C-program for MT19937, with initialization improved 2002/1/26.
+   Coded by Takuji Nishimura and Makoto Matsumoto.
+
+   Before using, initialize the state by using init_genrand(seed)
+   or init_by_array(init_key, key_length).
+*/
+/**
+@license
+mersenne-twister.js - https://gist.github.com/banksean/300494
+
+   Copyright (C) 1997 - 2002, Makoto Matsumoto and Takuji Nishimura,
+   All rights reserved.
+
+   Redistribution and use in source and binary forms, with or without
+   modification, are permitted provided that the following conditions
+   are met:
+
+     1. Redistributions of source code must retain the above copyright
+        notice, this list of conditions and the following disclaimer.
+
+     2. Redistributions in binary form must reproduce the above copyright
+        notice, this list of conditions and the following disclaimer in the
+        documentation and/or other materials provided with the distribution.
+
+     3. The names of its contributors may not be used to endorse or promote
+        products derived from this software without specific prior written
+        permission.
+
+   THIS SOFTWARE IS PROVIDED BY THE COPYRIGHT HOLDERS AND CONTRIBUTORS
+   "AS IS" AND ANY EXPRESS OR IMPLIED WARRANTIES, INCLUDING, BUT NOT
+   LIMITED TO, THE IMPLIED WARRANTIES OF MERCHANTABILITY AND FITNESS FOR
+   A PARTICULAR PURPOSE ARE DISCLAIMED.  IN NO EVENT SHALL THE COPYRIGHT OWNER OR
+   CONTRIBUTORS BE LIABLE FOR ANY DIRECT, INDIRECT, INCIDENTAL, SPECIAL,
+   EXEMPLARY, OR CONSEQUENTIAL DAMAGES (INCLUDING, BUT NOT LIMITED TO,
+   PROCUREMENT OF SUBSTITUTE GOODS OR SERVICES; LOSS OF USE, DATA, OR
+   PROFITS; OR BUSINESS INTERRUPTION) HOWEVER CAUSED AND ON ANY THEORY OF
+   LIABILITY, WHETHER IN CONTRACT, STRICT LIABILITY, OR TORT (INCLUDING
+   NEGLIGENCE OR OTHERWISE) ARISING IN ANY WAY OUT OF THE USE OF THIS
+   SOFTWARE, EVEN IF ADVISED OF THE POSSIBILITY OF SUCH DAMAGE.
+*/
+/*
+   Any feedback is very welcome.
+   http://www.math.sci.hiroshima-u.ac.jp/~m-mat/MT/emt.html
+   email: m-mat @ math.sci.hiroshima-u.ac.jp (remove space)
+*/
+define('ThirdParty/mersenne-twister',[],function() {
+var MersenneTwister = function(seed) {
+  if (seed == undefined) {
+    seed = new Date().getTime();
+  }
+  /* Period parameters */
+  this.N = 624;
+  this.M = 397;
+  this.MATRIX_A = 0x9908b0df;   /* constant vector a */
+  this.UPPER_MASK = 0x80000000; /* most significant w-r bits */
+  this.LOWER_MASK = 0x7fffffff; /* least significant r bits */
+
+  this.mt = new Array(this.N); /* the array for the state vector */
+  this.mti=this.N+1; /* mti==N+1 means mt[N] is not initialized */
+
+  this.init_genrand(seed);
+}
+
+/* initializes mt[N] with a seed */
+MersenneTwister.prototype.init_genrand = function(s) {
+  this.mt[0] = s >>> 0;
+  for (this.mti=1; this.mti<this.N; this.mti++) {
+      var s = this.mt[this.mti-1] ^ (this.mt[this.mti-1] >>> 30);
+   this.mt[this.mti] = (((((s & 0xffff0000) >>> 16) * 1812433253) << 16) + (s & 0x0000ffff) * 1812433253)
+  + this.mti;
+      /* See Knuth TAOCP Vol2. 3rd Ed. P.106 for multiplier. */
+      /* In the previous versions, MSBs of the seed affect   */
+      /* only MSBs of the array mt[].                        */
+      /* 2002/01/09 modified by Makoto Matsumoto             */
+      this.mt[this.mti] >>>= 0;
+      /* for >32 bit machines */
+  }
+}
+
+/* initialize by an array with array-length */
+/* init_key is the array for initializing keys */
+/* key_length is its length */
+/* slight change for C++, 2004/2/26 */
+//MersenneTwister.prototype.init_by_array = function(init_key, key_length) {
+//  var i, j, k;
+//  this.init_genrand(19650218);
+//  i=1; j=0;
+//  k = (this.N>key_length ? this.N : key_length);
+//  for (; k; k--) {
+//    var s = this.mt[i-1] ^ (this.mt[i-1] >>> 30)
+//    this.mt[i] = (this.mt[i] ^ (((((s & 0xffff0000) >>> 16) * 1664525) << 16) + ((s & 0x0000ffff) * 1664525)))
+//      + init_key[j] + j; /* non linear */
+//    this.mt[i] >>>= 0; /* for WORDSIZE > 32 machines */
+//    i++; j++;
+//    if (i>=this.N) { this.mt[0] = this.mt[this.N-1]; i=1; }
+//    if (j>=key_length) j=0;
+//  }
+//  for (k=this.N-1; k; k--) {
+//    var s = this.mt[i-1] ^ (this.mt[i-1] >>> 30);
+//    this.mt[i] = (this.mt[i] ^ (((((s & 0xffff0000) >>> 16) * 1566083941) << 16) + (s & 0x0000ffff) * 1566083941))
+//      - i; /* non linear */
+//    this.mt[i] >>>= 0; /* for WORDSIZE > 32 machines */
+//    i++;
+//    if (i>=this.N) { this.mt[0] = this.mt[this.N-1]; i=1; }
+//  }
+//
+//  this.mt[0] = 0x80000000; /* MSB is 1; assuring non-zero initial array */
+//}
+
+/* generates a random number on [0,0xffffffff]-interval */
+MersenneTwister.prototype.genrand_int32 = function() {
+  var y;
+  var mag01 = new Array(0x0, this.MATRIX_A);
+  /* mag01[x] = x * MATRIX_A  for x=0,1 */
+
+  if (this.mti >= this.N) { /* generate N words at one time */
+    var kk;
+
+    if (this.mti == this.N+1)   /* if init_genrand() has not been called, */
+      this.init_genrand(5489); /* a default initial seed is used */
+
+    for (kk=0;kk<this.N-this.M;kk++) {
+      y = (this.mt[kk]&this.UPPER_MASK)|(this.mt[kk+1]&this.LOWER_MASK);
+      this.mt[kk] = this.mt[kk+this.M] ^ (y >>> 1) ^ mag01[y & 0x1];
+    }
+    for (;kk<this.N-1;kk++) {
+      y = (this.mt[kk]&this.UPPER_MASK)|(this.mt[kk+1]&this.LOWER_MASK);
+      this.mt[kk] = this.mt[kk+(this.M-this.N)] ^ (y >>> 1) ^ mag01[y & 0x1];
+    }
+    y = (this.mt[this.N-1]&this.UPPER_MASK)|(this.mt[0]&this.LOWER_MASK);
+    this.mt[this.N-1] = this.mt[this.M-1] ^ (y >>> 1) ^ mag01[y & 0x1];
+
+    this.mti = 0;
+  }
+
+  y = this.mt[this.mti++];
+
+  /* Tempering */
+  y ^= (y >>> 11);
+  y ^= (y << 7) & 0x9d2c5680;
+  y ^= (y << 15) & 0xefc60000;
+  y ^= (y >>> 18);
+
+  return y >>> 0;
+}
+
+/* generates a random number on [0,0x7fffffff]-interval */
+//MersenneTwister.prototype.genrand_int31 = function() {
+//  return (this.genrand_int32()>>>1);
+//}
+
+/* generates a random number on [0,1]-real-interval */
+//MersenneTwister.prototype.genrand_real1 = function() {
+//  return this.genrand_int32()*(1.0/4294967295.0);
+//  /* divided by 2^32-1 */
+//}
+
+/* generates a random number on [0,1)-real-interval */
+MersenneTwister.prototype.random = function() {
+  return this.genrand_int32()*(1.0/4294967296.0);
+  /* divided by 2^32 */
+}
+
+/* generates a random number on (0,1)-real-interval */
+//MersenneTwister.prototype.genrand_real3 = function() {
+//  return (this.genrand_int32() + 0.5)*(1.0/4294967296.0);
+//  /* divided by 2^32 */
+//}
+
+/* generates a random number on [0,1) with 53-bit resolution*/
+//MersenneTwister.prototype.genrand_res53 = function() {
+//  var a=this.genrand_int32()>>>5, b=this.genrand_int32()>>>6;
+//  return(a*67108864.0+b)*(1.0/9007199254740992.0);
+//}
+
+/* These real versions are due to Isaku Wada, 2002/01/09 added */
+
+return MersenneTwister;
+});
+
+define('Core/Check',[
+        './defined',
+        './DeveloperError'
+    ], function(
+        defined,
+        DeveloperError) {
+    'use strict';
+
+    /**
+     * Contains functions for checking that supplied arguments are of a specified type
+     * or meet specified conditions
+     * @private
+     */
+    var Check = {};
+
+    /**
+     * Contains type checking functions, all using the typeof operator
+     */
+    Check.typeOf = {};
+
+    function getUndefinedErrorMessage(name) {
+        return name + ' is required, actual value was undefined';
+    }
+
+    function getFailedTypeErrorMessage(actual, expected, name) {
+        return 'Expected ' + name + ' to be typeof ' + expected + ', actual typeof was ' + actual;
+    }
+
+    /**
+     * Throws if test is not defined
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value that is to be checked
+     * @exception {DeveloperError} test must be defined
+     */
+    Check.defined = function (name, test) {
+        if (!defined(test)) {
+            throw new DeveloperError(getUndefinedErrorMessage(name));
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'function'
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @exception {DeveloperError} test must be typeof 'function'
+     */
+    Check.typeOf.func = function (name, test) {
+        if (typeof test !== 'function') {
+            throw new DeveloperError(getFailedTypeErrorMessage(typeof test, 'function', name));
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'string'
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @exception {DeveloperError} test must be typeof 'string'
+     */
+    Check.typeOf.string = function (name, test) {
+        if (typeof test !== 'string') {
+            throw new DeveloperError(getFailedTypeErrorMessage(typeof test, 'string', name));
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'number'
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @exception {DeveloperError} test must be typeof 'number'
+     */
+    Check.typeOf.number = function (name, test) {
+        if (typeof test !== 'number') {
+            throw new DeveloperError(getFailedTypeErrorMessage(typeof test, 'number', name));
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'number' and less than limit
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @param {Number} limit The limit value to compare against
+     * @exception {DeveloperError} test must be typeof 'number' and less than limit
+     */
+    Check.typeOf.number.lessThan = function (name, test, limit) {
+        Check.typeOf.number(name, test);
+        if (test >= limit) {
+            throw new DeveloperError('Expected ' + name + ' to be less than ' + limit + ', actual value was ' + test);
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'number' and less than or equal to limit
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @param {Number} limit The limit value to compare against
+     * @exception {DeveloperError} test must be typeof 'number' and less than or equal to limit
+     */
+    Check.typeOf.number.lessThanOrEquals = function (name, test, limit) {
+        Check.typeOf.number(name, test);
+        if (test > limit) {
+            throw new DeveloperError('Expected ' + name + ' to be less than or equal to ' + limit + ', actual value was ' + test);
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'number' and greater than limit
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @param {Number} limit The limit value to compare against
+     * @exception {DeveloperError} test must be typeof 'number' and greater than limit
+     */
+    Check.typeOf.number.greaterThan = function (name, test, limit) {
+        Check.typeOf.number(name, test);
+        if (test <= limit) {
+            throw new DeveloperError('Expected ' + name + ' to be greater than ' + limit + ', actual value was ' + test);
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'number' and greater than or equal to limit
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @param {Number} limit The limit value to compare against
+     * @exception {DeveloperError} test must be typeof 'number' and greater than or equal to limit
+     */
+    Check.typeOf.number.greaterThanOrEquals = function (name, test, limit) {
+        Check.typeOf.number(name, test);
+        if (test < limit) {
+            throw new DeveloperError('Expected ' + name + ' to be greater than or equal to' + limit + ', actual value was ' + test);
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'object'
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @exception {DeveloperError} test must be typeof 'object'
+     */
+    Check.typeOf.object = function (name, test) {
+        if (typeof test !== 'object') {
+            throw new DeveloperError(getFailedTypeErrorMessage(typeof test, 'object', name));
+        }
+    };
+
+    /**
+     * Throws if test is not typeof 'boolean'
+     *
+     * @param {String} name The name of the variable being tested
+     * @param {*} test The value to test
+     * @exception {DeveloperError} test must be typeof 'boolean'
+     */
+    Check.typeOf.bool = function (name, test) {
+        if (typeof test !== 'boolean') {
+            throw new DeveloperError(getFailedTypeErrorMessage(typeof test, 'boolean', name));
+        }
+    };
+
+    /**
+     * Throws if test1 and test2 is not typeof 'number' and not equal in value
+     *
+     * @param {String} name1 The name of the first variable being tested
+     * @param {String} name2 The name of the second variable being tested against
+     * @param {*} test1 The value to test
+     * @param {*} test2 The value to test against
+     * @exception {DeveloperError} test1 and test2 should be type of 'number' and be equal in value
+     */
+    Check.typeOf.number.equals = function (name1, name2, test1, test2) {
+        Check.typeOf.number(name1, test1);
+        Check.typeOf.number(name2, test2);
+        if (test1 !== test2) {
+            throw new DeveloperError(name1 + ' must be equal to ' + name2 + ', the actual values are ' + test1 + ' and ' + test2);
+        }
+    };
+
+    return Check;
+});
+
+define('Core/Math',[
+        '../ThirdParty/mersenne-twister',
+        './Check',
+        './defaultValue',
+        './defined',
+        './DeveloperError'
+    ], function(
+        MersenneTwister,
+        Check,
+        defaultValue,
+        defined,
+        DeveloperError) {
+    'use strict';
+
+    /**
+     * Math functions.
+     *
+     * @exports CesiumMath
+     * @alias Math
+     */
+    var CesiumMath = {};
+
+    /**
+     * 0.1
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON1 = 0.1;
+
+    /**
+     * 0.01
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON2 = 0.01;
+
+    /**
+     * 0.001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON3 = 0.001;
+
+    /**
+     * 0.0001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON4 = 0.0001;
+
+    /**
+     * 0.00001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON5 = 0.00001;
+
+    /**
+     * 0.000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON6 = 0.000001;
+
+    /**
+     * 0.0000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON7 = 0.0000001;
+
+    /**
+     * 0.00000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON8 = 0.00000001;
+
+    /**
+     * 0.000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON9 = 0.000000001;
+
+    /**
+     * 0.0000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON10 = 0.0000000001;
+
+    /**
+     * 0.00000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON11 = 0.00000000001;
+
+    /**
+     * 0.000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON12 = 0.000000000001;
+
+    /**
+     * 0.0000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON13 = 0.0000000000001;
+
+    /**
+     * 0.00000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON14 = 0.00000000000001;
+
+    /**
+     * 0.000000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON15 = 0.000000000000001;
+
+    /**
+     * 0.0000000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON16 = 0.0000000000000001;
+
+    /**
+     * 0.00000000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON17 = 0.00000000000000001;
+
+    /**
+     * 0.000000000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON18 = 0.000000000000000001;
+
+    /**
+     * 0.0000000000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON19 = 0.0000000000000000001;
+
+    /**
+     * 0.00000000000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON20 = 0.00000000000000000001;
+
+    /**
+     * 0.000000000000000000001
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.EPSILON21 = 0.000000000000000000001;
+
+    /**
+     * The gravitational parameter of the Earth in meters cubed
+     * per second squared as defined by the WGS84 model: 3.986004418e14
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.GRAVITATIONALPARAMETER = 3.986004418e14;
+
+    /**
+     * Radius of the sun in meters: 6.955e8
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.SOLAR_RADIUS = 6.955e8;
+
+    /**
+     * The mean radius of the moon, according to the "Report of the IAU/IAG Working Group on
+     * Cartographic Coordinates and Rotational Elements of the Planets and satellites: 2000",
+     * Celestial Mechanics 82: 83-110, 2002.
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.LUNAR_RADIUS = 1737400.0;
+
+    /**
+     * 64 * 1024
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.SIXTY_FOUR_KILOBYTES = 64 * 1024;
+
+    /**
+     * Returns the sign of the value; 1 if the value is positive, -1 if the value is
+     * negative, or 0 if the value is 0.
+     *
+     * @function
+     * @param {Number} value The value to return the sign of.
+     * @returns {Number} The sign of value.
+     */
+    CesiumMath.sign = defaultValue(Math.sign, function sign(value) {
+        value = +value; // coerce to number
+        if (value === 0 || value !== value) {
+            // zero or NaN
+            return value;
+        }
+        return value > 0 ? 1 : -1;
+    });
+
+    /**
+     * Returns 1.0 if the given value is positive or zero, and -1.0 if it is negative.
+     * This is similar to {@link CesiumMath#sign} except that returns 1.0 instead of
+     * 0.0 when the input value is 0.0.
+     * @param {Number} value The value to return the sign of.
+     * @returns {Number} The sign of value.
+     */
+    CesiumMath.signNotZero = function(value) {
+        return value < 0.0 ? -1.0 : 1.0;
+    };
+
+    /**
+     * Converts a scalar value in the range [-1.0, 1.0] to a SNORM in the range [0, rangeMax]
+     * @param {Number} value The scalar value in the range [-1.0, 1.0]
+     * @param {Number} [rangeMax=255] The maximum value in the mapped range, 255 by default.
+     * @returns {Number} A SNORM value, where 0 maps to -1.0 and rangeMax maps to 1.0.
+     *
+     * @see CesiumMath.fromSNorm
+     */
+    CesiumMath.toSNorm = function(value, rangeMax) {
+        rangeMax = defaultValue(rangeMax, 255);
+        return Math.round((CesiumMath.clamp(value, -1.0, 1.0) * 0.5 + 0.5) * rangeMax);
+    };
+
+    /**
+     * Converts a SNORM value in the range [0, rangeMax] to a scalar in the range [-1.0, 1.0].
+     * @param {Number} value SNORM value in the range [0, 255]
+     * @param {Number} [rangeMax=255] The maximum value in the SNORM range, 255 by default.
+     * @returns {Number} Scalar in the range [-1.0, 1.0].
+     *
+     * @see CesiumMath.toSNorm
+     */
+    CesiumMath.fromSNorm = function(value, rangeMax) {
+        rangeMax = defaultValue(rangeMax, 255);
+        return CesiumMath.clamp(value, 0.0, rangeMax) / rangeMax * 2.0 - 1.0;
+    };
+
+    /**
+     * Returns the hyperbolic sine of a number.
+     * The hyperbolic sine of <em>value</em> is defined to be
+     * (<em>e<sup>x</sup>&nbsp;-&nbsp;e<sup>-x</sup></em>)/2.0
+     * where <i>e</i> is Euler's number, approximately 2.71828183.
+     *
+     * <p>Special cases:
+     *   <ul>
+     *     <li>If the argument is NaN, then the result is NaN.</li>
+     *
+     *     <li>If the argument is infinite, then the result is an infinity
+     *     with the same sign as the argument.</li>
+     *
+     *     <li>If the argument is zero, then the result is a zero with the
+     *     same sign as the argument.</li>
+     *   </ul>
+     *</p>
+     *
+     * @function
+     * @param {Number} value The number whose hyperbolic sine is to be returned.
+     * @returns {Number} The hyperbolic sine of <code>value</code>.
+     */
+    CesiumMath.sinh = defaultValue(Math.sinh, function sinh(value) {
+        return (Math.exp(value) - Math.exp(-value)) / 2.0;
+    });
+
+    /**
+     * Returns the hyperbolic cosine of a number.
+     * The hyperbolic cosine of <strong>value</strong> is defined to be
+     * (<em>e<sup>x</sup>&nbsp;+&nbsp;e<sup>-x</sup></em>)/2.0
+     * where <i>e</i> is Euler's number, approximately 2.71828183.
+     *
+     * <p>Special cases:
+     *   <ul>
+     *     <li>If the argument is NaN, then the result is NaN.</li>
+     *
+     *     <li>If the argument is infinite, then the result is positive infinity.</li>
+     *
+     *     <li>If the argument is zero, then the result is 1.0.</li>
+     *   </ul>
+     *</p>
+     *
+     * @function
+     * @param {Number} value The number whose hyperbolic cosine is to be returned.
+     * @returns {Number} The hyperbolic cosine of <code>value</code>.
+     */
+    CesiumMath.cosh = defaultValue(Math.cosh, function cosh(value) {
+        return (Math.exp(value) + Math.exp(-value)) / 2.0;
+    });
+
+    /**
+     * Computes the linear interpolation of two values.
+     *
+     * @param {Number} p The start value to interpolate.
+     * @param {Number} q The end value to interpolate.
+     * @param {Number} time The time of interpolation generally in the range <code>[0.0, 1.0]</code>.
+     * @returns {Number} The linearly interpolated value.
+     *
+     * @example
+     * var n = Cesium.Math.lerp(0.0, 2.0, 0.5); // returns 1.0
+     */
+    CesiumMath.lerp = function(p, q, time) {
+        return ((1.0 - time) * p) + (time * q);
+    };
+
+    /**
+     * pi
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.PI = Math.PI;
+
+    /**
+     * 1/pi
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.ONE_OVER_PI = 1.0 / Math.PI;
+
+    /**
+     * pi/2
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.PI_OVER_TWO = Math.PI / 2.0;
+
+    /**
+     * pi/3
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.PI_OVER_THREE = Math.PI / 3.0;
+
+    /**
+     * pi/4
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.PI_OVER_FOUR = Math.PI / 4.0;
+
+    /**
+     * pi/6
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.PI_OVER_SIX = Math.PI / 6.0;
+
+    /**
+     * 3pi/2
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.THREE_PI_OVER_TWO = 3.0 * Math.PI / 2.0;
+
+    /**
+     * 2pi
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.TWO_PI = 2.0 * Math.PI;
+
+    /**
+     * 1/2pi
+     *
+     * @type {Number}
+     * @constant
+     */
+    CesiumMath.ONE_OVER_TWO_PI = 1.0 / (2.0 * Math.PI);
+
+    /**
+     * The number of radians in a degree.
+     *
+     * @type {Number}
+     * @constant
+     * @default Math.PI / 180.0
+     */
+    CesiumMath.RADIANS_PER_DEGREE = Math.PI / 180.0;
+
+    /**
+     * The number of degrees in a radian.
+     *
+     * @type {Number}
+     * @constant
+     * @default 180.0 / Math.PI
+     */
+    CesiumMath.DEGREES_PER_RADIAN = 180.0 / Math.PI;
+
+    /**
+     * The number of radians in an arc second.
+     *
+     * @type {Number}
+     * @constant
+     * @default {@link CesiumMath.RADIANS_PER_DEGREE} / 3600.0
+     */
+    CesiumMath.RADIANS_PER_ARCSECOND = CesiumMath.RADIANS_PER_DEGREE / 3600.0;
+
+    /**
+     * Converts degrees to radians.
+     * @param {Number} degrees The angle to convert in degrees.
+     * @returns {Number} The corresponding angle in radians.
+     */
+    CesiumMath.toRadians = function(degrees) {
+                if (!defined(degrees)) {
+            throw new DeveloperError('degrees is required.');
+        }
+                return degrees * CesiumMath.RADIANS_PER_DEGREE;
+    };
+
+    /**
+     * Converts radians to degrees.
+     * @param {Number} radians The angle to convert in radians.
+     * @returns {Number} The corresponding angle in degrees.
+     */
+    CesiumMath.toDegrees = function(radians) {
+                if (!defined(radians)) {
+            throw new DeveloperError('radians is required.');
+        }
+                return radians * CesiumMath.DEGREES_PER_RADIAN;
+    };
+
+    /**
+     * Converts a longitude value, in radians, to the range [<code>-Math.PI</code>, <code>Math.PI</code>).
+     *
+     * @param {Number} angle The longitude value, in radians, to convert to the range [<code>-Math.PI</code>, <code>Math.PI</code>).
+     * @returns {Number} The equivalent longitude value in the range [<code>-Math.PI</code>, <code>Math.PI</code>).
+     *
+     * @example
+     * // Convert 270 degrees to -90 degrees longitude
+     * var longitude = Cesium.Math.convertLongitudeRange(Cesium.Math.toRadians(270.0));
+     */
+    CesiumMath.convertLongitudeRange = function(angle) {
+                if (!defined(angle)) {
+            throw new DeveloperError('angle is required.');
+        }
+                var twoPi = CesiumMath.TWO_PI;
+
+        var simplified = angle - Math.floor(angle / twoPi) * twoPi;
+
+        if (simplified < -Math.PI) {
+            return simplified + twoPi;
+        }
+        if (simplified >= Math.PI) {
+            return simplified - twoPi;
+        }
+
+        return simplified;
+    };
+
+    /**
+     * Convenience function that clamps a latitude value, in radians, to the range [<code>-Math.PI/2</code>, <code>Math.PI/2</code>).
+     * Useful for sanitizing data before use in objects requiring correct range.
+     *
+     * @param {Number} angle The latitude value, in radians, to clamp to the range [<code>-Math.PI/2</code>, <code>Math.PI/2</code>).
+     * @returns {Number} The latitude value clamped to the range [<code>-Math.PI/2</code>, <code>Math.PI/2</code>).
+     *
+     * @example
+     * // Clamp 108 degrees latitude to 90 degrees latitude
+     * var latitude = Cesium.Math.clampToLatitudeRange(Cesium.Math.toRadians(108.0));
+     */
+    CesiumMath.clampToLatitudeRange = function(angle) {
+                if (!defined(angle)) {
+            throw new DeveloperError('angle is required.');
+        }
+        
+        return CesiumMath.clamp(angle, -1*CesiumMath.PI_OVER_TWO, CesiumMath.PI_OVER_TWO);
+    };
+
+    /**
+     * Produces an angle in the range -Pi <= angle <= Pi which is equivalent to the provided angle.
+     *
+     * @param {Number} angle in radians
+     * @returns {Number} The angle in the range [<code>-CesiumMath.PI</code>, <code>CesiumMath.PI</code>].
+     */
+    CesiumMath.negativePiToPi = function(angle) {
+                if (!defined(angle)) {
+            throw new DeveloperError('angle is required.');
+        }
+                return CesiumMath.zeroToTwoPi(angle + CesiumMath.PI) - CesiumMath.PI;
+    };
+
+    /**
+     * Produces an angle in the range 0 <= angle <= 2Pi which is equivalent to the provided angle.
+     *
+     * @param {Number} angle in radians
+     * @returns {Number} The angle in the range [0, <code>CesiumMath.TWO_PI</code>].
+     */
+    CesiumMath.zeroToTwoPi = function(angle) {
+                if (!defined(angle)) {
+            throw new DeveloperError('angle is required.');
+        }
+                var mod = CesiumMath.mod(angle, CesiumMath.TWO_PI);
+        if (Math.abs(mod) < CesiumMath.EPSILON14 && Math.abs(angle) > CesiumMath.EPSILON14) {
+            return CesiumMath.TWO_PI;
+        }
+        return mod;
+    };
+
+    /**
+     * The modulo operation that also works for negative dividends.
+     *
+     * @param {Number} m The dividend.
+     * @param {Number} n The divisor.
+     * @returns {Number} The remainder.
+     */
+    CesiumMath.mod = function(m, n) {
+                if (!defined(m)) {
+            throw new DeveloperError('m is required.');
+        }
+        if (!defined(n)) {
+            throw new DeveloperError('n is required.');
+        }
+                return ((m % n) + n) % n;
+    };
+
+    /**
+     * Determines if two values are equal using an absolute or relative tolerance test. This is useful
+     * to avoid problems due to roundoff error when comparing floating-point values directly. The values are
+     * first compared using an absolute tolerance test. If that fails, a relative tolerance test is performed.
+     * Use this test if you are unsure of the magnitudes of left and right.
+     *
+     * @param {Number} left The first value to compare.
+     * @param {Number} right The other value to compare.
+     * @param {Number} relativeEpsilon The maximum inclusive delta between <code>left</code> and <code>right</code> for the relative tolerance test.
+     * @param {Number} [absoluteEpsilon=relativeEpsilon] The maximum inclusive delta between <code>left</code> and <code>right</code> for the absolute tolerance test.
+     * @returns {Boolean} <code>true</code> if the values are equal within the epsilon; otherwise, <code>false</code>.
+     *
+     * @example
+     * var a = Cesium.Math.equalsEpsilon(0.0, 0.01, Cesium.Math.EPSILON2); // true
+     * var b = Cesium.Math.equalsEpsilon(0.0, 0.1, Cesium.Math.EPSILON2);  // false
+     * var c = Cesium.Math.equalsEpsilon(3699175.1634344, 3699175.2, Cesium.Math.EPSILON7); // true
+     * var d = Cesium.Math.equalsEpsilon(3699175.1634344, 3699175.2, Cesium.Math.EPSILON9); // false
+     */
+    CesiumMath.equalsEpsilon = function(left, right, relativeEpsilon, absoluteEpsilon) {
+                if (!defined(left)) {
+            throw new DeveloperError('left is required.');
+        }
+        if (!defined(right)) {
+            throw new DeveloperError('right is required.');
+        }
+        if (!defined(relativeEpsilon)) {
+            throw new DeveloperError('relativeEpsilon is required.');
+        }
+                absoluteEpsilon = defaultValue(absoluteEpsilon, relativeEpsilon);
+        var absDiff = Math.abs(left - right);
+        return absDiff <= absoluteEpsilon || absDiff <= relativeEpsilon * Math.max(Math.abs(left), Math.abs(right));
+    };
+
+    var factorials = [1];
+
+    /**
+     * Computes the factorial of the provided number.
+     *
+     * @param {Number} n The number whose factorial is to be computed.
+     * @returns {Number} The factorial of the provided number or undefined if the number is less than 0.
+     *
+     * @exception {DeveloperError} A number greater than or equal to 0 is required.
+     *
+     *
+     * @example
+     * //Compute 7!, which is equal to 5040
+     * var computedFactorial = Cesium.Math.factorial(7);
+     *
+     * @see {@link http://en.wikipedia.org/wiki/Factorial|Factorial on Wikipedia}
+     */
+    CesiumMath.factorial = function(n) {
+                if (typeof n !== 'number' || n < 0) {
+            throw new DeveloperError('A number greater than or equal to 0 is required.');
+        }
+        
+        var length = factorials.length;
+        if (n >= length) {
+            var sum = factorials[length - 1];
+            for (var i = length; i <= n; i++) {
+                factorials.push(sum * i);
+            }
+        }
+        return factorials[n];
+    };
+
+    /**
+     * Increments a number with a wrapping to a minimum value if the number exceeds the maximum value.
+     *
+     * @param {Number} [n] The number to be incremented.
+     * @param {Number} [maximumValue] The maximum incremented value before rolling over to the minimum value.
+     * @param {Number} [minimumValue=0.0] The number reset to after the maximum value has been exceeded.
+     * @returns {Number} The incremented number.
+     *
+     * @exception {DeveloperError} Maximum value must be greater than minimum value.
+     *
+     * @example
+     * var n = Cesium.Math.incrementWrap(5, 10, 0); // returns 6
+     * var n = Cesium.Math.incrementWrap(10, 10, 0); // returns 0
+     */
+    CesiumMath.incrementWrap = function(n, maximumValue, minimumValue) {
+        minimumValue = defaultValue(minimumValue, 0.0);
+
+                if (!defined(n)) {
+            throw new DeveloperError('n is required.');
+        }
+        if (maximumValue <= minimumValue) {
+            throw new DeveloperError('maximumValue must be greater than minimumValue.');
+        }
+        
+        ++n;
+        if (n > maximumValue) {
+            n = minimumValue;
+        }
+        return n;
+    };
+
+    /**
+     * Determines if a positive integer is a power of two.
+     *
+     * @param {Number} n The positive integer to test.
+     * @returns {Boolean} <code>true</code> if the number if a power of two; otherwise, <code>false</code>.
+     *
+     * @exception {DeveloperError} A number greater than or equal to 0 is required.
+     *
+     * @example
+     * var t = Cesium.Math.isPowerOfTwo(16); // true
+     * var f = Cesium.Math.isPowerOfTwo(20); // false
+     */
+    CesiumMath.isPowerOfTwo = function(n) {
+                if (typeof n !== 'number' || n < 0) {
+            throw new DeveloperError('A number greater than or equal to 0 is required.');
+        }
+        
+        return (n !== 0) && ((n & (n - 1)) === 0);
+    };
+
+    /**
+     * Computes the next power-of-two integer greater than or equal to the provided positive integer.
+     *
+     * @param {Number} n The positive integer to test.
+     * @returns {Number} The next power-of-two integer.
+     *
+     * @exception {DeveloperError} A number greater than or equal to 0 is required.
+     *
+     * @example
+     * var n = Cesium.Math.nextPowerOfTwo(29); // 32
+     * var m = Cesium.Math.nextPowerOfTwo(32); // 32
+     */
+    CesiumMath.nextPowerOfTwo = function(n) {
+                if (typeof n !== 'number' || n < 0) {
+            throw new DeveloperError('A number greater than or equal to 0 is required.');
+        }
+        
+        // From http://graphics.stanford.edu/~seander/bithacks.html#RoundUpPowerOf2
+        --n;
+        n |= n >> 1;
+        n |= n >> 2;
+        n |= n >> 4;
+        n |= n >> 8;
+        n |= n >> 16;
+        ++n;
+
+        return n;
+    };
+
+    /**
+     * Constraint a value to lie between two values.
+     *
+     * @param {Number} value The value to constrain.
+     * @param {Number} min The minimum value.
+     * @param {Number} max The maximum value.
+     * @returns {Number} The value clamped so that min <= value <= max.
+     */
+    CesiumMath.clamp = function(value, min, max) {
+                if (!defined(value)) {
+            throw new DeveloperError('value is required');
+        }
+        if (!defined(min)) {
+            throw new DeveloperError('min is required.');
+        }
+        if (!defined(max)) {
+            throw new DeveloperError('max is required.');
+        }
+                return value < min ? min : value > max ? max : value;
+    };
+
+    var randomNumberGenerator = new MersenneTwister();
+
+    /**
+     * Sets the seed used by the random number generator
+     * in {@link CesiumMath#nextRandomNumber}.
+     *
+     * @param {Number} seed An integer used as the seed.
+     */
+    CesiumMath.setRandomNumberSeed = function(seed) {
+                if (!defined(seed)) {
+            throw new DeveloperError('seed is required.');
+        }
+        
+        randomNumberGenerator = new MersenneTwister(seed);
+    };
+
+    /**
+     * Generates a random floating point number in the range of [0.0, 1.0)
+     * using a Mersenne twister.
+     *
+     * @returns {Number} A random number in the range of [0.0, 1.0).
+     *
+     * @see CesiumMath.setRandomNumberSeed
+     * @see {@link http://en.wikipedia.org/wiki/Mersenne_twister|Mersenne twister on Wikipedia}
+     */
+    CesiumMath.nextRandomNumber = function() {
+        return randomNumberGenerator.random();
+    };
+
+    /**
+     * Generates a random number between two numbers.
+     *
+     * @param {Number} min The minimum value.
+     * @param {Number} max The maximum value.
+     * @returns {Number} A random number between the min and max.
+     */
+    CesiumMath.randomBetween = function(min, max) {
+        return CesiumMath.nextRandomNumber() * (max - min) + min;
+    };
+
+    /**
+     * Computes <code>Math.acos(value)</code>, but first clamps <code>value</code> to the range [-1.0, 1.0]
+     * so that the function will never return NaN.
+     *
+     * @param {Number} value The value for which to compute acos.
+     * @returns {Number} The acos of the value if the value is in the range [-1.0, 1.0], or the acos of -1.0 or 1.0,
+     *          whichever is closer, if the value is outside the range.
+     */
+    CesiumMath.acosClamped = function(value) {
+                if (!defined(value)) {
+            throw new DeveloperError('value is required.');
+        }
+                return Math.acos(CesiumMath.clamp(value, -1.0, 1.0));
+    };
+
+    /**
+     * Computes <code>Math.asin(value)</code>, but first clamps <code>value</code> to the range [-1.0, 1.0]
+     * so that the function will never return NaN.
+     *
+     * @param {Number} value The value for which to compute asin.
+     * @returns {Number} The asin of the value if the value is in the range [-1.0, 1.0], or the asin of -1.0 or 1.0,
+     *          whichever is closer, if the value is outside the range.
+     */
+    CesiumMath.asinClamped = function(value) {
+                if (!defined(value)) {
+            throw new DeveloperError('value is required.');
+        }
+                return Math.asin(CesiumMath.clamp(value, -1.0, 1.0));
+    };
+
+    /**
+     * Finds the chord length between two points given the circle's radius and the angle between the points.
+     *
+     * @param {Number} angle The angle between the two points.
+     * @param {Number} radius The radius of the circle.
+     * @returns {Number} The chord length.
+     */
+    CesiumMath.chordLength = function(angle, radius) {
+                if (!defined(angle)) {
+            throw new DeveloperError('angle is required.');
+        }
+        if (!defined(radius)) {
+            throw new DeveloperError('radius is required.');
+        }
+                return 2.0 * radius * Math.sin(angle * 0.5);
+    };
+
+    /**
+     * Finds the logarithm of a number to a base.
+     *
+     * @param {Number} number The number.
+     * @param {Number} base The base.
+     * @returns {Number} The result.
+     */
+    CesiumMath.logBase = function(number, base) {
+                if (!defined(number)) {
+            throw new DeveloperError('number is required.');
+        }
+        if (!defined(base)) {
+            throw new DeveloperError('base is required.');
+        }
+                return Math.log(number) / Math.log(base);
+    };
+
+    /**
+     * Finds the cube root of a number.
+     * Returns NaN if <code>number</code> is not provided.
+     *
+     * @function
+     * @param {Number} [number] The number.
+     * @returns {Number} The result.
+     */
+    CesiumMath.cbrt = defaultValue(Math.cbrt, function cbrt(number) {
+        var result = Math.pow(Math.abs(number), 1.0 / 3.0);
+        return number < 0.0 ? -result : result;
+    });
+
+    /**
+     * Finds the base 2 logarithm of a number.
+     *
+     * @function
+     * @param {Number} number The number.
+     * @returns {Number} The result.
+     */
+    CesiumMath.log2 = defaultValue(Math.log2, function log2(number) {
+        return Math.log(number) * Math.LOG2E;
+    });
+
+    /**
+     * @private
+     */
+    CesiumMath.fog = function(distanceToCamera, density) {
+        var scalar = distanceToCamera * density;
+        return 1.0 - Math.exp(-(scalar * scalar));
+    };
+
+    /**
+     * Computes a fast approximation of Atan for input in the range [-1, 1].
+     *
+     * Based on Michal Drobot's approximation from ShaderFastLibs,
+     * which in turn is based on "Efficient approximations for the arctangent function,"
+     * Rajan, S. Sichun Wang Inkol, R. Joyal, A., May 2006.
+     * Adapted from ShaderFastLibs under MIT License.
+     *
+     * @param {Number} x An input number in the range [-1, 1]
+     * @returns {Number} An approximation of atan(x)
+     */
+    CesiumMath.fastApproximateAtan = function(x) {
+                Check.typeOf.number('x', x);
+        
+        return x * (-0.1784 * Math.abs(x) - 0.0663 * x * x + 1.0301);
+    };
+
+    /**
+     * Computes a fast approximation of Atan2(x, y) for arbitrary input scalars.
+     *
+     * Range reduction math based on nvidia's cg reference implementation: http://developer.download.nvidia.com/cg/atan2.html
+     *
+     * @param {Number} x An input number that isn't zero if y is zero.
+     * @param {Number} y An input number that isn't zero if x is zero.
+     * @returns {Number} An approximation of atan2(x, y)
+     */
+    CesiumMath.fastApproximateAtan2 = function(x, y) {
+                Check.typeOf.number('x', x);
+        Check.typeOf.number('y', y);
+        
+        // atan approximations are usually only reliable over [-1, 1]
+        // So reduce the range by flipping whether x or y is on top based on which is bigger.
+        var opposite;
+        var adjacent;
+        var t = Math.abs(x); // t used as swap and atan result.
+        opposite = Math.abs(y);
+        adjacent = Math.max(t, opposite);
+        opposite = Math.min(t, opposite);
+
+        var oppositeOverAdjacent = opposite / adjacent;
+                if (isNaN(oppositeOverAdjacent)) {
+            throw new DeveloperError('either x or y must be nonzero');
+        }
+                t = CesiumMath.fastApproximateAtan(oppositeOverAdjacent);
+
+        // Undo range reduction
+        t = Math.abs(y) > Math.abs(x) ? CesiumMath.PI_OVER_TWO - t : t;
+        t = x < 0.0 ?  CesiumMath.PI - t : t;
+        t = y < 0.0 ? -t : t;
+        return t;
+    };
+
+    return CesiumMath;
+});
+
+define('Core/IndexDatatype',[
+        './defined',
+        './DeveloperError',
+        './freezeObject',
+        './Math',
+        './WebGLConstants'
+    ], function(
+        defined,
+        DeveloperError,
+        freezeObject,
+        CesiumMath,
+        WebGLConstants) {
+    'use strict';
+
+    /**
+     * Constants for WebGL index datatypes.  These corresponds to the
+     * <code>type</code> parameter of {@link http://www.khronos.org/opengles/sdk/docs/man/xhtml/glDrawElements.xml|drawElements}.
+     *
+     * @exports IndexDatatype
+     */
+    var IndexDatatype = {
+        /**
+         * 8-bit unsigned byte corresponding to <code>UNSIGNED_BYTE</code> and the type
+         * of an element in <code>Uint8Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        UNSIGNED_BYTE : WebGLConstants.UNSIGNED_BYTE,
+
+        /**
+         * 16-bit unsigned short corresponding to <code>UNSIGNED_SHORT</code> and the type
+         * of an element in <code>Uint16Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        UNSIGNED_SHORT : WebGLConstants.UNSIGNED_SHORT,
+
+        /**
+         * 32-bit unsigned int corresponding to <code>UNSIGNED_INT</code> and the type
+         * of an element in <code>Uint32Array</code>.
+         *
+         * @type {Number}
+         * @constant
+         */
+        UNSIGNED_INT : WebGLConstants.UNSIGNED_INT
+    };
+
+    /**
+     * Returns the size, in bytes, of the corresponding datatype.
+     *
+     * @param {IndexDatatype} indexDatatype The index datatype to get the size of.
+     * @returns {Number} The size in bytes.
+     *
+     * @example
+     * // Returns 2
+     * var size = Cesium.IndexDatatype.getSizeInBytes(Cesium.IndexDatatype.UNSIGNED_SHORT);
+     */
+    IndexDatatype.getSizeInBytes = function(indexDatatype) {
+        switch(indexDatatype) {
+            case IndexDatatype.UNSIGNED_BYTE:
+                return Uint8Array.BYTES_PER_ELEMENT;
+            case IndexDatatype.UNSIGNED_SHORT:
+                return Uint16Array.BYTES_PER_ELEMENT;
+            case IndexDatatype.UNSIGNED_INT:
+                return Uint32Array.BYTES_PER_ELEMENT;
+        }
+
+                throw new DeveloperError('indexDatatype is required and must be a valid IndexDatatype constant.');
+            };
+
+    /**
+     * Validates that the provided index datatype is a valid {@link IndexDatatype}.
+     *
+     * @param {IndexDatatype} indexDatatype The index datatype to validate.
+     * @returns {Boolean} <code>true</code> if the provided index datatype is a valid value; otherwise, <code>false</code>.
+     *
+     * @example
+     * if (!Cesium.IndexDatatype.validate(indexDatatype)) {
+     *   throw new Cesium.DeveloperError('indexDatatype must be a valid value.');
+     * }
+     */
+    IndexDatatype.validate = function(indexDatatype) {
+        return defined(indexDatatype) &&
+               (indexDatatype === IndexDatatype.UNSIGNED_BYTE ||
+                indexDatatype === IndexDatatype.UNSIGNED_SHORT ||
+                indexDatatype === IndexDatatype.UNSIGNED_INT);
+    };
+
+    /**
+     * Creates a typed array that will store indices, using either <code><Uint16Array</code>
+     * or <code>Uint32Array</code> depending on the number of vertices.
+     *
+     * @param {Number} numberOfVertices Number of vertices that the indices will reference.
+     * @param {Number|Array} indicesLengthOrArray Passed through to the typed array constructor.
+     * @returns {Uint16Array|Uint32Array} A <code>Uint16Array</code> or <code>Uint32Array</code> constructed with <code>indicesLengthOrArray</code>.
+     *
+     * @example
+     * this.indices = Cesium.IndexDatatype.createTypedArray(positions.length / 3, numberOfIndices);
+     */
+    IndexDatatype.createTypedArray = function(numberOfVertices, indicesLengthOrArray) {
+                if (!defined(numberOfVertices)) {
+            throw new DeveloperError('numberOfVertices is required.');
+        }
+        
+        if (numberOfVertices >= CesiumMath.SIXTY_FOUR_KILOBYTES) {
+            return new Uint32Array(indicesLengthOrArray);
+        }
+
+        return new Uint16Array(indicesLengthOrArray);
+    };
+
+    /**
+     * Creates a typed array from a source array buffer.  The resulting typed array will store indices, using either <code><Uint16Array</code>
+     * or <code>Uint32Array</code> depending on the number of vertices.
+     *
+     * @param {Number} numberOfVertices Number of vertices that the indices will reference.
+     * @param {ArrayBuffer} sourceArray Passed through to the typed array constructor.
+     * @param {Number} byteOffset Passed through to the typed array constructor.
+     * @param {Number} length Passed through to the typed array constructor.
+     * @returns {Uint16Array|Uint32Array} A <code>Uint16Array</code> or <code>Uint32Array</code> constructed with <code>sourceArray</code>, <code>byteOffset</code>, and <code>length</code>.
+     *
+     */
+    IndexDatatype.createTypedArrayFromArrayBuffer = function(numberOfVertices, sourceArray, byteOffset, length) {
+                if (!defined(numberOfVertices)) {
+            throw new DeveloperError('numberOfVertices is required.');
+        }
+        if (!defined(sourceArray)) {
+            throw new DeveloperError('sourceArray is required.');
+        }
+        if (!defined(byteOffset)) {
+            throw new DeveloperError('byteOffset is required.');
+        }
+        
+        if (numberOfVertices >= CesiumMath.SIXTY_FOUR_KILOBYTES) {
+            return new Uint32Array(sourceArray, byteOffset, length);
+        }
+
+        return new Uint16Array(sourceArray, byteOffset, length);
+    };
+
+    return freezeObject(IndexDatatype);
+});
+
+define('Core/RuntimeError',[
+        './defined'
+    ], function(
+        defined) {
+    'use strict';
+
+    /**
+     * Constructs an exception object that is thrown due to an error that can occur at runtime, e.g.,
+     * out of memory, could not compile shader, etc.  If a function may throw this
+     * exception, the calling code should be prepared to catch it.
+     * <br /><br />
+     * On the other hand, a {@link DeveloperError} indicates an exception due
+     * to a developer error, e.g., invalid argument, that usually indicates a bug in the
+     * calling code.
+     *
+     * @alias RuntimeError
+     * @constructor
+     * @extends Error
+     *
+     * @param {String} [message] The error message for this exception.
+     *
+     * @see DeveloperError
+     */
+    function RuntimeError(message) {
+        /**
+         * 'RuntimeError' indicating that this exception was thrown due to a runtime error.
+         * @type {String}
+         * @readonly
+         */
+        this.name = 'RuntimeError';
+
+        /**
+         * The explanation for why this exception was thrown.
+         * @type {String}
+         * @readonly
+         */
+        this.message = message;
+
+        //Browsers such as IE don't have a stack property until you actually throw the error.
+        var stack;
+        try {
+            throw new Error();
+        } catch (e) {
+            stack = e.stack;
+        }
+
+        /**
+         * The stack trace of this exception, if available.
+         * @type {String}
+         * @readonly
+         */
+        this.stack = stack;
+    }
+
+    if (defined(Object.create)) {
+        RuntimeError.prototype = Object.create(Error.prototype);
+        RuntimeError.prototype.constructor = RuntimeError;
+    }
+
+    RuntimeError.prototype.toString = function() {
+        var str = this.name + ': ' + this.message;
+
+        if (defined(this.stack)) {
+            str += '\n' + this.stack.toString();
+        }
+
+        return str;
+    };
+
+    return RuntimeError;
+});
+
+/**
+  @license
+  when.js - https://github.com/cujojs/when
+
+  MIT License (c) copyright B Cavalier & J Hann
+
+ * A lightweight CommonJS Promises/A and when() implementation
+ * when is part of the cujo.js family of libraries (http://cujojs.com/)
+ *
+ * Licensed under the MIT License at:
+ * http://www.opensource.org/licenses/mit-license.php
+ *
+ * @version 1.7.1
+ */
+
+(function(define) { 'use strict';
+define('ThirdParty/when',[],function () {
+	var reduceArray, slice, undef;
+
+	//
+	// Public API
+	//
+
+	when.defer     = defer;     // Create a deferred
+	when.resolve   = resolve;   // Create a resolved promise
+	when.reject    = reject;    // Create a rejected promise
+
+	when.join      = join;      // Join 2 or more promises
+
+	when.all       = all;       // Resolve a list of promises
+	when.map       = map;       // Array.map() for promises
+	when.reduce    = reduce;    // Array.reduce() for promises
+
+	when.any       = any;       // One-winner race
+	when.some      = some;      // Multi-winner race
+
+	when.chain     = chain;     // Make a promise trigger another resolver
+
+	when.isPromise = isPromise; // Determine if a thing is a promise
+
+	/**
+	 * Register an observer for a promise or immediate value.
+	 *
+	 * @param {*} promiseOrValue
+	 * @param {function?} [onFulfilled] callback to be called when promiseOrValue is
+	 *   successfully fulfilled.  If promiseOrValue is an immediate value, callback
+	 *   will be invoked immediately.
+	 * @param {function?} [onRejected] callback to be called when promiseOrValue is
+	 *   rejected.
+	 * @param {function?} [onProgress] callback to be called when progress updates
+	 *   are issued for promiseOrValue.
+	 * @returns {Promise} a new {@link Promise} that will complete with the return
+	 *   value of callback or errback or the completion value of promiseOrValue if
+	 *   callback and/or errback is not supplied.
+	 */
+	function when(promiseOrValue, onFulfilled, onRejected, onProgress) {
+		// Get a trusted promise for the input promiseOrValue, and then
+		// register promise handlers
+		return resolve(promiseOrValue).then(onFulfilled, onRejected, onProgress);
+	}
+
+	/**
+	 * Returns promiseOrValue if promiseOrValue is a {@link Promise}, a new Promise if
+	 * promiseOrValue is a foreign promise, or a new, already-fulfilled {@link Promise}
+	 * whose value is promiseOrValue if promiseOrValue is an immediate value.
+	 *
+	 * @param {*} promiseOrValue
+	 * @returns Guaranteed to return a trusted Promise.  If promiseOrValue is a when.js {@link Promise}
+	 *   returns promiseOrValue, otherwise, returns a new, already-resolved, when.js {@link Promise}
+	 *   whose resolution value is:
+	 *   * the resolution value of promiseOrValue if it's a foreign promise, or
+	 *   * promiseOrValue if it's a value
+	 */
+	function resolve(promiseOrValue) {
+		var promise, deferred;
+
+		if(promiseOrValue instanceof Promise) {
+			// It's a when.js promise, so we trust it
+			promise = promiseOrValue;
+
+		} else {
+			// It's not a when.js promise. See if it's a foreign promise or a value.
+			if(isPromise(promiseOrValue)) {
+				// It's a thenable, but we don't know where it came from, so don't trust
+				// its implementation entirely.  Introduce a trusted middleman when.js promise
+				deferred = defer();
+
+				// IMPORTANT: This is the only place when.js should ever call .then() on an
+				// untrusted promise. Don't expose the return value to the untrusted promise
+				promiseOrValue.then(
+					function(value)  { deferred.resolve(value); },
+					function(reason) { deferred.reject(reason); },
+					function(update) { deferred.progress(update); }
+				);
+
+				promise = deferred.promise;
+
+			} else {
+				// It's a value, not a promise.  Create a resolved promise for it.
+				promise = fulfilled(promiseOrValue);
+			}
+		}
+
+		return promise;
+	}
+
+	/**
+	 * Returns a rejected promise for the supplied promiseOrValue.  The returned
+	 * promise will be rejected with:
+	 * - promiseOrValue, if it is a value, or
+	 * - if promiseOrValue is a promise
+	 *   - promiseOrValue's value after it is fulfilled
+	 *   - promiseOrValue's reason after it is rejected
+	 * @param {*} promiseOrValue the rejected value of the returned {@link Promise}
+	 * @returns {Promise} rejected {@link Promise}
+	 */
+	function reject(promiseOrValue) {
+		return when(promiseOrValue, rejected);
+	}
+
+	/**
+	 * Trusted Promise constructor.  A Promise created from this constructor is
+	 * a trusted when.js promise.  Any other duck-typed promise is considered
+	 * untrusted.
+	 * @constructor
+	 * @name Promise
+	 */
+	function Promise(then) {
+		this.then = then;
+	}
+
+	Promise.prototype = {
+		/**
+		 * Register a callback that will be called when a promise is
+		 * fulfilled or rejected.  Optionally also register a progress handler.
+		 * Shortcut for .then(onFulfilledOrRejected, onFulfilledOrRejected, onProgress)
+		 * @param {function?} [onFulfilledOrRejected]
+		 * @param {function?} [onProgress]
+		 * @returns {Promise}
+		 */
+		always: function(onFulfilledOrRejected, onProgress) {
+			return this.then(onFulfilledOrRejected, onFulfilledOrRejected, onProgress);
+		},
+
+		/**
+		 * Register a rejection handler.  Shortcut for .then(undefined, onRejected)
+		 * @param {function?} onRejected
+		 * @returns {Promise}
+		 */
+		otherwise: function(onRejected) {
+			return this.then(undef, onRejected);
+		},
+
+		/**
+		 * Shortcut for .then(function() { return value; })
+		 * @param  {*} value
+		 * @returns {Promise} a promise that:
+		 *  - is fulfilled if value is not a promise, or
+		 *  - if value is a promise, will fulfill with its value, or reject
+		 *    with its reason.
+		 */
+		yield: function(value) {
+			return this.then(function() {
+				return value;
+			});
+		},
+
+		/**
+		 * Assumes that this promise will fulfill with an array, and arranges
+		 * for the onFulfilled to be called with the array as its argument list
+		 * i.e. onFulfilled.spread(undefined, array).
+		 * @param {function} onFulfilled function to receive spread arguments
+		 * @returns {Promise}
+		 */
+		spread: function(onFulfilled) {
+			return this.then(function(array) {
+				// array may contain promises, so resolve its contents.
+				return all(array, function(array) {
+					return onFulfilled.apply(undef, array);
+				});
+			});
+		}
+	};
+
+	/**
+	 * Create an already-resolved promise for the supplied value
+	 * @private
+	 *
+	 * @param {*} value
+	 * @returns {Promise} fulfilled promise
+	 */
+	function fulfilled(value) {
+		var p = new Promise(function(onFulfilled) {
+			// TODO: Promises/A+ check typeof onFulfilled
+			try {
+				return resolve(onFulfilled ? onFulfilled(value) : value);
+			} catch(e) {
+				return rejected(e);
+			}
+		});
+
+		return p;
+	}
+
+	/**
+	 * Create an already-rejected {@link Promise} with the supplied
+	 * rejection reason.
+	 * @private
+	 *
+	 * @param {*} reason
+	 * @returns {Promise} rejected promise
+	 */
+	function rejected(reason) {
+		var p = new Promise(function(_, onRejected) {
+			// TODO: Promises/A+ check typeof onRejected
+			try {
+				return onRejected ? resolve(onRejected(reason)) : rejected(reason);
+			} catch(e) {
+				return rejected(e);
+			}
+		});
+
+		return p;
+	}
+
+	/**
+	 * Creates a new, Deferred with fully isolated resolver and promise parts,
+	 * either or both of which may be given out safely to consumers.
+	 * The Deferred itself has the full API: resolve, reject, progress, and
+	 * then. The resolver has resolve, reject, and progress.  The promise
+	 * only has then.
+	 *
+	 * @returns {Deferred}
+	 */
+	function defer() {
+		var deferred, promise, handlers, progressHandlers,
+			_then, _progress, _resolve;
+
+		/**
+		 * The promise for the new deferred
+		 * @type {Promise}
+		 */
+		promise = new Promise(then);
+
+		/**
+		 * The full Deferred object, with {@link Promise} and {@link Resolver} parts
+		 * @class Deferred
+		 * @name Deferred
+		 */
+		deferred = {
+			then:     then, // DEPRECATED: use deferred.promise.then
+			resolve:  promiseResolve,
+			reject:   promiseReject,
+			// TODO: Consider renaming progress() to notify()
+			progress: promiseProgress,
+
+			promise:  promise,
+
+			resolver: {
+				resolve:  promiseResolve,
+				reject:   promiseReject,
+				progress: promiseProgress
+			}
+		};
+
+		handlers = [];
+		progressHandlers = [];
+
+		/**
+		 * Pre-resolution then() that adds the supplied callback, errback, and progback
+		 * functions to the registered listeners
+		 * @private
+		 *
+		 * @param {function?} [onFulfilled] resolution handler
+		 * @param {function?} [onRejected] rejection handler
+		 * @param {function?} [onProgress] progress handler
+		 */
+		_then = function(onFulfilled, onRejected, onProgress) {
+			// TODO: Promises/A+ check typeof onFulfilled, onRejected, onProgress
+			var deferred, progressHandler;
+
+			deferred = defer();
+
+			progressHandler = typeof onProgress === 'function'
+				? function(update) {
+					try {
+						// Allow progress handler to transform progress event
+						deferred.progress(onProgress(update));
+					} catch(e) {
+						// Use caught value as progress
+						deferred.progress(e);
+					}
+				}
+				: function(update) { deferred.progress(update); };
+
+			handlers.push(function(promise) {
+				promise.then(onFulfilled, onRejected)
+					.then(deferred.resolve, deferred.reject, progressHandler);
+			});
+
+			progressHandlers.push(progressHandler);
+
+			return deferred.promise;
+		};
+
+		/**
+		 * Issue a progress event, notifying all progress listeners
+		 * @private
+		 * @param {*} update progress event payload to pass to all listeners
+		 */
+		_progress = function(update) {
+			processQueue(progressHandlers, update);
+			return update;
+		};
+
+		/**
+		 * Transition from pre-resolution state to post-resolution state, notifying
+		 * all listeners of the resolution or rejection
+		 * @private
+		 * @param {*} value the value of this deferred
+		 */
+		_resolve = function(value) {
+			value = resolve(value);
+
+			// Replace _then with one that directly notifies with the result.
+			_then = value.then;
+			// Replace _resolve so that this Deferred can only be resolved once
+			_resolve = resolve;
+			// Make _progress a noop, to disallow progress for the resolved promise.
+			_progress = noop;
+
+			// Notify handlers
+			processQueue(handlers, value);
+
+			// Free progressHandlers array since we'll never issue progress events
+			progressHandlers = handlers = undef;
+
+			return value;
+		};
+
+		return deferred;
+
+		/**
+		 * Wrapper to allow _then to be replaced safely
+		 * @param {function?} [onFulfilled] resolution handler
+		 * @param {function?} [onRejected] rejection handler
+		 * @param {function?} [onProgress] progress handler
+		 * @returns {Promise} new promise
+		 */
+		function then(onFulfilled, onRejected, onProgress) {
+			// TODO: Promises/A+ check typeof onFulfilled, onRejected, onProgress
+			return _then(onFulfilled, onRejected, onProgress);
+		}
+
+		/**
+		 * Wrapper to allow _resolve to be replaced
+		 */
+		function promiseResolve(val) {
+			return _resolve(val);
+		}
+
+		/**
+		 * Wrapper to allow _reject to be replaced
+		 */
+		function promiseReject(err) {
+			return _resolve(rejected(err));
+		}
+
+		/**
+		 * Wrapper to allow _progress to be replaced
+		 */
+		function promiseProgress(update) {
+			return _progress(update);
+		}
+	}
+
+	/**
+	 * Determines if promiseOrValue is a promise or not.  Uses the feature
+	 * test from http://wiki.commonjs.org/wiki/Promises/A to determine if
+	 * promiseOrValue is a promise.
+	 *
+	 * @param {*} promiseOrValue anything
+	 * @returns {boolean} true if promiseOrValue is a {@link Promise}
+	 */
+	function isPromise(promiseOrValue) {
+		return promiseOrValue && typeof promiseOrValue.then === 'function';
+	}
+
+	/**
+	 * Initiates a competitive race, returning a promise that will resolve when
+	 * howMany of the supplied promisesOrValues have resolved, or will reject when
+	 * it becomes impossible for howMany to resolve, for example, when
+	 * (promisesOrValues.length - howMany) + 1 input promises reject.
+	 *
+	 * @param {Array} promisesOrValues array of anything, may contain a mix
+	 *      of promises and values
+	 * @param howMany {number} number of promisesOrValues to resolve
+	 * @param {function?} [onFulfilled] resolution handler
+	 * @param {function?} [onRejected] rejection handler
+	 * @param {function?} [onProgress] progress handler
+	 * @returns {Promise} promise that will resolve to an array of howMany values that
+	 * resolved first, or will reject with an array of (promisesOrValues.length - howMany) + 1
+	 * rejection reasons.
+	 */
+	function some(promisesOrValues, howMany, onFulfilled, onRejected, onProgress) {
+
+		checkCallbacks(2, arguments);
+
+		return when(promisesOrValues, function(promisesOrValues) {
+
+			var toResolve, toReject, values, reasons, deferred, fulfillOne, rejectOne, progress, len, i;
+
+			len = promisesOrValues.length >>> 0;
+
+			toResolve = Math.max(0, Math.min(howMany, len));
+			values = [];
+
+			toReject = (len - toResolve) + 1;
+			reasons = [];
+
+			deferred = defer();
+
+			// No items in the input, resolve immediately
+			if (!toResolve) {
+				deferred.resolve(values);
+
+			} else {
+				progress = deferred.progress;
+
+				rejectOne = function(reason) {
+					reasons.push(reason);
+					if(!--toReject) {
+						fulfillOne = rejectOne = noop;
+						deferred.reject(reasons);
+					}
+				};
+
+				fulfillOne = function(val) {
+					// This orders the values based on promise resolution order
+					// Another strategy would be to use the original position of
+					// the corresponding promise.
+					values.push(val);
+
+					if (!--toResolve) {
+						fulfillOne = rejectOne = noop;
+						deferred.resolve(values);
+					}
+				};
+
+				for(i = 0; i < len; ++i) {
+					if(i in promisesOrValues) {
+						when(promisesOrValues[i], fulfiller, rejecter, progress);
+					}
+				}
+			}
+
+			return deferred.then(onFulfilled, onRejected, onProgress);
+
+			function rejecter(reason) {
+				rejectOne(reason);
+			}
+
+			function fulfiller(val) {
+				fulfillOne(val);
+			}
+
+		});
+	}
+
+	/**
+	 * Initiates a competitive race, returning a promise that will resolve when
+	 * any one of the supplied promisesOrValues has resolved or will reject when
+	 * *all* promisesOrValues have rejected.
+	 *
+	 * @param {Array|Promise} promisesOrValues array of anything, may contain a mix
+	 *      of {@link Promise}s and values
+	 * @param {function?} [onFulfilled] resolution handler
+	 * @param {function?} [onRejected] rejection handler
+	 * @param {function?} [onProgress] progress handler
+	 * @returns {Promise} promise that will resolve to the value that resolved first, or
+	 * will reject with an array of all rejected inputs.
+	 */
+	function any(promisesOrValues, onFulfilled, onRejected, onProgress) {
+
+		function unwrapSingleResult(val) {
+			return onFulfilled ? onFulfilled(val[0]) : val[0];
+		}
+
+		return some(promisesOrValues, 1, unwrapSingleResult, onRejected, onProgress);
+	}
+
+	/**
+	 * Return a promise that will resolve only once all the supplied promisesOrValues
+	 * have resolved. The resolution value of the returned promise will be an array
+	 * containing the resolution values of each of the promisesOrValues.
+	 * @memberOf when
+	 *
+	 * @param {Array|Promise} promisesOrValues array of anything, may contain a mix
+	 *      of {@link Promise}s and values
+	 * @param {function?} [onFulfilled] resolution handler
+	 * @param {function?} [onRejected] rejection handler
+	 * @param {function?} [onProgress] progress handler
+	 * @returns {Promise}
+	 */
+	function all(promisesOrValues, onFulfilled, onRejected, onProgress) {
+		checkCallbacks(1, arguments);
+		return map(promisesOrValues, identity).then(onFulfilled, onRejected, onProgress);
+	}
+
+	/**
+	 * Joins multiple promises into a single returned promise.
+	 * @returns {Promise} a promise that will fulfill when *all* the input promises
+	 * have fulfilled, or will reject when *any one* of the input promises rejects.
+	 */
+	function join(/* ...promises */) {
+		return map(arguments, identity);
+	}
+
+	/**
+	 * Traditional map function, similar to `Array.prototype.map()`, but allows
+	 * input to contain {@link Promise}s and/or values, and mapFunc may return
+	 * either a value or a {@link Promise}
+	 *
+	 * @param {Array|Promise} promise array of anything, may contain a mix
+	 *      of {@link Promise}s and values
+	 * @param {function} mapFunc mapping function mapFunc(value) which may return
+	 *      either a {@link Promise} or value
+	 * @returns {Promise} a {@link Promise} that will resolve to an array containing
+	 *      the mapped output values.
+	 */
+	function map(promise, mapFunc) {
+		return when(promise, function(array) {
+			var results, len, toResolve, resolve, i, d;
+
+			// Since we know the resulting length, we can preallocate the results
+			// array to avoid array expansions.
+			toResolve = len = array.length >>> 0;
+			results = [];
+			d = defer();
+
+			if(!toResolve) {
+				d.resolve(results);
+			} else {
+
+				resolve = function resolveOne(item, i) {
+					when(item, mapFunc).then(function(mapped) {
+						results[i] = mapped;
+
+						if(!--toResolve) {
+							d.resolve(results);
+						}
+					}, d.reject);
+				};
+
+				// Since mapFunc may be async, get all invocations of it into flight
+				for(i = 0; i < len; i++) {
+					if(i in array) {
+						resolve(array[i], i);
+					} else {
+						--toResolve;
+					}
+				}
+
+			}
+
+			return d.promise;
+
+		});
+	}
+
+	/**
+	 * Traditional reduce function, similar to `Array.prototype.reduce()`, but
+	 * input may contain promises and/or values, and reduceFunc
+	 * may return either a value or a promise, *and* initialValue may
+	 * be a promise for the starting value.
+	 *
+	 * @param {Array|Promise} promise array or promise for an array of anything,
+	 *      may contain a mix of promises and values.
+	 * @param {function} reduceFunc reduce function reduce(currentValue, nextValue, index, total),
+	 *      where total is the total number of items being reduced, and will be the same
+	 *      in each call to reduceFunc.
+	 * @returns {Promise} that will resolve to the final reduced value
+	 */
+	function reduce(promise, reduceFunc /*, initialValue */) {
+		var args = slice.call(arguments, 1);
+
+		return when(promise, function(array) {
+			var total;
+
+			total = array.length;
+
+			// Wrap the supplied reduceFunc with one that handles promises and then
+			// delegates to the supplied.
+			args[0] = function (current, val, i) {
+				return when(current, function (c) {
+					return when(val, function (value) {
+						return reduceFunc(c, value, i, total);
+					});
+				});
+			};
+
+			return reduceArray.apply(array, args);
+		});
+	}
+
+	/**
+	 * Ensure that resolution of promiseOrValue will trigger resolver with the
+	 * value or reason of promiseOrValue, or instead with resolveValue if it is provided.
+	 *
+	 * @param promiseOrValue
+	 * @param {Object} resolver
+	 * @param {function} resolver.resolve
+	 * @param {function} resolver.reject
+	 * @param {*} [resolveValue]
+	 * @returns {Promise}
+	 */
+	function chain(promiseOrValue, resolver, resolveValue) {
+		var useResolveValue = arguments.length > 2;
+
+		return when(promiseOrValue,
+			function(val) {
+				val = useResolveValue ? resolveValue : val;
+				resolver.resolve(val);
+				return val;
+			},
+			function(reason) {
+				resolver.reject(reason);
+				return rejected(reason);
+			},
+			resolver.progress
+		);
+	}
+
+	//
+	// Utility functions
+	//
+
+	/**
+	 * Apply all functions in queue to value
+	 * @param {Array} queue array of functions to execute
+	 * @param {*} value argument passed to each function
+	 */
+	function processQueue(queue, value) {
+		var handler, i = 0;
+
+		while (handler = queue[i++]) {
+			handler(value);
+		}
+	}
+
+	/**
+	 * Helper that checks arrayOfCallbacks to ensure that each element is either
+	 * a function, or null or undefined.
+	 * @private
+	 * @param {number} start index at which to start checking items in arrayOfCallbacks
+	 * @param {Array} arrayOfCallbacks array to check
+	 * @throws {Error} if any element of arrayOfCallbacks is something other than
+	 * a functions, null, or undefined.
+	 */
+	function checkCallbacks(start, arrayOfCallbacks) {
+		// TODO: Promises/A+ update type checking and docs
+		var arg, i = arrayOfCallbacks.length;
+
+		while(i > start) {
+			arg = arrayOfCallbacks[--i];
+
+			if (arg != null && typeof arg != 'function') {
+				throw new Error('arg '+i+' must be a function');
+			}
+		}
+	}
+
+	/**
+	 * No-Op function used in method replacement
+	 * @private
+	 */
+	function noop() {}
+
+	slice = [].slice;
+
+	// ES5 reduce implementation if native not available
+	// See: http://es5.github.com/#x15.4.4.21 as there are many
+	// specifics and edge cases.
+	reduceArray = [].reduce ||
+		function(reduceFunc /*, initialValue */) {
+			/*jshint maxcomplexity: 7*/
+
+			// ES5 dictates that reduce.length === 1
+
+			// This implementation deviates from ES5 spec in the following ways:
+			// 1. It does not check if reduceFunc is a Callable
+
+			var arr, args, reduced, len, i;
+
+			i = 0;
+			// This generates a jshint warning, despite being valid
+			// "Missing 'new' prefix when invoking a constructor."
+			// See https://github.com/jshint/jshint/issues/392
+			arr = Object(this);
+			len = arr.length >>> 0;
+			args = arguments;
+
+			// If no initialValue, use first item of array (we know length !== 0 here)
+			// and adjust i to start at second item
+			if(args.length <= 1) {
+				// Skip to the first real element in the array
+				for(;;) {
+					if(i in arr) {
+						reduced = arr[i++];
+						break;
+					}
+
+					// If we reached the end of the array without finding any real
+					// elements, it's a TypeError
+					if(++i >= len) {
+						throw new TypeError();
+					}
+				}
+			} else {
+				// If initialValue provided, use it
+				reduced = args[1];
+			}
+
+			// Do the actual reduce
+			for(;i < len; ++i) {
+				// Skip holes
+				if(i in arr) {
+					reduced = reduceFunc(reduced, arr[i], i, arr);
+				}
+			}
+
+			return reduced;
+		};
+
+	function identity(x) {
+		return x;
+	}
+
+	return when;
+});
+})(typeof define == 'function' && define.amd
+	? define
+	: function (factory) { typeof exports === 'object'
+		? (module.exports = factory())
+		: (this.when      = factory());
+	}
+	// Boilerplate for AMD, Node, and browser global
+);
+
+define('Core/formatError',[
+        './defined'
+    ], function(
+        defined) {
+    'use strict';
+
+    /**
+     * Formats an error object into a String.  If available, uses name, message, and stack
+     * properties, otherwise, falls back on toString().
+     *
+     * @exports formatError
+     *
+     * @param {*} object The item to find in the array.
+     * @returns {String} A string containing the formatted error.
+     */
+    function formatError(object) {
+        var result;
+
+        var name = object.name;
+        var message = object.message;
+        if (defined(name) && defined(message)) {
+            result = name + ': ' + message;
+        } else {
+            result = object.toString();
+        }
+
+        var stack = object.stack;
+        if (defined(stack)) {
+            result += '\n' + stack;
+        }
+
+        return result;
+    }
+
+    return formatError;
+});
+
+define('Workers/createTaskProcessorWorker',[
+        '../ThirdParty/when',
+        '../Core/defaultValue',
+        '../Core/defined',
+        '../Core/formatError'
+    ], function(
+        when,
+        defaultValue,
+        defined,
+        formatError) {
+    'use strict';
+
+    // createXXXGeometry functions may return Geometry or a Promise that resolves to Geometry
+    // if the function requires access to ApproximateTerrainHeights.
+    // For fully synchronous functions, just wrapping the function call in a `when` Promise doesn't
+    // handle errors correctly, hence try-catch
+    function callAndWrap(workerFunction, parameters, transferableObjects) {
+        var resultOrPromise;
+        try {
+            resultOrPromise = workerFunction(parameters, transferableObjects);
+            return resultOrPromise; // errors handled by Promise
+        } catch (e) {
+            return when.reject(e);
+        }
+    }
+
+    /**
+     * Creates an adapter function to allow a calculation function to operate as a Web Worker,
+     * paired with TaskProcessor, to receive tasks and return results.
+     *
+     * @exports createTaskProcessorWorker
+     *
+     * @param {createTaskProcessorWorker~WorkerFunction} workerFunction The calculation function,
+     *        which takes parameters and returns a result.
+     * @returns {createTaskProcessorWorker~TaskProcessorWorkerFunction} A function that adapts the
+     *          calculation function to work as a Web Worker onmessage listener with TaskProcessor.
+     *
+     *
+     * @example
+     * function doCalculation(parameters, transferableObjects) {
+     *   // calculate some result using the inputs in parameters
+     *   return result;
+     * }
+     *
+     * return Cesium.createTaskProcessorWorker(doCalculation);
+     * // the resulting function is compatible with TaskProcessor
+     *
+     * @see TaskProcessor
+     * @see {@link http://www.w3.org/TR/workers/|Web Workers}
+     * @see {@link http://www.w3.org/TR/html5/common-dom-interfaces.html#transferable-objects|Transferable objects}
+     */
+    function createTaskProcessorWorker(workerFunction) {
+        var postMessage;
+
+        return function(event) {
+            /*global self*/
+            var data = event.data;
+
+            var transferableObjects = [];
+            var responseMessage = {
+                id : data.id,
+                result : undefined,
+                error : undefined
+            };
+
+            return when(callAndWrap(workerFunction, data.parameters, transferableObjects))
+                .then(function(result) {
+                    responseMessage.result = result;
+                })
+                .otherwise(function(e) {
+                    if (e instanceof Error) {
+                        // Errors can't be posted in a message, copy the properties
+                        responseMessage.error = {
+                            name : e.name,
+                            message : e.message,
+                            stack : e.stack
+                        };
+                    } else {
+                        responseMessage.error = e;
+                    }
+                })
+                .always(function() {
+                    if (!defined(postMessage)) {
+                        postMessage = defaultValue(self.webkitPostMessage, self.postMessage);
+                    }
+
+                    if (!data.canTransferArrayBuffer) {
+                        transferableObjects.length = 0;
+                    }
+
+                    try {
+                        postMessage(responseMessage, transferableObjects);
+                    } catch (e) {
+                        // something went wrong trying to post the message, post a simpler
+                        // error that we can be sure will be cloneable
+                        responseMessage.result = undefined;
+                        responseMessage.error = 'postMessage failed with error: ' + formatError(e) + '\n  with responseMessage: ' + JSON.stringify(responseMessage);
+                        postMessage(responseMessage);
+                    }
+                });
+        };
+    }
+
+    /**
+     * A function that performs a calculation in a Web Worker.
+     * @callback createTaskProcessorWorker~WorkerFunction
+     *
+     * @param {Object} parameters Parameters to the calculation.
+     * @param {Array} transferableObjects An array that should be filled with references to objects inside
+     *        the result that should be transferred back to the main document instead of copied.
+     * @returns {Object} The result of the calculation.
+     *
+     * @example
+     * function calculate(parameters, transferableObjects) {
+     *   // perform whatever calculation is necessary.
+     *   var typedArray = new Float32Array(0);
+     *
+     *   // typed arrays are transferable
+     *   transferableObjects.push(typedArray)
+     *
+     *   return {
+     *      typedArray : typedArray
+     *   };
+     * }
+     */
+
+    /**
+     * A Web Worker message event handler function that handles the interaction with TaskProcessor,
+     * specifically, task ID management and posting a response message containing the result.
+     * @callback createTaskProcessorWorker~TaskProcessorWorkerFunction
+     *
+     * @param {Object} event The onmessage event object.
+     */
+
+    return createTaskProcessorWorker;
+});
+
+define('Workers/decodeDraco',[
+        '../Core/ComponentDatatype',
+        '../Core/defined',
+        '../Core/IndexDatatype',
+        '../Core/RuntimeError',
+        './createTaskProcessorWorker'
+    ], function(
+        ComponentDatatype,
+        defined,
+        IndexDatatype,
+        RuntimeError,
+        createTaskProcessorWorker) {
+    'use strict';
+
+    var draco;
+
+    function decodeIndexArray(dracoGeometry, dracoDecoder) {
+        var numPoints = dracoGeometry.num_points();
+        var numFaces = dracoGeometry.num_faces();
+        var faceIndices = new draco.DracoInt32Array();
+        var numIndices = numFaces * 3;
+        var indexArray = IndexDatatype.createTypedArray(numPoints, numIndices);
+
+        var offset = 0;
+        for (var i = 0; i < numFaces; ++i) {
+            dracoDecoder.GetFaceFromMesh(dracoGeometry, i, faceIndices);
+
+            indexArray[offset + 0] = faceIndices.GetValue(0);
+            indexArray[offset + 1] = faceIndices.GetValue(1);
+            indexArray[offset + 2] = faceIndices.GetValue(2);
+            offset += 3;
+        }
+
+        draco.destroy(faceIndices);
+
+        return {
+            typedArray : indexArray,
+            numberOfIndices : numIndices
+        };
+    }
+
+    function decodeQuantizedDracoTypedArray(dracoGeometry, dracoDecoder, dracoAttribute, quantization, vertexArrayLength) {
+        var vertexArray;
+        var attributeData;
+        if (quantization.quantizationBits <= 8) {
+            attributeData = new draco.DracoUInt8Array();
+            vertexArray = new Uint8Array(vertexArrayLength);
+            dracoDecoder.GetAttributeUInt8ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+        } else {
+            attributeData = new draco.DracoUInt16Array();
+            vertexArray = new Uint16Array(vertexArrayLength);
+            dracoDecoder.GetAttributeUInt16ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+        }
+
+        for (var i = 0; i < vertexArrayLength; ++i) {
+            vertexArray[i] = attributeData.GetValue(i);
+        }
+
+        draco.destroy(attributeData);
+        return vertexArray;
+    }
+
+    function decodeDracoTypedArray(dracoGeometry, dracoDecoder, dracoAttribute, vertexArrayLength) {
+        var vertexArray;
+        var attributeData;
+
+        // Some attribute types are casted down to 32 bit since Draco only returns 32 bit values
+        switch (dracoAttribute.data_type()) {
+            case 1: case 11: // DT_INT8 or DT_BOOL
+                attributeData = new draco.DracoInt8Array();
+                vertexArray = new Int8Array(vertexArrayLength);
+                dracoDecoder.GetAttributeInt8ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+                break;
+            case 2: // DT_UINT8
+                attributeData = new draco.DracoUInt8Array();
+                vertexArray = new Uint8Array(vertexArrayLength);
+                dracoDecoder.GetAttributeUInt8ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+                break;
+            case 3: // DT_INT16
+                attributeData = new draco.DracoInt16Array();
+                vertexArray = new Int16Array(vertexArrayLength);
+                dracoDecoder.GetAttributeInt16ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+                break;
+            case 4: // DT_UINT16
+                attributeData = new draco.DracoUInt16Array();
+                vertexArray = new Uint16Array(vertexArrayLength);
+                dracoDecoder.GetAttributeUInt16ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+                break;
+            case 5: case 7: // DT_INT32 or DT_INT64
+                attributeData = new draco.DracoInt32Array();
+                vertexArray = new Int32Array(vertexArrayLength);
+                dracoDecoder.GetAttributeInt32ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+                break;
+            case 6: case 8: // DT_UINT32 or DT_UINT64
+                attributeData = new draco.DracoUInt32Array();
+                vertexArray = new Uint32Array(vertexArrayLength);
+                dracoDecoder.GetAttributeUInt32ForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+                break;
+            case 9: case 10: // DT_FLOAT32 or DT_FLOAT64
+                attributeData = new draco.DracoFloat32Array();
+                vertexArray = new Float32Array(vertexArrayLength);
+                dracoDecoder.GetAttributeFloatForAllPoints(dracoGeometry, dracoAttribute, attributeData);
+                break;
+        }
+
+        for (var i = 0; i < vertexArrayLength; ++i) {
+            vertexArray[i] = attributeData.GetValue(i);
+        }
+
+        draco.destroy(attributeData);
+        return vertexArray;
+    }
+
+    function decodeAttribute(dracoGeometry, dracoDecoder, dracoAttribute) {
+        var numPoints = dracoGeometry.num_points();
+        var numComponents = dracoAttribute.num_components();
+
+        var quantization;
+        var transform = new draco.AttributeQuantizationTransform();
+        if (transform.InitFromAttribute(dracoAttribute)) {
+            var minValues = new Array(numComponents);
+            for (var i = 0; i < numComponents; ++i) {
+                minValues[i] = transform.min_value(i);
+            }
+            quantization = {
+                quantizationBits : transform.quantization_bits(),
+                minValues : minValues,
+                range : transform.range(),
+                octEncoded : false
+            };
+        }
+        draco.destroy(transform);
+
+        transform = new draco.AttributeOctahedronTransform();
+        if (transform.InitFromAttribute(dracoAttribute)) {
+            quantization = {
+                quantizationBits : transform.quantization_bits(),
+                octEncoded : true
+            };
+        }
+        draco.destroy(transform);
+
+        var vertexArrayLength = numPoints * numComponents;
+        var vertexArray;
+        if (defined(quantization)) {
+            vertexArray = decodeQuantizedDracoTypedArray(dracoGeometry, dracoDecoder, dracoAttribute, quantization, vertexArrayLength);
+        } else {
+            vertexArray = decodeDracoTypedArray(dracoGeometry, dracoDecoder, dracoAttribute, vertexArrayLength);
+        }
+
+        var componentDatatype = ComponentDatatype.fromTypedArray(vertexArray);
+
+        return {
+            array : vertexArray,
+            data : {
+                componentsPerAttribute : numComponents,
+                componentDatatype : componentDatatype,
+                byteOffset : dracoAttribute.byte_offset(),
+                byteStride : ComponentDatatype.getSizeInBytes(componentDatatype) * numComponents,
+                normalized : dracoAttribute.normalized(),
+                quantization : quantization
+            }
+        };
+    }
+
+    function decodePointCloud(parameters) {
+        var dracoDecoder = new draco.Decoder();
+
+        if (parameters.dequantizeInShader) {
+            dracoDecoder.SkipAttributeTransform(draco.POSITION);
+            dracoDecoder.SkipAttributeTransform(draco.NORMAL);
+        }
+
+        var buffer = new draco.DecoderBuffer();
+        buffer.Init(parameters.buffer, parameters.buffer.length);
+
+        var geometryType = dracoDecoder.GetEncodedGeometryType(buffer);
+        if (geometryType !== draco.POINT_CLOUD) {
+            throw new RuntimeError('Draco geometry type must be POINT_CLOUD.');
+        }
+
+        var dracoPointCloud = new draco.PointCloud();
+        var decodingStatus = dracoDecoder.DecodeBufferToPointCloud(buffer, dracoPointCloud);
+        if (!decodingStatus.ok() || dracoPointCloud.ptr === 0) {
+            throw new RuntimeError('Error decoding draco point cloud: ' + decodingStatus.error_msg());
+        }
+
+        draco.destroy(buffer);
+
+        var result = {};
+
+        var properties = parameters.properties;
+        for (var propertyName in properties) {
+            if (properties.hasOwnProperty(propertyName)) {
+                var attributeId = properties[propertyName];
+                var dracoAttribute = dracoDecoder.GetAttributeByUniqueId(dracoPointCloud, attributeId);
+                result[propertyName] = decodeAttribute(dracoPointCloud, dracoDecoder, dracoAttribute);
+            }
+        }
+
+        draco.destroy(dracoPointCloud);
+        draco.destroy(dracoDecoder);
+
+        return result;
+    }
+
+    function decodePrimitive(parameters) {
+        var dracoDecoder = new draco.Decoder();
+
+        // Skip all parameter types except generic
+        var attributesToSkip = ['POSITION', 'NORMAL', 'COLOR', 'TEX_COORD'];
+        if (parameters.dequantizeInShader) {
+            for (var i = 0; i < attributesToSkip.length; ++i) {
+                dracoDecoder.SkipAttributeTransform(draco[attributesToSkip[i]]);
+            }
+        }
+
+        var bufferView = parameters.bufferView;
+        var buffer = new draco.DecoderBuffer();
+        buffer.Init(parameters.array, bufferView.byteLength);
+
+        var geometryType = dracoDecoder.GetEncodedGeometryType(buffer);
+        if (geometryType !== draco.TRIANGULAR_MESH) {
+            throw new RuntimeError('Unsupported draco mesh geometry type.');
+        }
+
+        var dracoGeometry = new draco.Mesh();
+        var decodingStatus = dracoDecoder.DecodeBufferToMesh(buffer, dracoGeometry);
+        if (!decodingStatus.ok() || dracoGeometry.ptr === 0) {
+            throw new RuntimeError('Error decoding draco mesh geometry: ' + decodingStatus.error_msg());
+        }
+
+        draco.destroy(buffer);
+
+        var attributeData = {};
+
+        var compressedAttributes = parameters.compressedAttributes;
+        for (var attributeName in compressedAttributes) {
+            if (compressedAttributes.hasOwnProperty(attributeName)) {
+                var compressedAttribute = compressedAttributes[attributeName];
+                var dracoAttribute = dracoDecoder.GetAttributeByUniqueId(dracoGeometry, compressedAttribute);
+                attributeData[attributeName] = decodeAttribute(dracoGeometry, dracoDecoder, dracoAttribute);
+            }
+        }
+
+        var result = {
+            indexArray : decodeIndexArray(dracoGeometry, dracoDecoder),
+            attributeData : attributeData
+        };
+
+        draco.destroy(dracoGeometry);
+        draco.destroy(dracoDecoder);
+
+        return result;
+    }
+
+    function decode(parameters) {
+        if (defined(parameters.primitive)) {
+            return decodePrimitive(parameters);
+        }
+        return decodePointCloud(parameters);
+    }
+
+    function initWorker(dracoModule) {
+        draco = dracoModule;
+        self.onmessage = createTaskProcessorWorker(decode);
+        self.postMessage(true);
+    }
+
+    function decodeDraco(event) {
+        var data = event.data;
+
+        // Expect the first message to be to load a web assembly module
+        var wasmConfig = data.webAssemblyConfig;
+        if (defined(wasmConfig)) {
+            // Require and compile WebAssembly module, or use fallback if not supported
+            return require([wasmConfig.modulePath], function(dracoModule) {
+                if (defined(wasmConfig.wasmBinaryFile)) {
+                    if (!defined(dracoModule)) {
+                        dracoModule = self.DracoDecoderModule;
+                    }
+
+                    dracoModule(wasmConfig).then(function (compiledModule) {
+                        initWorker(compiledModule);
+                    });
+                } else {
+                    initWorker(dracoModule());
+                }
+            });
+        }
+    }
+
+    return decodeDraco;
+});
+
+}());

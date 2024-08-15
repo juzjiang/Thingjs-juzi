@@ -1,1 +1,43 @@
-!Cr*//%/%F`vlph%(%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph%/%/%Fju|wlbmq%7544(7542%F`vlph%Fjkqwlgpqjwv%/%/%Ilf`kv`a%pka`w%qm`%Dudfm`%Ilf`kv`)%S`wvljk%7+5%-qm`%'Ilf`kv`',>%/%|jp%hd|%kjq%pv`%qmlv%cli`%`}f`uq%lk%fjhuildkf`%rlqm%qm`%Ilf`kv`+%/%\jp%hd|%jgqdlk%d%fju|%jc%qm`%Ilf`kv`%dq%/%/%mqqu?**rrr+dudfm`+jwb*ilf`kv`v*ILF@KV@(7+5%/%/%Pki`vv%w`tplw`a%g|%duuilfdgi`%idr%jw%dbw``a%qj%lk%rwlqlkb)%vjcqrdw`%/%alvqwlgpq`a%pka`w%qm`%Ilf`kv`%lv%alvqwlgpq`a%jk%dk%'DV%LV'%GDVLV)%/%RLQMJPQ%RDWWDKQL@V%JW%FJKALQLJKV%JC%DK\%NLKA)%`lqm`w%`}uw`vv%jw%lhuil`a+%/%V``%qm`%Ilf`kv`%cjw%qm`%vu`flclf%idkbpdb`%bjs`wklkb%u`whlvvljkv%dka%/%ilhlqdqljkv%pka`w%qm`%Ilf`kv`+%/%/%Fjiphgpv%Sl`r%-Udq+%U`ka+,%/%/%Ujwqljkv%ilf`kv`a%v`udwdq`i|+%/%V``%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph*gijg*hdvq`w*ILF@KV@+ha%cjw%cpii%ilf`kvlkb%a`qdliv+%/**/bijgdi%v`ic?qwp`/***%hdn`%vpw`%v`ic%lv%a`clk`a%vj%qmdq%qm`%Ajoj%gplia%fdk%`sdipdq`%qmlv%cli`%rlqmjpq%fwdvmlkb+lc%-q|u`jc%v`ic%888%"pka`clk`a",%~%%%%v`ic%8%~x>xv`ic+jkh`vvdb`%8%cpkfqljk-`s`kq,%~%%%%"pv`%vqwlfq">%%%%sdw%dwwd|%8%`s`kq+adqd+dwwd|>%%%%sdw%ujvqH`vvdb`%8%v`ic+r`gnlqUjvqH`vvdb`%yy%v`ic+ujvqH`vvdb`>%%%%qw|%~%%%%%%%%**%qwdkvc`w%qm`%q`vq%dwwd|%gdfn%qj%qm`%fdii`w%%%%%%%%ujvqH`vvdb`-~%%%%%%%%%%%%dwwd|%?%dwwd|%%%%%%%%x)%^dwwd|+gpcc`wX,>%%%%x%fdqfm%-`,%~%%%%%%%%ujvqH`vvdb`-~x,>%%%%xx>
+/**
+ * Cesium - https://github.com/AnalyticalGraphicsInc/cesium
+ *
+ * Copyright 2011-2017 Cesium Contributors
+ *
+ * Licensed under the Apache License, Version 2.0 (the "License");
+ * you may not use this file except in compliance with the License.
+ * You may obtain a copy of the License at
+ *
+ * http://www.apache.org/licenses/LICENSE-2.0
+ *
+ * Unless required by applicable law or agreed to in writing, software
+ * distributed under the License is distributed on an "AS IS" BASIS,
+ * WITHOUT WARRANTIES OR CONDITIONS OF ANY KIND, either express or implied.
+ * See the License for the specific language governing permissions and
+ * limitations under the License.
+ *
+ * Columbus View (Pat. Pend.)
+ *
+ * Portions licensed separately.
+ * See https://github.com/AnalyticalGraphicsInc/cesium/blob/master/LICENSE.md for full licensing details.
+ */
+/*global self:true*/
+// make sure self is defined so that the Dojo build can evaluate this file without crashing.
+if (typeof self === 'undefined') {
+    self = {};
+}
+
+self.onmessage = function(event) {
+    'use strict';
+    var array = event.data.array;
+    var postMessage = self.webkitPostMessage || self.postMessage;
+
+    try {
+        // transfer the test array back to the caller
+        postMessage({
+            array : array
+        }, [array.buffer]);
+    } catch (e) {
+        postMessage({});
+    }
+};
+

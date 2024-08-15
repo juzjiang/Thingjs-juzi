@@ -1,0 +1,25 @@
+{
+  "name": "25000北京站厅",
+  "type": "model",
+  "version": "2.1",
+  "author": "uino ModelTeam",
+  "description": "",
+  "extras": {
+    "info": {
+      "faces": 15243,
+      "verts": 10230,
+      "nodes": 33
+    },
+    "size": [
+      213.194,
+      37.4398,
+      5.70002
+    ],
+    "gltfFiles": [
+      "34SE7T85F7CK5ANKIWJOMFYI4UTKQ37NP.model"
+    ],
+    "additionalFiles": [
+      "extensions.ext"
+    ]
+  }
+}

@@ -1,0 +1,25 @@
+{
+  "name": "25000风机",
+  "type": "model",
+  "version": "2.1",
+  "author": "uino ModelTeam",
+  "description": "",
+  "extras": {
+    "info": {
+      "faces": 1204,
+      "verts": 696,
+      "nodes": 1
+    },
+    "size": [
+      2.51111,
+      2.51111,
+      2.4743
+    ],
+    "gltfFiles": [
+      "72TH80E9137OUZ24OP8YEU2TZU62TZUXZ.model"
+    ],
+    "additionalFiles": [
+      "extensions.ext"
+    ]
+  }
+}

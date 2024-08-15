@@ -1,0 +1,37 @@
+{
+  "sourceFile": "E:\\processor\\work\\7369fd6c9c0d44e9af14b759bfdde28f_5d552c4bbe5a4a63a2b0bb77b497c258_999_转换中\\MAX\\25000北京站台.maxbk0.max",
+  "gltfFiles": [
+    "F1U2QPU0O82CPE8UGZJUQ8W6T9T1D322P.model"
+  ],
+  "texFiles": {
+    "340D74841JQUYH00QUUKGODQCHWV29NKG": ".bin",
+    "Z68PEWVTOZWDHNV4U30QROD7TJZI4F82Q": "smd_5.jpg",
+    "AUZ2Q9YOCUU8TJ4KOQNSG7N0TEJKQUZIQ": "smd_9.jpg",
+    "UTWI3W041UTIC3UNE3YIQWZ05UU2X3UQQ": "smd_11.jpg",
+    "10WE1PNUIEW1EZTIXTDVY7PNPJ2COAZKP": "smd_1.jpg",
+    "3NK28TIME7SUD11IC17UEOJ8E361RA0SE": "smd_12.jpg",
+    "W1VG7Z2OU865ZZVMHU68I8ZNC3ZCM11K5": "smd_13.jpg",
+    "AUUODFNNYOYC57ZSME7QYUNWCWUS4AWI5": "smd_3.jpg",
+    "7T258Y6O8U8KIW7IT3J0TWJIQO1V2OYNX": "smd_8_f_png.jpg",
+    "820RJN1UXQ08Q82IDJ0NG100Y18V2F1SI": "smd_10.png",
+    "JTUNP9J8OOPWP1JQ4A17I907G3D7QF0C2": "smd_2_f_png.jpg",
+    "1TKIO10UG7PVO7PIMQY1GAZ6I97QGJ01T": "smd_6.jpg",
+    "ONQEFJVROU6GUUJIOE66M7U2Q9Z6X920T": "smd_4.jpg",
+    "W1S57YSXAPNEO71POUN22888MHYVEWD8C": "smd_14.jpg",
+    "O2WY31NGJ0KRJU1K5UD843D84FDQI1JUO": "smd_15.jpg"
+  },
+  "size": [
+    213.308,
+    37.5556,
+    12.0615
+  ],
+  "faces": 11240,
+  "verts": 6709,
+  "nodes": 14,
+  "createTime": "2024-07-22 13:47:31",
+  "author": "",
+  "computer": "BJ-226",
+  "max": "#(22000, 55, 0, 22, 0, 0, 757, 2020, \"\")",
+  "version": "2.1",
+  "extensionsFile": "extensions.ext"
+}

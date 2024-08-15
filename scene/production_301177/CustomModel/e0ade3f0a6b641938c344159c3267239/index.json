@@ -1,0 +1,28 @@
+{
+  "sourceFile": "E:\\processor\\work\\0377eb8a68504eab9785402c8dee137e_e0ade3f0a6b641938c344159c3267239_999_转换中\\MAX\\25000闸机.maxbk0.max",
+  "gltfFiles": [
+    "57715T6QOAJSEEN0W2T024Z1WE9D0QA6I.model"
+  ],
+  "texFiles": {
+    "QO2N7TO6Q5OTWXUN84OP6PJWNEU8SRZU0": ".bin",
+    "CFJVMTU1RO2CMNJ2UI311TU66RA66C9WS": "smd_1.jpg",
+    "Y74C57W62HD8PTN4NDW605HN1QU4IQ9YN": "smd_2.jpg",
+    "EON7YJWQOOJNYWP2NY9J62QW1EW0SYW46": "smd_3.jpg",
+    "PQ12NDJ66OT0QET27XED02Z8KQEPNGW6W": "smd_4.jpg",
+    "YZJ8438NMW8QDFNP8YAZCQFUI587KP9JU": "smd_5.jpg"
+  },
+  "size": [
+    0.757816,
+    2.95879,
+    1.79375
+  ],
+  "faces": 45648,
+  "verts": 22876,
+  "nodes": 1,
+  "createTime": "2024-07-22 14:31:24",
+  "author": "9777",
+  "computer": "XTZJ-20220928QY",
+  "max": "#(22000, 55, 0, 22, 0, 0, 757, 2020, \"\")",
+  "version": "2.1",
+  "extensionsFile": "extensions.ext"
+}

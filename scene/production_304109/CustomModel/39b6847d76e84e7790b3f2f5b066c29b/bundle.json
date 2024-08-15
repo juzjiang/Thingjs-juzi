@@ -1,0 +1,25 @@
+{
+  "name": "25000站台门",
+  "type": "model",
+  "version": "2.1",
+  "author": "uino ModelTeam",
+  "description": "",
+  "extras": {
+    "info": {
+      "faces": 72,
+      "verts": 48,
+      "nodes": 1
+    },
+    "size": [
+      3.18707,
+      0.118019,
+      3.49917
+    ],
+    "gltfFiles": [
+      "XOPVPZWJW2WDCD7UN2JZ04UNSIJ4KOH4K.model"
+    ],
+    "additionalFiles": [
+      "extensions.ext"
+    ]
+  }
+}

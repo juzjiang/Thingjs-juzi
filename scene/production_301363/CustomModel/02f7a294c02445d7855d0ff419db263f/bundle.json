@@ -1,0 +1,25 @@
+{
+  "name": "25000闸机1",
+  "type": "model",
+  "version": "2.1",
+  "author": "uino ModelTeam",
+  "description": "",
+  "extras": {
+    "info": {
+      "faces": 22736,
+      "verts": 11392,
+      "nodes": 1
+    },
+    "size": [
+      1.09706,
+      0.738476,
+      1.79375
+    ],
+    "gltfFiles": [
+      "DTT8298UOHDNKTQY0P3UNXZZ7DAY0QEN8.model"
+    ],
+    "additionalFiles": [
+      "extensions.ext"
+    ]
+  }
+}

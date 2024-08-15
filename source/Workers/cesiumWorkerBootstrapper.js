@@ -1,1 +1,2149 @@
-!Cr*//%/%F`vlph%(%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph%/%/%Fju|wlbmq%7544(7542%F`vlph%Fjkqwlgpqjwv%/%/%Ilf`kv`a%pka`w%qm`%Dudfm`%Ilf`kv`)%S`wvljk%7+5%-qm`%'Ilf`kv`',>%/%|jp%hd|%kjq%pv`%qmlv%cli`%`}f`uq%lk%fjhuildkf`%rlqm%qm`%Ilf`kv`+%/%\jp%hd|%jgqdlk%d%fju|%jc%qm`%Ilf`kv`%dq%/%/%mqqu?**rrr+dudfm`+jwb*ilf`kv`v*ILF@KV@(7+5%/%/%Pki`vv%w`tplw`a%g|%duuilfdgi`%idr%jw%dbw``a%qj%lk%rwlqlkb)%vjcqrdw`%/%alvqwlgpq`a%pka`w%qm`%Ilf`kv`%lv%alvqwlgpq`a%jk%dk%'DV%LV'%GDVLV)%/%RLQMJPQ%RDWWDKQL@V%JW%FJKALQLJKV%JC%DK\%NLKA)%`lqm`w%`}uw`vv%jw%lhuil`a+%/%V``%qm`%Ilf`kv`%cjw%qm`%vu`flclf%idkbpdb`%bjs`wklkb%u`whlvvljkv%dka%/%ilhlqdqljkv%pka`w%qm`%Ilf`kv`+%/%/%Fjiphgpv%Sl`r%-Udq+%U`ka+,%/%/%Ujwqljkv%ilf`kv`a%v`udwdq`i|+%/%V``%mqquv?**blqmpg+fjh*Dkdi|qlfdiBwdumlfvLkf*f`vlph*gijg*hdvq`w*ILF@KV@+ha%cjw%cpii%ilf`kvlkb%a`qdliv+%/*lc%-q|u`jc%v`ic%888%"pka`clk`a",%~%%%%v`ic%8%~x>%**a`clk`%v`ic%vj%qmdq%qm`%Ajoj%gplia%fdk%`sdipdq`%qmlv%cli`%rlqmjpq%fwdvmlkb+xv`ic+jkh`vvdb`%8%cpkfqljk-`s`kq,%~%%%%sdw%adqd%8%`s`kq+adqd>%%%%w`tplw`-adqd+ijda`wFjkclb)%^adqd+rjwn`wHjapi`X)%cpkfqljk-rjwn`wHjapi`,%~%%%%%%%%**w`uidf`%jkh`vvdb`%rlqm%qm`%w`tplw`a(lk%rjwn`wHjapi`%%%%%%%%v`ic+jkh`vvdb`%8%rjwn`wHjapi`>%%%%%%%%F@VLPHZGDV@ZPWI%8%adqd+ijda`wFjkclb+gdv`Pwi>%%%%x,>x>**%w`uidf`%v`qQlh`jpq%rlqm%d%cpkfqljk%qmdq%`}`fpq`v%lhh`aldq`i|%v|kfmwjkjpvi|)%rmlfm**%rlii%hdn`%qm`%dgjs`%w`tplw`%v|kfmwjkjpv%iln`%lq%pv`a%qj%g`)%qj%`kvpw`%qmdq%r`%r`**%mds`%qm`%w`di%rjwn`w%hjapi`%ijda`a%dka%lkvqdii`a%g`cjw`%w`f`lslkb%dk|%hjw`%h`vvdb`v+cpkfqljk%v`qQlh`jpq-ck,%~%%%%ck-,>x**g`ijr%lv%W`tplw`OV)%s`wgdqlh*//%slh?%`q?qv81?vr81?vqv81%/%Eilf`kv`%W`tplw`OV%7+4+75%Fju|wlbmq%-f,%7545(7540)%Qm`%Ajoj%Cjpkadqljk%Dii%Wlbmqv%W`v`ws`a+%/%Dsdlidgi`%sld%qm`%HLQ%jw%k`r%GVA%ilf`kv`+%/%v``?%mqqu?**blqmpg+fjh*owgpwn`*w`tplw`ov%cjw%a`qdliv%/***Kjq%pvlkb%vqwlfq?%pk`s`k%vqwlfq%vpuujwq%lk%gwjrv`wv)%&6<7)%dka%fdpv`v**uwjgi`hv%rlqm%w`tplw`ov+`}`f-,*qwdkvuli`w%uipblkv%qmdq%hd|%kjq%g`%vqwlfq+*/ovilkq%w`b`}u?%qwp`)%kjh`k?%qwp`)%vijuu|?%qwp`%/**/bijgdi%rlkajr)%kdslbdqjw)%ajfph`kq)%lhujwqVfwluqv)%v`qQlh`jpq)%ju`wd%/*sdw%w`tplw`ov)%w`tplw`)%a`clk`>-cpkfqljk%-bijgdi,%~%%%%sdw%w`t)%v)%m`da)%gdv`@i`h`kq)%adqdHdlk)%vwf)%%%%%%%%lkq`wdfqls`Vfwluq)%fpww`kqi|DaalkbVfwluq)%hdlkVfwluq)%vpgUdqm)%%%%%%%%s`wvljk%8%"7+4+75")%%%%%%%%fjhh`kqW`b@}u%8%*-Y*Y/-^YvYVX/:,Y/Y*y-^[?Xy[,Y*Y*-+/,!,*hb)%%%%%%%%fovW`tplw`W`b@}u%8%*^[+XYv/w`tplw`Yv/Y-Yv/^'"X-^["'YvX.,^'"XYv/Y,*b)%%%%%%%%ovVpccl}W`b@}u%8%*Y+ov!*)%%%%%%%%fpwwAlwW`b@}u%8%*[Y+Y**)%%%%%%%%ju%8%Jgo`fq+uwjqjq|u`)%%%%%%%%jvqwlkb%8%ju+qjVqwlkb)%%%%%%%%mdvJrk%8%ju+mdvJrkUwju`wq|)%%%%%%%%du%8%Dwwd|+uwjqjq|u`)%%%%%%%%lvGwjrv`w%8%$$-q|u`jc%rlkajr%$88%"pka`clk`a"%##%q|u`jc%kdslbdqjw%$88%"pka`clk`a"%##%rlkajr+ajfph`kq,)%%%%%%%%lvR`gRjwn`w%8%$lvGwjrv`w%##%q|u`jc%lhujwqVfwluqv%$88%"pka`clk`a")%%%%%%%%**UV6%lkalfdq`v%ijda`a%dka%fjhui`q`)%gpq%k``a%qj%rdlq%cjw%fjhui`q`%%%%%%%%**vu`flclfdii|+%V`tp`kf`%lv%"ijdalkb")%"ijda`a")%`}`fpqljk)%%%%%%%%**%qm`k%"fjhui`q`"+%Qm`%PD%fm`fn%lv%pkcjwqpkdq`)%gpq%kjq%vpw`%mjr%%%%%%%%**qj%c`dqpw`%q`vq%r*j%fdpvlkb%u`wc%lvvp`v+%%%%%%%%w`da|W`b@}u%8%lvGwjrv`w%##%kdslbdqjw+uidqcjwh%888%"UID\VQDQLJK%6"%:%%%%%%%%%%%%%%%%%%%%%%*[fjhui`q`!*%?%*[-fjhui`q`yijda`a,!*)%%%%%%%%a`cFjkq`}qKdh`%8%"Z")%%%%%%%%**Jm%qm`%qwdb`a|)%a`q`fqlkb%ju`wd+%V``%qm`%pvdb`%jc%lvJu`wd%cjw%w`dvjk+%%%%%%%%lvJu`wd%8%q|u`jc%ju`wd%$88%"pka`clk`a"%##%ju`wd+qjVqwlkb-,%888%"^jgo`fq%Ju`wdX")%%%%%%%%fjkq`}qv%8%~x)%%%%%%%%fcb%8%~x)%%%%%%%%bijgdiA`cTp`p`%8%^X)%%%%%%%%pv`Lkq`wdfqls`%8%cdiv`>%%%%cpkfqljk%lvCpkfqljk-lq,%~%%%%%%%%w`qpwk%jvqwlkb+fdii-lq,%888%"^jgo`fq%CpkfqljkX">%%%%x%%%%cpkfqljk%lvDwwd|-lq,%~%%%%%%%%w`qpwk%jvqwlkb+fdii-lq,%888%"^jgo`fq%Dwwd|X">%%%%x%%%%*//%%%%%/%M`iu`w%cpkfqljk%cjw%lq`wdqlkb%js`w%dk%dwwd|+%Lc%qm`%cpkf%w`qpwkv%%%%%/%d%qwp`%sdip`)%lq%rlii%gw`dn%jpq%jc%qm`%ijju+%%%%%/*%%%%cpkfqljk%`dfm-dw|)%cpkf,%~%%%%%%%%lc%-dw|,%~%%%%%%%%%%%%sdw%l>%%%%%%%%%%%%cjw%-l%8%5>%l%9%dw|+i`kbqm>%l%.8%4,%~%%%%%%%%%%%%%%%%lc%-dw|^lX%##%cpkf-dw|^lX)%l)%dw|,,%~%%%%%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%x%%%%*//%%%%%/%M`iu`w%cpkfqljk%cjw%lq`wdqlkb%js`w%dk%dwwd|%gdfnrdwav+%Lc%qm`%cpkf%%%%%/%w`qpwkv%d%qwp`%sdip`)%lq%rlii%gw`dn%jpq%jc%qm`%ijju+%%%%%/*%%%%cpkfqljk%`dfmW`s`wv`-dw|)%cpkf,%~%%%%%%%%lc%-dw|,%~%%%%%%%%%%%%sdw%l>%%%%%%%%%%%%cjw%-l%8%dw|+i`kbqm%(%4>%l%;%(4>%l%(8%4,%~%%%%%%%%%%%%%%%%lc%-dw|^lX%##%cpkf-dw|^lX)%l)%dw|,,%~%%%%%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%x%%%%cpkfqljk%mdvUwju-jgo)%uwju,%~%%%%%%%%w`qpwk%mdvJrk+fdii-jgo)%uwju,>%%%%x%%%%cpkfqljk%b`qJrk-jgo)%uwju,%~%%%%%%%%w`qpwk%mdvUwju-jgo)%uwju,%##%jgo^uwjuX>%%%%x%%%%*//%%%%%/%F|fi`v%js`w%uwju`wql`v%lk%dk%jgo`fq%dka%fdiiv%d%cpkfqljk%cjw%`dfm%%%%%/%uwju`wq|%sdip`+%Lc%qm`%cpkfqljk%w`qpwkv%d%qwpqm|%sdip`)%qm`k%qm`%%%%%/%lq`wdqljk%lv%vqjuu`a+%%%%%/*%%%%cpkfqljk%`dfmUwju-jgo)%cpkf,%~%%%%%%%%sdw%uwju>%%%%%%%%cjw%-uwju%lk%jgo,%~%%%%%%%%%%%%lc%-mdvUwju-jgo)%uwju,,%~%%%%%%%%%%%%%%%%lc%-cpkf-jgo^uwjuX)%uwju,,%~%%%%%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%x%%%%*//%%%%%/%Vlhui`%cpkfqljk%qj%hl}%lk%uwju`wql`v%cwjh%vjpwf`%lkqj%qdwb`q)%%%%%/%gpq%jki|%lc%qdwb`q%aj`v%kjq%diw`da|%mds`%d%uwju`wq|%jc%qm`%vdh`%kdh`+%%%%%/*%%%%cpkfqljk%hl}lk-qdwb`q)%vjpwf`)%cjwf`)%a``uVqwlkbHl}lk,%~%%%%%%%%lc%-vjpwf`,%~%%%%%%%%%%%%`dfmUwju-vjpwf`)%cpkfqljk%-sdip`)%uwju,%~%%%%%%%%%%%%%%%%lc%-cjwf`%yy%$mdvUwju-qdwb`q)%uwju,,%~%%%%%%%%%%%%%%%%%%%%lc%-a``uVqwlkbHl}lk%##%q|u`jc%sdip`%888%"jgo`fq"%##%sdip`%##%%%%%%%%%%%%%%%%%%%%%%%%$lvDwwd|-sdip`,%##%$lvCpkfqljk-sdip`,%##%%%%%%%%%%%%%%%%%%%%%%%%$-sdip`%lkvqdkf`jc%W`b@}u,,%~%%%%%%%%%%%%%%%%%%%%%%%%lc%-$qdwb`q^uwjuX,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%qdwb`q^uwjuX%8%~x>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%hl}lk-qdwb`q^uwjuX)%sdip`)%cjwf`)%a``uVqwlkbHl}lk,>%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%qdwb`q^uwjuX%8%sdip`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x,>%%%%%%%%x%%%%%%%%w`qpwk%qdwb`q>%%%%x%%%%**Vlhlidw%qj%Cpkfqljk+uwjqjq|u`+glka)%gpq%qm`%"qmlv"%jgo`fq%lv%vu`flcl`a%%%%**clwvq)%vlkf`%lq%lv%`dvl`w%qj%w`da*clbpw`%jpq%rmdq%"qmlv"%rlii%g`+%%%%cpkfqljk%glka-jgo)%ck,%~%%%%%%%%w`qpwk%cpkfqljk%-,%~%%%%%%%%%%%%w`qpwk%ck+duui|-jgo)%dwbph`kqv,>%%%%%%%%x>%%%%x%%%%cpkfqljk%vfwluqv-,%~%%%%%%%%w`qpwk%ajfph`kq+b`q@i`h`kqvG|QdbKdh`-"vfwluq",>%%%%x%%%%cpkfqljk%a`cdpiqJk@wwjw-`ww,%~%%%%%%%%qmwjr%`ww>%%%%x%%%%**Diijr%b`qqlkb%d%bijgdi%qmdq%lv%`}uw`vv`a%lk%%%%**ajq%kjqdqljk)%iln`%"d+g+f"+%%%%cpkfqljk%b`qBijgdi-sdip`,%~%%%%%%%%lc%-$sdip`,%~%%%%%%%%%%%%w`qpwk%sdip`>%%%%%%%%x%%%%%%%%sdw%b%8%bijgdi>%%%%%%%%`dfm-sdip`+vuilq-"+",)%cpkfqljk%-udwq,%~%%%%%%%%%%%%b%8%b^udwqX>%%%%%%%%x,>%%%%%%%%w`qpwk%b>%%%%x%%%%*//%%%%%/%Fjkvqwpfqv%dk%`wwjw%rlqm%d%ujlkq`w%qj%dk%PWI%rlqm%hjw`%lkcjwhdqljk+%%%%%/%Eudwdh%~Vqwlkbx%la%qm`%`wwjw%LA%qmdq%hduv%qj%dk%LA%jk%d%r`g%udb`+%%%%%/%Eudwdh%~Vqwlkbx%hvb%mphdk%w`dadgi`%`wwjw+%%%%%/%Eudwdh%~@wwjwx%^`wwX%qm`%jwlblkdi%`wwjw)%lc%qm`w`%lv%jk`+%%%%%/%Eudwdh%~W`tplw`Hjapi`vx%w`tplw`Hjapi`v%Qm`%hjapi`v%w`tplw`a%gpq%kjq%cjpka+%%%%%/%%%%%/%Ew`qpwkv%~@wwjwx%%%%%/*%%%%cpkfqljk%hdn`@wwjw-la)%hvb)%`ww)%w`tplw`Hjapi`v,%~%%%%%%%%sdw%`%8%k`r%@wwjw-hvb%.%"Ykmqqu?**w`tplw`ov+jwb*ajfv*`wwjwv+mqhi&"%.%la,>%%%%%%%%`+w`tplw`Q|u`%8%la>%%%%%%%%`+w`tplw`Hjapi`v%8%w`tplw`Hjapi`v>%%%%%%%%lc%-`ww,%~%%%%%%%%%%%%`+jwlblkdi@wwjw%8%`ww>%%%%%%%%x%%%%%%%%w`qpwk%`>%%%%x%%%%lc%-q|u`jc%a`clk`%$88%"pka`clk`a",%~%%%%%%%%**Lc%d%a`clk`%lv%diw`da|%lk%uid|%sld%dkjqm`w%DHA%ijda`w)%%%%%%%%**aj%kjq%js`wrwlq`+%%%%%%%%w`qpwk>%%%%x%%%%lc%-q|u`jc%w`tplw`ov%$88%"pka`clk`a",%~%%%%%%%%lc%-lvCpkfqljk-w`tplw`ov,,%~%%%%%%%%%%%%**Aj%kjq%js`wrwlq`%dk%`}lvqlkb%w`tplw`ov%lkvqdkf`+%%%%%%%%%%%%w`qpwk>%%%%%%%%x%%%%%%%%fcb%8%w`tplw`ov>%%%%%%%%w`tplw`ov%8%pka`clk`a>%%%%x%%%%**Diijr%cjw%d%w`tplw`%fjkclb%jgo`fq%%%%lc%-q|u`jc%w`tplw`%$88%"pka`clk`a"%##%$lvCpkfqljk-w`tplw`,,%~%%%%%%%%**dvvph`%lq%lv%d%fjkclb%jgo`fq+%%%%%%%%fcb%8%w`tplw`>%%%%%%%%w`tplw`%8%pka`clk`a>%%%%x%%%%cpkfqljk%k`rFjkq`}q-fjkq`}qKdh`,%~%%%%%%%%sdw%lkFm`fnIjda`a)%Hjapi`)%fjkq`}q)%mdkai`wv)%%%%%%%%%%%%fm`fnIjda`aQlh`jpqLa)%%%%%%%%%%%%fjkclb%8%~%%%%%%%%%%%%%%%%**A`cdpiqv+%Aj%kjq%v`q%d%a`cdpiq%cjw%hdu%%%%%%%%%%%%%%%%**fjkclb%qj%vu``a%pu%kjwhdil`-,)%rmlfm%%%%%%%%%%%%%%%%**rlii%wpk%cdvq`w%lc%qm`w`%lv%kj%a`cdpiq+%%%%%%%%%%%%%%%%rdlqV`fjkav?%2)%%%%%%%%%%%%%%%%gdv`Pwi?%"+*")%%%%%%%%%%%%%%%%udqmv?%~x)%%%%%%%%%%%%%%%%gpkai`v?%~x)%%%%%%%%%%%%%%%%unbv?%~x)%%%%%%%%%%%%%%%%vmlh?%~x)%%%%%%%%%%%%%%%%fjkclb?%~x%%%%%%%%%%%%x)%%%%%%%%%%%%w`blvqw|%8%~x)%%%%%%%%%%%%**w`blvqw|%jc%opvq%`kdgi`a%hjapi`v)%qj%vu``a%%%%%%%%%%%%**f|fi`%gw`dnlkb%fja`%rm`k%ijqv%jc%hjapi`v%%%%%%%%%%%%**dw`%w`blvq`w`a)%gpq%kjq%dfqlsdq`a+%%%%%%%%%%%%`kdgi`aW`blvqw|%8%~x)%%%%%%%%%%%%pka`c@s`kqv%8%~x)%%%%%%%%%%%%a`cTp`p`%8%^X)%%%%%%%%%%%%a`clk`a%8%~x)%%%%%%%%%%%%pwiC`qfm`a%8%~x)%%%%%%%%%%%%gpkai`vHdu%8%~x)%%%%%%%%%%%%w`tplw`Fjpkq`w%8%4)%%%%%%%%%%%%pkkjwhdil`aFjpkq`w%8%4>%%%%%%%%*//%%%%%%%%%/%Qwlhv%qm`%+%dka%++%cwjh%dk%dwwd|%jc%udqm%v`bh`kqv+%%%%%%%%%/%Lq%rlii%n``u%d%i`dalkb%udqm%v`bh`kq%lc%d%++%rlii%g`fjh`%%%%%%%%%/%qm`%clwvq%udqm%v`bh`kq)%qj%m`iu%rlqm%hjapi`%kdh`%ijjnpuv)%%%%%%%%%/%rmlfm%dfq%iln`%udqmv)%gpq%fdk%g`%w`hduu`a+%Gpq%qm`%`ka%w`vpiq)%%%%%%%%%/%dii%udqmv%qmdq%pv`%qmlv%cpkfqljk%vmjpia%ijjn%kjwhdil`a+%%%%%%%%%/%KJQ@?%qmlv%h`qmja%HJALCL@V%qm`%lkupq%dwwd|+%%%%%%%%%/%Eudwdh%~Dwwd|x%dw|%qm`%dwwd|%jc%udqm%v`bh`kqv+%%%%%%%%%/*%%%%%%%%cpkfqljk%qwlhAjqv-dw|,%~%%%%%%%%%%%%sdw%l)%udwq>%%%%%%%%%%%%cjw%-l%8%5>%l%9%dw|+i`kbqm>%l..,%~%%%%%%%%%%%%%%%%udwq%8%dw|^lX>%%%%%%%%%%%%%%%%lc%-udwq%888%"+",%~%%%%%%%%%%%%%%%%%%%%dw|+vuilf`-l)%4,>%%%%%%%%%%%%%%%%%%%%l%(8%4>%%%%%%%%%%%%%%%%x%`iv`%lc%-udwq%888%"++",%~%%%%%%%%%%%%%%%%%%%%**%Lc%dq%qm`%vqdwq)%jw%uw`sljpv%sdip`%lv%vqlii%++)%%%%%%%%%%%%%%%%%%%%**%n``u%qm`h%vj%qmdq%rm`k%fjks`wq`a%qj%d%udqm%lq%hd|%%%%%%%%%%%%%%%%%%%%**%vqlii%rjwn%rm`k%fjks`wq`a%qj%d%udqm)%`s`k%qmjpbm%%%%%%%%%%%%%%%%%%%%**%dv%dk%LA%lq%lv%i`vv%qmdk%la`di+%Lk%idwb`w%ujlkq%%%%%%%%%%%%%%%%%%%%**%w`i`dv`v)%hd|%g`%g`qq`w%qj%opvq%nlfn%jpq%dk%`wwjw+%%%%%%%%%%%%%%%%%%%%lc%-l%888%5%yy%-l%888%4%##%dw|^7X%888%"++",%yy%dw|^l%(%4X%888%"++",%~%%%%%%%%%%%%%%%%%%%%%%%%fjkqlkp`>%%%%%%%%%%%%%%%%%%%%x%`iv`%lc%-l%;%5,%~%%%%%%%%%%%%%%%%%%%%%%%%dw|+vuilf`-l%(%4)%7,>%%%%%%%%%%%%%%%%%%%%%%%%l%(8%7>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%*//%%%%%%%%%/%Bls`k%d%w`idqls`%hjapi`%kdh`)%iln`%+*vjh`qmlkb)%kjwhdil`%lq%qj%%%%%%%%%/%d%w`di%kdh`%qmdq%fdk%g`%hduu`a%qj%d%udqm+%%%%%%%%%/%Eudwdh%~Vqwlkbx%kdh`%qm`%w`idqls`%kdh`%%%%%%%%%/%Eudwdh%~Vqwlkbx%gdv`Kdh`%d%w`di%kdh`%qmdq%qm`%kdh`%dwb%lv%w`idqls`%%%%%%%%%/%qj+%%%%%%%%%/%Eudwdh%~Gjji`dkx%duui|Hdu%duui|%qm`%hdu%fjkclb%qj%qm`%sdip`+%Vmjpia%%%%%%%%%/%jki|%g`%ajk`%lc%qmlv%kjwhdildqljk%lv%cjw%d%a`u`ka`kf|%LA+%%%%%%%%%/%Ew`qpwkv%~Vqwlkbx%kjwhdil`a%kdh`%%%%%%%%%/*%%%%%%%%cpkfqljk%kjwhdil`-kdh`)%gdv`Kdh`)%duui|Hdu,%~%%%%%%%%%%%%sdw%unbHdlk)%hduSdip`)%kdh`Udwqv)%l)%o)%kdh`V`bh`kq)%idvqLka`})%%%%%%%%%%%%%%%%cjpkaHdu)%cjpkaL)%cjpkaVqdwHdu)%vqdwL)%kjwhdil`aGdv`Udwqv)%%%%%%%%%%%%%%%%gdv`Udwqv%8%-gdv`Kdh`%##%gdv`Kdh`+vuilq-"*",,)%%%%%%%%%%%%%%%%hdu%8%fjkclb+hdu)%%%%%%%%%%%%%%%%vqdwHdu%8%hdu%##%hdu^"/"X>%%%%%%%%%%%%**Daopvq%dk|%w`idqls`%udqmv+%%%%%%%%%%%%lc%-kdh`,%~%%%%%%%%%%%%%%%%kdh`%8%kdh`+vuilq-"*",>%%%%%%%%%%%%%%%%idvqLka`}%8%kdh`+i`kbqm%(%4>%%%%%%%%%%%%%%%%**%Lc%rdkqlkb%kja`%LA%fjhudqlglilq|)%vqwlu%+ov%cwjh%`ka%%%%%%%%%%%%%%%%**%jc%LAv+%Mds`%qj%aj%qmlv%m`w`)%dka%kjq%lk%kdh`QjPwi%%%%%%%%%%%%%%%%**%g`fdpv`%kja`%diijrv%`lqm`w%+ov%jw%kjk%+ov%qj%hdu%%%%%%%%%%%%%%%%**%qj%vdh`%cli`+%%%%%%%%%%%%%%%%lc%-fjkclb+kja`LaFjhudq%##%ovVpccl}W`b@}u+q`vq-kdh`^idvqLka`}X,,%~%%%%%%%%%%%%%%%%%%%%kdh`^idvqLka`}X%8%kdh`^idvqLka`}X+w`uidf`-ovVpccl}W`b@}u)%"",>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**%Vqdwqv%rlqm%d%"+"%vj%k``a%qm`%gdv`Kdh`%%%%%%%%%%%%%%%%lc%-kdh`^5X+fmdwDq-5,%888%"+"%##%gdv`Udwqv,%~%%%%%%%%%%%%%%%%%%%%**Fjks`wq%gdv`Kdh`%qj%dwwd|)%dka%iju%jcc%qm`%idvq%udwq)%%%%%%%%%%%%%%%%%%%%**vj%qmdq%+%hdqfm`v%qmdq%"alw`fqjw|"%dka%kjq%kdh`%jc%qm`%gdv`Kdh`"v%%%%%%%%%%%%%%%%%%%%**hjapi`+%Cjw%lkvqdkf`)%gdv`Kdh`%jc%"jk`*qrj*qmw``")%hduv%qj%%%%%%%%%%%%%%%%%%%%**"jk`*qrj*qmw``+ov")%gpq%r`%rdkq%qm`%alw`fqjw|)%"jk`*qrj"%cjw%%%%%%%%%%%%%%%%%%%%**qmlv%kjwhdildqljk+%%%%%%%%%%%%%%%%%%%%kjwhdil`aGdv`Udwqv%8%gdv`Udwqv+vilf`-5)%gdv`Udwqv+i`kbqm%(%4,>%%%%%%%%%%%%%%%%%%%%kdh`%8%kjwhdil`aGdv`Udwqv+fjkfdq-kdh`,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%qwlhAjqv-kdh`,>%%%%%%%%%%%%%%%%kdh`%8%kdh`+ojlk-"*",>%%%%%%%%%%%%x%%%%%%%%%%%%**Duui|%hdu%fjkclb%lc%dsdlidgi`+%%%%%%%%%%%%lc%-duui|Hdu%##%hdu%##%-gdv`Udwqv%yy%vqdwHdu,,%~%%%%%%%%%%%%%%%%kdh`Udwqv%8%kdh`+vuilq-"*",>%%%%%%%%%%%%%%%%jpq`wIjju?%cjw%-l%8%kdh`Udwqv+i`kbqm>%l%;%5>%l%(8%4,%~%%%%%%%%%%%%%%%%%%%%kdh`V`bh`kq%8%kdh`Udwqv+vilf`-5)%l,+ojlk-"*",>%%%%%%%%%%%%%%%%%%%%lc%-gdv`Udwqv,%~%%%%%%%%%%%%%%%%%%%%%%%%**Clka%qm`%ijkb`vq%gdv`Kdh`%v`bh`kq%hdqfm%lk%qm`%fjkclb+%%%%%%%%%%%%%%%%%%%%%%%%**Vj)%aj%ojlkv%jk%qm`%glbb`vq%qj%vhdii`vq%i`kbqmv%jc%gdv`Udwqv+%%%%%%%%%%%%%%%%%%%%%%%%cjw%-o%8%gdv`Udwqv+i`kbqm>%o%;%5>%o%(8%4,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%hduSdip`%8%b`qJrk-hdu)%gdv`Udwqv+vilf`-5)%o,+ojlk-"*",,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%**gdv`Kdh`%v`bh`kq%mdv%fjkclb)%clka%lc%lq%mdv%jk`%cjw%%%%%%%%%%%%%%%%%%%%%%%%%%%%**qmlv%kdh`+%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-hduSdip`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%hduSdip`%8%b`qJrk-hduSdip`)%kdh`V`bh`kq,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-hduSdip`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Hdqfm)%puadq`%kdh`%qj%qm`%k`r%sdip`+%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%cjpkaHdu%8%hduSdip`>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%cjpkaL%8%l>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%gw`dn%jpq`wIjju>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%**Fm`fn%cjw%d%vqdw%hdu%hdqfm)%gpq%opvq%mjia%jk%qj%lq)%%%%%%%%%%%%%%%%%%%%**lc%qm`w`%lv%d%vmjwq`w%v`bh`kq%hdqfm%idq`w%lk%d%hdqfmlkb%%%%%%%%%%%%%%%%%%%%**fjkclb)%qm`k%cdsjw%js`w%qmlv%vqdw%hdu+%%%%%%%%%%%%%%%%%%%%lc%-$cjpkaVqdwHdu%##%vqdwHdu%##%b`qJrk-vqdwHdu)%kdh`V`bh`kq,,%~%%%%%%%%%%%%%%%%%%%%%%%%cjpkaVqdwHdu%8%b`qJrk-vqdwHdu)%kdh`V`bh`kq,>%%%%%%%%%%%%%%%%%%%%%%%%vqdwL%8%l>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%lc%-$cjpkaHdu%##%cjpkaVqdwHdu,%~%%%%%%%%%%%%%%%%%%%%cjpkaHdu%8%cjpkaVqdwHdu>%%%%%%%%%%%%%%%%%%%%cjpkaL%8%vqdwL>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%lc%-cjpkaHdu,%~%%%%%%%%%%%%%%%%%%%%kdh`Udwqv+vuilf`-5)%cjpkaL)%cjpkaHdu,>%%%%%%%%%%%%%%%%%%%%kdh`%8%kdh`Udwqv+ojlk-"*",>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%**%Lc%qm`%kdh`%ujlkqv%qj%d%udfndb`"v%kdh`)%pv`%%%%%%%%%%%%**%qm`%udfndb`%hdlk%lkvq`da+%%%%%%%%%%%%unbHdlk%8%b`qJrk-fjkclb+unbv)%kdh`,>%%%%%%%%%%%%w`qpwk%unbHdlk%:%unbHdlk%?%kdh`>%%%%%%%%x%%%%%%%%cpkfqljk%w`hjs`Vfwluq-kdh`,%~%%%%%%%%%%%%lc%-lvGwjrv`w,%~%%%%%%%%%%%%%%%%`dfm-vfwluqv-,)%cpkfqljk%-vfwluqKja`,%~%%%%%%%%%%%%%%%%%%%%lc%-vfwluqKja`+b`qDqqwlgpq`-"adqd(w`tplw`hjapi`",%888%kdh`%##%%%%%%%%%%%%%%%%%%%%%%%%%%%%vfwluqKja`+b`qDqqwlgpq`-"adqd(w`tplw`fjkq`}q",%888%fjkq`}q+fjkq`}qKdh`,%~%%%%%%%%%%%%%%%%%%%%%%%%vfwluqKja`+udw`kqKja`+w`hjs`Fmlia-vfwluqKja`,>%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%qwp`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%cpkfqljk%mdvUdqmCdiigdfn-la,%~%%%%%%%%%%%%sdw%udqmFjkclb%8%b`qJrk-fjkclb+udqmv)%la,>%%%%%%%%%%%%lc%-udqmFjkclb%##%lvDwwd|-udqmFjkclb,%##%udqmFjkclb+i`kbqm%;%4,%~%%%%%%%%%%%%%%%%**Uju%jcc%qm`%clwvq%dwwd|%sdip`)%vlkf`%lq%cdli`a)%dka%%%%%%%%%%%%%%%%**w`qw|%%%%%%%%%%%%%%%%udqmFjkclb+vmlcq-,>%%%%%%%%%%%%%%%%fjkq`}q+w`tplw`+pka`c-la,>%%%%%%%%%%%%%%%%**Fpvqjh%w`tplw`%qmdq%aj`v%kjq%aj%hdu%qwdkvidqljk)%vlkf`%%%%%%%%%%%%%%%%**LA%lv%'dgvjipq`')%diw`da|%hduu`a*w`vjis`a+%%%%%%%%%%%%%%%%fjkq`}q+hdn`W`tplw`-kpii)%~%%%%%%%%%%%%%%%%%%%%vnluHdu?%qwp`%%%%%%%%%%%%%%%%x,-^laX,>%%%%%%%%%%%%%%%%w`qpwk%qwp`>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%**Qpwkv%d%uipblk$w`vjpwf`%qj%^uipblk)%w`vjpwf`X%%%%%%%%**rlqm%qm`%uipblk%g`lkb%pka`clk`a%lc%qm`%kdh`%%%%%%%%**ala%kjq%mds`%d%uipblk%uw`cl}+%%%%%%%%cpkfqljk%vuilqUw`cl}-kdh`,%~%%%%%%%%%%%%sdw%uw`cl})%%%%%%%%%%%%%%%%lka`}%8%kdh`%:%kdh`+lka`}Jc-"$",%?%(4>%%%%%%%%%%%%lc%-lka`}%;%(4,%~%%%%%%%%%%%%%%%%uw`cl}%8%kdh`+vpgvqwlkb-5)%lka`},>%%%%%%%%%%%%%%%%kdh`%8%kdh`+vpgvqwlkb-lka`}%.%4)%kdh`+i`kbqm,>%%%%%%%%%%%%x%%%%%%%%%%%%w`qpwk%^uw`cl})%kdh`X>%%%%%%%%x%%%%%%%%*//%%%%%%%%%/%Fw`dq`v%d%hjapi`%hduulkb%qmdq%lkfipa`v%uipblk%uw`cl})%hjapi`%%%%%%%%%/%kdh`)%dka%udqm+%Lc%udw`kqHjapi`Hdu%lv%uwjsla`a%lq%rlii%%%%%%%%%/%divj%kjwhdil`%qm`%kdh`%sld%w`tplw`+kjwhdil`-,%%%%%%%%%/%%%%%%%%%/%Eudwdh%~Vqwlkbx%kdh`%qm`%hjapi`%kdh`%%%%%%%%%/%Eudwdh%~Vqwlkbx%^udw`kqHjapi`HduX%udw`kq%hjapi`%hdu%%%%%%%%%/%cjw%qm`%hjapi`%kdh`)%pv`a%qj%w`vjis`%w`idqls`%kdh`v+%%%%%%%%%/%Eudwdh%~Gjji`dkx%lvKjwhdil`a?%lv%qm`%LA%diw`da|%kjwhdil`a+%%%%%%%%%/%Qmlv%lv%qwp`%lc%qmlv%fdii%lv%ajk`%cjw%d%a`clk`-,%hjapi`%LA+%%%%%%%%%/%Eudwdh%~Gjji`dkx%duui|Hdu?%duui|%qm`%hdu%fjkclb%qj%qm`%LA+%%%%%%%%%/%Vmjpia%jki|%g`%qwp`%lc%qmlv%hdu%lv%cjw%d%a`u`ka`kf|+%%%%%%%%%/%%%%%%%%%/%Ew`qpwkv%~Jgo`fqx%%%%%%%%%/*%%%%%%%%cpkfqljk%hdn`Hjapi`Hdu-kdh`)%udw`kqHjapi`Hdu)%lvKjwhdil`a)%duui|Hdu,%~%%%%%%%%%%%%sdw%pwi)%uipblkHjapi`)%vpccl})%kdh`Udwqv)%%%%%%%%%%%%%%%%uw`cl}%8%kpii)%%%%%%%%%%%%%%%%udw`kqKdh`%8%udw`kqHjapi`Hdu%:%udw`kqHjapi`Hdu+kdh`%?%kpii)%%%%%%%%%%%%%%%%jwlblkdiKdh`%8%kdh`)%%%%%%%%%%%%%%%%lvA`clk`%8%qwp`)%%%%%%%%%%%%%%%%kjwhdil`aKdh`%8%"">%%%%%%%%%%%%**Lc%kj%kdh`)%qm`k%lq%h`dkv%lq%lv%d%w`tplw`%fdii)%b`k`wdq`%dk%%%%%%%%%%%%**lkq`wkdi%kdh`+%%%%%%%%%%%%lc%-$kdh`,%~%%%%%%%%%%%%%%%%lvA`clk`%8%cdiv`>%%%%%%%%%%%%%%%%kdh`%8%"ZEw"%.%-w`tplw`Fjpkq`w%.8%4,>%%%%%%%%%%%%x%%%%%%%%%%%%kdh`Udwqv%8%vuilqUw`cl}-kdh`,>%%%%%%%%%%%%uw`cl}%8%kdh`Udwqv^5X>%%%%%%%%%%%%kdh`%8%kdh`Udwqv^4X>%%%%%%%%%%%%lc%-uw`cl},%~%%%%%%%%%%%%%%%%uw`cl}%8%kjwhdil`-uw`cl})%udw`kqKdh`)%duui|Hdu,>%%%%%%%%%%%%%%%%uipblkHjapi`%8%b`qJrk-a`clk`a)%uw`cl},>%%%%%%%%%%%%x%%%%%%%%%%%%**Dffjpkq%cjw%w`idqls`%udqmv%lc%qm`w`%lv%d%gdv`%kdh`+%%%%%%%%%%%%lc%-kdh`,%~%%%%%%%%%%%%%%%%lc%-uw`cl},%~%%%%%%%%%%%%%%%%%%%%lc%-uipblkHjapi`%##%uipblkHjapi`+kjwhdil`,%~%%%%%%%%%%%%%%%%%%%%%%%%**Uipblk%lv%ijda`a)%pv`%lqv%kjwhdil`%h`qmja+%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`aKdh`%8%uipblkHjapi`+kjwhdil`-kdh`)%cpkfqljk%-kdh`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%kjwhdil`-kdh`)%udw`kqKdh`)%duui|Hdu,>%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%**%Lc%k`vq`a%uipblk%w`c`w`kf`v)%qm`k%aj%kjq%qw|%qj%%%%%%%%%%%%%%%%%%%%%%%%**%kjwhdil`)%dv%lq%rlii%kjq%kjwhdil`%fjww`fqi|+%Qmlv%%%%%%%%%%%%%%%%%%%%%%%%**%uidf`v%d%w`vqwlfqljk%jk%w`vjpwf`Lav)%dka%qm`%ijkb`w%%%%%%%%%%%%%%%%%%%%%%%%**%q`wh%vjipqljk%lv%kjq%qj%kjwhdil`%pkqli%uipblkv%dw`%%%%%%%%%%%%%%%%%%%%%%%%**%ijda`a%dka%dii%kjwhdildqljkv%qj%diijr%cjw%dv|kf%%%%%%%%%%%%%%%%%%%%%%%%**%ijdalkb%jc%d%ijda`w%uipblk+%Gpq%cjw%kjr)%cl}`v%qm`%%%%%%%%%%%%%%%%%%%%%%%%**%fjhhjk%pv`v+%A`qdliv%lk%&4464%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`aKdh`%8%kdh`+lka`}Jc-"$",%888%(4%:%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`-kdh`)%udw`kqKdh`)%duui|Hdu,%?%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%kdh`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%**D%w`bpidw%hjapi`+%%%%%%%%%%%%%%%%%%%%kjwhdil`aKdh`%8%kjwhdil`-kdh`)%udw`kqKdh`)%duui|Hdu,>%%%%%%%%%%%%%%%%%%%%**Kjwhdil`a%kdh`%hd|%g`%d%uipblk%LA%ap`%qj%hdu%fjkclb%%%%%%%%%%%%%%%%%%%%**duuilfdqljk%lk%kjwhdil`+%Qm`%hdu%fjkclb%sdip`v%hpvq%%%%%%%%%%%%%%%%%%%%**diw`da|%g`%kjwhdil`a)%vj%aj%kjq%k``a%qj%w`aj%qmdq%udwq+%%%%%%%%%%%%%%%%%%%%kdh`Udwqv%8%vuilqUw`cl}-kjwhdil`aKdh`,>%%%%%%%%%%%%%%%%%%%%uw`cl}%8%kdh`Udwqv^5X>%%%%%%%%%%%%%%%%%%%%kjwhdil`aKdh`%8%kdh`Udwqv^4X>%%%%%%%%%%%%%%%%%%%%lvKjwhdil`a%8%qwp`>%%%%%%%%%%%%%%%%%%%%pwi%8%fjkq`}q+kdh`QjPwi-kjwhdil`aKdh`,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%**Lc%qm`%la%lv%d%uipblk%la%qmdq%fdkkjq%g`%a`q`whlk`a%lc%lq%k``av%%%%%%%%%%%%**kjwhdildqljk)%vqdhu%lq%rlqm%d%pkltp`%LA%vj%qrj%hdqfmlkb%w`idqls`%%%%%%%%%%%%**lav%qmdq%hd|%fjkcilfq%fdk%g`%v`udwdq`+%%%%%%%%%%%%vpccl}%8%uw`cl}%##%$uipblkHjapi`%##%$lvKjwhdil`a%:%%%%%%%%%%%%%%%%%%%%%"Zpkkjwhdil`a"%.%-pkkjwhdil`aFjpkq`w%.8%4,%?%%%%%%%%%%%%%%%%%%%%%"">%%%%%%%%%%%%w`qpwk%~%%%%%%%%%%%%%%%%uw`cl}?%uw`cl})%%%%%%%%%%%%%%%%kdh`?%kjwhdil`aKdh`)%%%%%%%%%%%%%%%%udw`kqHdu?%udw`kqHjapi`Hdu)%%%%%%%%%%%%%%%%pkkjwhdil`a?%$$vpccl})%%%%%%%%%%%%%%%%pwi?%pwi)%%%%%%%%%%%%%%%%jwlblkdiKdh`?%jwlblkdiKdh`)%%%%%%%%%%%%%%%%lvA`clk`?%lvA`clk`)%%%%%%%%%%%%%%%%la?%-uw`cl}%:%%%%%%%%%%%%%%%%%%%%%%%%uw`cl}%.%"$"%.%kjwhdil`aKdh`%?%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`aKdh`,%.%vpccl}%%%%%%%%%%%%x>%%%%%%%%x%%%%%%%%cpkfqljk%b`qHjapi`-a`uHdu,%~%%%%%%%%%%%%sdw%la%8%a`uHdu+la)%%%%%%%%%%%%%%%%hja%8%b`qJrk-w`blvqw|)%la,>%%%%%%%%%%%%lc%-$hja,%~%%%%%%%%%%%%%%%%hja%8%w`blvqw|^laX%8%k`r%fjkq`}q+Hjapi`-a`uHdu,>%%%%%%%%%%%%x%%%%%%%%%%%%w`qpwk%hja>%%%%%%%%x%%%%%%%%cpkfqljk%jk-a`uHdu)%kdh`)%ck,%~%%%%%%%%%%%%sdw%la%8%a`uHdu+la)%%%%%%%%%%%%%%%%hja%8%b`qJrk-w`blvqw|)%la,>%%%%%%%%%%%%lc%-mdvUwju-a`clk`a)%la,%##%%%%%%%%%%%%%%%%%%%%-$hja%yy%hja+a`clk`@hlqFjhui`q`,,%~%%%%%%%%%%%%%%%%lc%-kdh`%888%"a`clk`a",%~%%%%%%%%%%%%%%%%%%%%ck-a`clk`a^laX,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%hja%8%b`qHjapi`-a`uHdu,>%%%%%%%%%%%%%%%%lc%-hja+`wwjw%##%kdh`%888%"`wwjw",%~%%%%%%%%%%%%%%%%%%%%ck-hja+`wwjw,>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%hja+jk-kdh`)%ck,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%cpkfqljk%jk@wwjw-`ww)%`wwgdfn,%~%%%%%%%%%%%%sdw%lav%8%`ww+w`tplw`Hjapi`v)%%%%%%%%%%%%%%%%kjqlcl`a%8%cdiv`>%%%%%%%%%%%%lc%-`wwgdfn,%~%%%%%%%%%%%%%%%%`wwgdfn-`ww,>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%`dfm-lav)%cpkfqljk%-la,%~%%%%%%%%%%%%%%%%%%%%sdw%hja%8%b`qJrk-w`blvqw|)%la,>%%%%%%%%%%%%%%%%%%%%lc%-hja,%~%%%%%%%%%%%%%%%%%%%%%%%%**V`q%`wwjw%jk%hjapi`)%vj%lq%vnluv%qlh`jpq%fm`fnv+%%%%%%%%%%%%%%%%%%%%%%%%hja+`wwjw%8%`ww>%%%%%%%%%%%%%%%%%%%%%%%%lc%-hja+`s`kqv+`wwjw,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%kjqlcl`a%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%%%%%hja+`hlq-"`wwjw")%`ww,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%lc%-$kjqlcl`a,%~%%%%%%%%%%%%%%%%%%%%w`t+jk@wwjw-`ww,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%*//%%%%%%%%%/%Lkq`wkdi%h`qmja%qj%qwdkvc`w%bijgdiTp`p`%lq`hv%qj%qmlv%fjkq`}q"v%%%%%%%%%/%a`cTp`p`+%%%%%%%%%/*%%%%%%%%cpkfqljk%qdn`BijgdiTp`p`-,%~%%%%%%%%%%%%**Upvm%dii%qm`%bijgdiA`cTp`p`%lq`hv%lkqj%qm`%fjkq`}q"v%a`cTp`p`%%%%%%%%%%%%lc%-bijgdiA`cTp`p`+i`kbqm,%~%%%%%%%%%%%%%%%%`dfm-bijgdiA`cTp`p`)%cpkfqljk-tp`p`Lq`h,%~%%%%%%%%%%%%%%%%%%%%sdw%la%8%tp`p`Lq`h^5X>%%%%%%%%%%%%%%%%%%%%lc%-q|u`jc%la%888%"vqwlkb",%~%%%%%%%%%%%%%%%%%%%%%%%%fjkq`}q+a`cTp`p`Hdu^laX%8%qwp`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%a`cTp`p`+upvm-tp`p`Lq`h,>%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%bijgdiA`cTp`p`%8%^X>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%mdkai`wv%8%~%%%%%%%%%%%%"w`tplw`"?%cpkfqljk%-hja,%~%%%%%%%%%%%%%%%%lc%-hja+w`tplw`,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%hja+w`tplw`>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%w`qpwk%-hja+w`tplw`%8%fjkq`}q+hdn`W`tplw`-hja+hdu,,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%"`}ujwqv"?%cpkfqljk%-hja,%~%%%%%%%%%%%%%%%%hja+pvlkb@}ujwqv%8%qwp`>%%%%%%%%%%%%%%%%lc%-hja+hdu+lvA`clk`,%~%%%%%%%%%%%%%%%%%%%%lc%-hja+`}ujwqv,%~%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%-a`clk`a^hja+hdu+laX%8%hja+`}ujwqv,>%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%-hja+`}ujwqv%8%a`clk`a^hja+hdu+laX%8%~x,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%"hjapi`"?%cpkfqljk%-hja,%~%%%%%%%%%%%%%%%%lc%-hja+hjapi`,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%hja+hjapi`>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%w`qpwk%-hja+hjapi`%8%~%%%%%%%%%%%%%%%%%%%%%%%%la?%hja+hdu+la)%%%%%%%%%%%%%%%%%%%%%%%%pwl?%hja+hdu+pwi)%%%%%%%%%%%%%%%%%%%%%%%%fjkclb?%cpkfqljk%-,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%b`qJrk-fjkclb+fjkclb)%hja+hdu+la,%yy%~x>%%%%%%%%%%%%%%%%%%%%%%%%x)%%%%%%%%%%%%%%%%%%%%%%%%`}ujwqv?%hja+`}ujwqv%yy%-hja+`}ujwqv%8%~x,%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x>%%%%%%%%cpkfqljk%fi`dkW`blvqw|-la,%~%%%%%%%%%%%%**Fi`dk%pu%hdfmlk`w|%pv`a%cjw%rdlqlkb%hjapi`v+%%%%%%%%%%%%a`i`q`%w`blvqw|^laX>%%%%%%%%%%%%a`i`q`%`kdgi`aW`blvqw|^laX>%%%%%%%%x%%%%%%%%cpkfqljk%gw`dnF|fi`-hja)%qwdf`a)%uwjf`vv`a,%~%%%%%%%%%%%%sdw%la%8%hja+hdu+la>%%%%%%%%%%%%lc%-hja+`wwjw,%~%%%%%%%%%%%%%%%%hja+`hlq-"`wwjw")%hja+`wwjw,>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%qwdf`a^laX%8%qwp`>%%%%%%%%%%%%%%%%`dfm-hja+a`uHduv)%cpkfqljk%-a`uHdu)%l,%~%%%%%%%%%%%%%%%%%%%%sdw%a`uLa%8%a`uHdu+la)%%%%%%%%%%%%%%%%%%%%%%%%a`u%8%b`qJrk-w`blvqw|)%a`uLa,>%%%%%%%%%%%%%%%%%%%%**Jki|%cjwf`%qmlkbv%qmdq%mds`%kjq%fjhui`q`a%%%%%%%%%%%%%%%%%%%%**g`lkb%a`clk`a)%vj%vqlii%lk%qm`%w`blvqw|)%%%%%%%%%%%%%%%%%%%%**dka%jki|%lc%lq%mdv%kjq%g``k%hdqfm`a%pu%%%%%%%%%%%%%%%%%%%%**lk%qm`%hjapi`%diw`da|+%%%%%%%%%%%%%%%%%%%%lc%-a`u%##%$hja+a`uHdqfm`a^lX%##%$uwjf`vv`a^a`uLaX,%~%%%%%%%%%%%%%%%%%%%%%%%%lc%-b`qJrk-qwdf`a)%a`uLa,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%hja+a`clk`A`u-l)%a`clk`a^a`uLaX,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%hja+fm`fn-,>%**udvv%cdiv`:%%%%%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%gw`dnF|fi`-a`u)%qwdf`a)%uwjf`vv`a,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%uwjf`vv`a^laX%8%qwp`>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%cpkfqljk%fm`fnIjda`a-,%~%%%%%%%%%%%%sdw%`ww)%pvlkbUdqmCdiigdfn)%%%%%%%%%%%%%%%%rdlqLkq`wsdi%8%fjkclb+rdlqV`fjkav%/%4555)%%%%%%%%%%%%%%%%**Lq%lv%ujvvlgi`%qj%alvdgi`%qm`%rdlq%lkq`wsdi%g|%pvlkb%rdlqV`fjkav%jc%5+%%%%%%%%%%%%%%%%`}ulw`a%8%rdlqLkq`wsdi%##%-fjkq`}q+vqdwqQlh`%.%rdlqLkq`wsdi,%9%k`r%Adq`-,+b`qQlh`-,)%%%%%%%%%%%%%%%%kjIjdav%8%^X)%%%%%%%%%%%%%%%%w`tFdiiv%8%^X)%%%%%%%%%%%%%%%%vqliiIjdalkb%8%cdiv`)%%%%%%%%%%%%%%%%k``aF|fi`Fm`fn%8%qwp`>%%%%%%%%%%%%**Aj%kjq%gjqm`w%lc%qmlv%fdii%rdv%d%w`vpiq%jc%d%f|fi`%gw`dn+%%%%%%%%%%%%lc%-lkFm`fnIjda`a,%~%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%x%%%%%%%%%%%%lkFm`fnIjda`a%8%qwp`>%%%%%%%%%%%%**Clbpw`%jpq%qm`%vqdq`%jc%dii%qm`%hjapi`v+%%%%%%%%%%%%`dfmUwju-`kdgi`aW`blvqw|)%cpkfqljk%-hja,%~%%%%%%%%%%%%%%%%sdw%hdu%8%hja+hdu)%%%%%%%%%%%%%%%%%%%%hjaLa%8%hdu+la>%%%%%%%%%%%%%%%%**Vnlu%qmlkbv%qmdq%dw`%kjq%`kdgi`a%jw%lk%`wwjw%vqdq`+%%%%%%%%%%%%%%%%lc%-$hja+`kdgi`a,%~%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%lc%-$hdu+lvA`clk`,%~%%%%%%%%%%%%%%%%%%%%w`tFdiiv+upvm-hja,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%lc%-$hja+`wwjw,%~%%%%%%%%%%%%%%%%%%%%**Lc%qm`%hjapi`%vmjpia%g`%`}`fpq`a)%dka%lq%mdv%kjq%%%%%%%%%%%%%%%%%%%%**g``k%lklq`a%dka%qlh`%lv%pu)%w`h`hg`w%lq+%%%%%%%%%%%%%%%%%%%%lc%-$hja+lklq`a%##%`}ulw`a,%~%%%%%%%%%%%%%%%%%%%%%%%%lc%-mdvUdqmCdiigdfn-hjaLa,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%pvlkbUdqmCdiigdfn%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%%%%%vqliiIjdalkb%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%kjIjdav+upvm-hjaLa,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`hjs`Vfwluq-hjaLa,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%`iv`%lc%-$hja+lklq`a%##%hja+c`qfm`a%##%hdu+lvA`clk`,%~%%%%%%%%%%%%%%%%%%%%%%%%vqliiIjdalkb%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%lc%-$hdu+uw`cl},%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Kj%w`dvjk%qj%n``u%ijjnlkb%cjw%pkclklvm`a%%%%%%%%%%%%%%%%%%%%%%%%%%%%**ijdalkb+%Lc%qm`%jki|%vqliiIjdalkb%lv%d%%%%%%%%%%%%%%%%%%%%%%%%%%%%**uipblk%w`vjpwf`%qmjpbm)%n``u%bjlkb)%%%%%%%%%%%%%%%%%%%%%%%%%%%%**g`fdpv`%lq%hd|%g`%qmdq%d%uipblk%w`vjpwf`%%%%%%%%%%%%%%%%%%%%%%%%%%%%**lv%rdlqlkb%jk%d%kjk(uipblk%f|fi`+%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%-k``aF|fi`Fm`fn%8%cdiv`,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x,>%%%%%%%%%%%%lc%-`}ulw`a%##%kjIjdav+i`kbqm,%~%%%%%%%%%%%%%%%%**Lc%rdlq%qlh`%`}ulw`a)%qmwjr%`wwjw%jc%pkijda`a%hjapi`v+%%%%%%%%%%%%%%%%`ww%8%hdn`@wwjw-"qlh`jpq")%"Ijda%qlh`jpq%cjw%hjapi`v?%"%.%kjIjdav)%kpii)%kjIjdav,>%%%%%%%%%%%%%%%%`ww+fjkq`}qKdh`%8%fjkq`}q+fjkq`}qKdh`>%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw-`ww,>%%%%%%%%%%%%x%%%%%%%%%%%%**Kjq%`}ulw`a)%fm`fn%cjw%d%f|fi`+%%%%%%%%%%%%lc%-k``aF|fi`Fm`fn,%~%%%%%%%%%%%%%%%%`dfm-w`tFdiiv)%cpkfqljk%-hja,%~%%%%%%%%%%%%%%%%%%%%gw`dnF|fi`-hja)%~x)%~x,>%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%x%%%%%%%%%%%%**Lc%vqlii%rdlqlkb%jk%ijdav)%dka%qm`%rdlqlkb%ijda%lv%vjh`qmlkb%%%%%%%%%%%%**jqm`w%qmdk%d%uipblk%w`vjpwf`)%jw%qm`w`%dw`%vqlii%jpqvqdkalkb%%%%%%%%%%%%**vfwluqv)%qm`k%opvq%qw|%gdfn%idq`w+%%%%%%%%%%%%lc%--$`}ulw`a%yy%pvlkbUdqmCdiigdfn,%##%vqliiIjdalkb,%~%%%%%%%%%%%%%%%%**Vjh`qmlkb%lv%vqlii%rdlqlkb%qj%ijda+%Rdlq%cjw%lq)%gpq%jki|%%%%%%%%%%%%%%%%**lc%d%qlh`jpq%lv%kjq%diw`da|%lk%`cc`fq+%%%%%%%%%%%%%%%%lc%--lvGwjrv`w%yy%lvR`gRjwn`w,%##%$fm`fnIjda`aQlh`jpqLa,%~%%%%%%%%%%%%%%%%%%%%fm`fnIjda`aQlh`jpqLa%8%v`qQlh`jpq-cpkfqljk%-,%~%%%%%%%%%%%%%%%%%%%%%%%%fm`fnIjda`aQlh`jpqLa%8%5>%%%%%%%%%%%%%%%%%%%%%%%%fm`fnIjda`a-,>%%%%%%%%%%%%%%%%%%%%x)%05,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%lkFm`fnIjda`a%8%cdiv`>%%%%%%%%x%%%%%%%%Hjapi`%8%cpkfqljk%-hdu,%~%%%%%%%%%%%%qmlv+`s`kqv%8%b`qJrk-pka`c@s`kqv)%hdu+la,%yy%~x>%%%%%%%%%%%%qmlv+hdu%8%hdu>%%%%%%%%%%%%qmlv+vmlh%8%b`qJrk-fjkclb+vmlh)%hdu+la,>%%%%%%%%%%%%qmlv+a`u@}ujwqv%8%^X>%%%%%%%%%%%%qmlv+a`uHduv%8%^X>%%%%%%%%%%%%qmlv+a`uHdqfm`a%8%^X>%%%%%%%%%%%%qmlv+uipblkHduv%8%~x>%%%%%%%%%%%%qmlv+a`uFjpkq%8%5>%%%%%%%%%%%%*/%qmlv+`}ujwqv%qmlv+cdfqjw|%%%%%%%%%%%%%%%qmlv+a`uHduv%8%^X)%%%%%%%%%%%%%%%qmlv+`kdgi`a)%qmlv+c`qfm`a%%%%%%%%%%%%/*%%%%%%%%x>%%%%%%%%Hjapi`+uwjqjq|u`%8%~%%%%%%%%%%%%lklq?%cpkfqljk%-a`uHduv)%cdfqjw|)%`wwgdfn)%juqljkv,%~%%%%%%%%%%%%%%%%juqljkv%8%juqljkv%yy%~x>%%%%%%%%%%%%%%%%**Aj%kjq%aj%hjw`%lklqv%lc%diw`da|%ajk`+%Fdk%mduu`k%lc%qm`w`%%%%%%%%%%%%%%%%**dw`%hpiqlui`%a`clk`%fdiiv%cjw%qm`%vdh`%hjapi`+%Qmdq%lv%kjq%%%%%%%%%%%%%%%%**d%kjwhdi)%fjhhjk%fdv`)%gpq%lq%lv%divj%kjq%pk`}u`fq`a+%%%%%%%%%%%%%%%%lc%-qmlv+lklq`a,%~%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%qmlv+cdfqjw|%8%cdfqjw|>%%%%%%%%%%%%%%%%lc%-`wwgdfn,%~%%%%%%%%%%%%%%%%%%%%**W`blvq`w%cjw%`wwjwv%jk%qmlv%hjapi`+%%%%%%%%%%%%%%%%%%%%qmlv+jk-"`wwjw")%`wwgdfn,>%%%%%%%%%%%%%%%%x%`iv`%lc%-qmlv+`s`kqv+`wwjw,%~%%%%%%%%%%%%%%%%%%%%**Lc%kj%`wwgdfn%diw`da|)%gpq%qm`w`%dw`%`wwjw%ilvq`k`wv%%%%%%%%%%%%%%%%%%%%**jk%qmlv%hjapi`)%v`q%pu%dk%`wwgdfn%qj%udvv%qj%qm`%a`uv+%%%%%%%%%%%%%%%%%%%%`wwgdfn%8%glka-qmlv)%cpkfqljk%-`ww,%~%%%%%%%%%%%%%%%%%%%%%%%%qmlv+`hlq-"`wwjw")%`ww,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**Aj%d%fju|%jc%qm`%a`u`ka`kf|%dwwd|)%vj%qmdq%%%%%%%%%%%%%%%%**vjpwf`%lkupqv%dw`%kjq%hjalcl`a+%Cjw%`}dhui`%%%%%%%%%%%%%%%%**'vmlh'%a`uv%dw`%udvv`a%lk%m`w`%alw`fqi|)%dka%%%%%%%%%%%%%%%%**ajlkb%d%alw`fq%hjalclfdqljk%jc%qm`%a`uHduv%dwwd|%%%%%%%%%%%%%%%%**rjpia%dcc`fq%qmdq%fjkclb+%%%%%%%%%%%%%%%%qmlv+a`uHduv%8%a`uHduv%##%a`uHduv+vilf`-5,>%%%%%%%%%%%%%%%%qmlv+`wwgdfn%8%`wwgdfn>%%%%%%%%%%%%%%%%**Lkalfdq`%qmlv%hjapi`%mdv%g`%lklqldil`a%%%%%%%%%%%%%%%%qmlv+lklq`a%8%qwp`>%%%%%%%%%%%%%%%%qmlv+lbkjw`%8%juqljkv+lbkjw`>%%%%%%%%%%%%%%%%**Fjpia%mds`%juqljk%qj%lklq%qmlv%hjapi`%lk%`kdgi`a%hja`)%%%%%%%%%%%%%%%%**jw%fjpia%mds`%g``k%uw`sljpvi|%hdwn`a%dv%`kdgi`a+%Mjr`s`w)%%%%%%%%%%%%%%%%**qm`%a`u`ka`kfl`v%dw`%kjq%nkjrk%pkqli%lklq%lv%fdii`a+%Vj%%%%%%%%%%%%%%%%**lc%`kdgi`a%uw`sljpvi|)%kjr%qwlbb`w%a`u`ka`kfl`v%dv%`kdgi`a+%%%%%%%%%%%%%%%%lc%-juqljkv+`kdgi`a%yy%qmlv+`kdgi`a,%~%%%%%%%%%%%%%%%%%%%%**@kdgi`%qmlv%hjapi`%dka%a`u`ka`kfl`v+%%%%%%%%%%%%%%%%%%%%**Rlii%fdii%qmlv+fm`fn-,%%%%%%%%%%%%%%%%%%%%qmlv+`kdgi`-,>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%qmlv+fm`fn-,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%a`clk`A`u?%cpkfqljk%-l)%a`u@}ujwqv,%~%%%%%%%%%%%%%%%%**G`fdpv`%jc%f|fi`v)%a`clk`a%fdiigdfn%cjw%d%bls`k%%%%%%%%%%%%%%%%**`}ujwq%fdk%g`%fdii`a%hjw`%qmdk%jkf`+%%%%%%%%%%%%%%%%lc%-$qmlv+a`uHdqfm`a^lX,%~%%%%%%%%%%%%%%%%%%%%qmlv+a`uHdqfm`a^lX%8%qwp`>%%%%%%%%%%%%%%%%%%%%qmlv+a`uFjpkq%(8%4>%%%%%%%%%%%%%%%%%%%%qmlv+a`u@}ujwqv^lX%8%a`u@}ujwqv>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%c`qfm?%cpkfqljk%-,%~%%%%%%%%%%%%%%%%lc%-qmlv+c`qfm`a,%~%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%qmlv+c`qfm`a%8%qwp`>%%%%%%%%%%%%%%%%fjkq`}q+vqdwqQlh`%8%-k`r%Adq`-,,+b`qQlh`-,>%%%%%%%%%%%%%%%%sdw%hdu%8%qmlv+hdu>%%%%%%%%%%%%%%%%**Lc%qm`%hdkdb`w%lv%cjw%d%uipblk%hdkdb`a%w`vjpwf`)%%%%%%%%%%%%%%%%**dvn%qm`%uipblk%qj%ijda%lq%kjr+%%%%%%%%%%%%%%%%lc%-qmlv+vmlh,%~%%%%%%%%%%%%%%%%%%%%fjkq`}q+hdn`W`tplw`-qmlv+hdu)%~%%%%%%%%%%%%%%%%%%%%%%%%`kdgi`GpliaFdiigdfn?%qwp`%%%%%%%%%%%%%%%%%%%%x,-qmlv+vmlh+a`uv%yy%^X)%glka-qmlv)%cpkfqljk%-,%~%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%hdu+uw`cl}%:%qmlv+fdiiUipblk-,%?%qmlv+ijda-,>%%%%%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%**W`bpidw%a`u`ka`kf|+%%%%%%%%%%%%%%%%%%%%w`qpwk%hdu+uw`cl}%:%qmlv+fdiiUipblk-,%?%qmlv+ijda-,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%ijda?%cpkfqljk%-,%~%%%%%%%%%%%%%%%%sdw%pwi%8%qmlv+hdu+pwi>%%%%%%%%%%%%%%%%**W`bpidw%a`u`ka`kf|+%%%%%%%%%%%%%%%%lc%-$pwiC`qfm`a^pwiX,%~%%%%%%%%%%%%%%%%%%%%pwiC`qfm`a^pwiX%8%qwp`>%%%%%%%%%%%%%%%%%%%%fjkq`}q+ijda-qmlv+hdu+la)%pwi,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%Fm`fnv%lc%qm`%hjapi`%lv%w`da|%qj%a`clk`%lqv`ic)%dka%lc%vj)%%%%%%%%%%%%%/%a`clk`%lq+%%%%%%%%%%%%%/*%%%%%%%%%%%%fm`fn?%cpkfqljk%-,%~%%%%%%%%%%%%%%%%lc%-$qmlv+`kdgi`a%yy%qmlv+`kdgilkb,%~%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%sdw%`ww)%fovHjapi`)%%%%%%%%%%%%%%%%%%%%la%8%qmlv+hdu+la)%%%%%%%%%%%%%%%%%%%%a`u@}ujwqv%8%qmlv+a`u@}ujwqv)%%%%%%%%%%%%%%%%%%%%`}ujwqv%8%qmlv+`}ujwqv)%%%%%%%%%%%%%%%%%%%%cdfqjw|%8%qmlv+cdfqjw|>%%%%%%%%%%%%%%%%lc%-$qmlv+lklq`a,%~%%%%%%%%%%%%%%%%%%%%**%Jki|%c`qfm%lc%kjq%diw`da|%lk%qm`%a`cTp`p`+%%%%%%%%%%%%%%%%%%%%lc%-$mdvUwju-fjkq`}q+a`cTp`p`Hdu)%la,,%~%%%%%%%%%%%%%%%%%%%%%%%%qmlv+c`qfm-,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%`iv`%lc%-qmlv+`wwjw,%~%%%%%%%%%%%%%%%%%%%%qmlv+`hlq-"`wwjw")%qmlv+`wwjw,>%%%%%%%%%%%%%%%%x%`iv`%lc%-$qmlv+a`clklkb,%~%%%%%%%%%%%%%%%%%%%%**Qm`%cdfqjw|%fjpia%qwlbb`w%dkjqm`w%w`tplw`%fdii%%%%%%%%%%%%%%%%%%%%**qmdq%rjpia%w`vpiq%lk%fm`fnlkb%qmlv%hjapi`%qj%%%%%%%%%%%%%%%%%%%%**a`clk`%lqv`ic%dbdlk+%Lc%diw`da|%lk%qm`%uwjf`vv%%%%%%%%%%%%%%%%%%%%**jc%ajlkb%qmdq)%vnlu%qmlv%rjwn+%%%%%%%%%%%%%%%%%%%%qmlv+a`clklkb%8%qwp`>%%%%%%%%%%%%%%%%%%%%lc%-qmlv+a`uFjpkq%9%4%##%$qmlv+a`clk`a,%~%%%%%%%%%%%%%%%%%%%%%%%%lc%-lvCpkfqljk-cdfqjw|,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Lc%qm`w`%lv%dk%`wwjw%ilvq`k`w)%cdsjw%udvvlkb%%%%%%%%%%%%%%%%%%%%%%%%%%%%**qj%qmdq%lkvq`da%jc%qmwjrlkb%dk%`wwjw+%Mjr`s`w)%%%%%%%%%%%%%%%%%%%%%%%%%%%%**jki|%aj%lq%cjw%a`clk`-,"a%%hjapi`v+%w`tplw`%%%%%%%%%%%%%%%%%%%%%%%%%%%%**`wwgdfnv%vmjpia%kjq%g`%fdii`a%cjw%cdlipw`v%lk%%%%%%%%%%%%%%%%%%%%%%%%%%%%**qm`lw%fdiigdfnv%-&3<<,+%Mjr`s`w%lc%d%bijgdi%%%%%%%%%%%%%%%%%%%%%%%%%%%%**jk@wwjw%lv%v`q)%pv`%qmdq+%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%--qmlv+`s`kqv+`wwjw%##%qmlv+hdu+lvA`clk`,%yy%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`t+jk@wwjw%$88%a`cdpiqJk@wwjw,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%qw|%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`}ujwqv%8%fjkq`}q+`}`fFg-la)%cdfqjw|)%a`u@}ujwqv)%`}ujwqv,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`ww%8%`>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`}ujwqv%8%fjkq`}q+`}`fFg-la)%cdfqjw|)%a`u@}ujwqv)%`}ujwqv,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%**%Cdsjw%w`qpwk%sdip`%js`w%`}ujwqv+%Lc%kja`*fov%lk%uid|)%%%%%%%%%%%%%%%%%%%%%%%%%%%%**%qm`k%rlii%kjq%mds`%d%w`qpwk%sdip`%dk|rd|+%Cdsjw%%%%%%%%%%%%%%%%%%%%%%%%%%%%**%hjapi`+`}ujwqv%dvvlbkh`kq%js`w%`}ujwqv%jgo`fq+%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-qmlv+hdu+lvA`clk`%##%`}ujwqv%888%pka`clk`a,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%fovHjapi`%8%qmlv+hjapi`>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-fovHjapi`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`}ujwqv%8%fovHjapi`+`}ujwqv>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%`iv`%lc%-qmlv+pvlkb@}ujwqv,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%**`}ujwqv%diw`da|%v`q%qm`%a`clk`a%sdip`+%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`}ujwqv%8%qmlv+`}ujwqv>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-`ww,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`ww+w`tplw`Hdu%8%qmlv+hdu>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`ww+w`tplw`Hjapi`v%8%qmlv+hdu+lvA`clk`%:%^qmlv+hdu+laX%?%kpii>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`ww+w`tplw`Q|u`%8%qmlv+hdu+lvA`clk`%:%"a`clk`"%?%"w`tplw`">%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw--qmlv+`wwjw%8%`ww,,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Opvq%d%ilq`wdi%sdip`%%%%%%%%%%%%%%%%%%%%%%%%%%%%`}ujwqv%8%cdfqjw|>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%qmlv+`}ujwqv%8%`}ujwqv>%%%%%%%%%%%%%%%%%%%%%%%%lc%-qmlv+hdu+lvA`clk`%##%$qmlv+lbkjw`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%a`clk`a^laX%8%`}ujwqv>%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-w`t+jkW`vjpwf`Ijda,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`t+jkW`vjpwf`Ijda-fjkq`}q)%qmlv+hdu)%qmlv+a`uHduv,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**Fi`dk%pu%%%%%%%%%%%%%%%%%%%%%%%%fi`dkW`blvqw|-la,>%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`clk`a%8%qwp`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%**Clklvm`a%qm`%a`clk`%vqdb`+%Diijr%fdiilkb%fm`fn%dbdlk%%%%%%%%%%%%%%%%%%%%**qj%diijr%a`clk`%kjqlclfdqljkv%g`ijr%lk%qm`%fdv`%jc%d%%%%%%%%%%%%%%%%%%%%**f|fi`+%%%%%%%%%%%%%%%%%%%%qmlv+a`clklkb%8%cdiv`>%%%%%%%%%%%%%%%%%%%%lc%-qmlv+a`clk`a%##%$qmlv+a`clk`@hlqq`a,%~%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`clk`@hlqq`a%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%qmlv+`hlq-"a`clk`a")%qmlv+`}ujwqv,>%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`clk`@hlqFjhui`q`%8%qwp`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%fdiiUipblk?%cpkfqljk%-,%~%%%%%%%%%%%%%%%%sdw%hdu%8%qmlv+hdu)%%%%%%%%%%%%%%%%%%%%la%8%hdu+la)%%%%%%%%%%%%%%%%%%%%**Hdu%diw`da|%kjwhdil`a%qm`%uw`cl}+%%%%%%%%%%%%%%%%%%%%uipblkHdu%8%hdn`Hjapi`Hdu-hdu+uw`cl},>%%%%%%%%%%%%%%%%**Hdwn%qmlv%dv%d%a`u`ka`kf|%cjw%qmlv%uipblk)%vj%lq%%%%%%%%%%%%%%%%**fdk%g`%qwdf`a%cjw%f|fi`v+%%%%%%%%%%%%%%%%qmlv+a`uHduv+upvm-uipblkHdu,>%%%%%%%%%%%%%%%%jk-uipblkHdu)%"a`clk`a")%glka-qmlv)%cpkfqljk%-uipblk,%~%%%%%%%%%%%%%%%%%%%%sdw%ijda)%kjwhdil`aHdu)%kjwhdil`aHja)%%%%%%%%%%%%%%%%%%%%%%%%gpkai`La%8%b`qJrk-gpkai`vHdu)%qmlv+hdu+la,)%%%%%%%%%%%%%%%%%%%%%%%%kdh`%8%qmlv+hdu+kdh`)%%%%%%%%%%%%%%%%%%%%%%%%udw`kqKdh`%8%qmlv+hdu+udw`kqHdu%:%qmlv+hdu+udw`kqHdu+kdh`%?%kpii)%%%%%%%%%%%%%%%%%%%%%%%%ijfdiW`tplw`%8%fjkq`}q+hdn`W`tplw`-hdu+udw`kqHdu)%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%`kdgi`GpliaFdiigdfn?%qwp`%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%**Lc%fpww`kq%hdu%lv%kjq%kjwhdil`a)%rdlq%cjw%qmdq%%%%%%%%%%%%%%%%%%%%**kjwhdil`a%kdh`%qj%ijda%lkvq`da%jc%fjkqlkplkb+%%%%%%%%%%%%%%%%%%%%lc%-qmlv+hdu+pkkjwhdil`a,%~%%%%%%%%%%%%%%%%%%%%%%%%**Kjwhdil`%qm`%LA%lc%qm`%uipblk%diijrv%lq+%%%%%%%%%%%%%%%%%%%%%%%%lc%-uipblk+kjwhdil`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%kdh`%8%uipblk+kjwhdil`-kdh`)%cpkfqljk%-kdh`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%kjwhdil`-kdh`)%udw`kqKdh`)%qwp`,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x,%yy%"">%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**uw`cl}%dka%kdh`%vmjpia%diw`da|%g`%kjwhdil`a)%kj%k``a%%%%%%%%%%%%%%%%%%%%%%%%**cjw%duui|lkb%hdu%fjkclb%dbdlk%`lqm`w+%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`aHdu%8%hdn`Hjapi`Hdu-hdu+uw`cl}%.%"$"%.%kdh`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+hdu+udw`kqHdu,>%%%%%%%%%%%%%%%%%%%%%%%%jk-kjwhdil`aHdu)%%%%%%%%%%%%%%%%%%%%%%%%%%%%"a`clk`a")%glka-qmlv)%cpkfqljk%-sdip`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+lklq-^X)%cpkfqljk%-,%~%w`qpwk%sdip`>%x)%kpii)%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`kdgi`a?%qwp`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%lbkjw`?%qwp`%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`aHja%8%b`qJrk-w`blvqw|)%kjwhdil`aHdu+la,>%%%%%%%%%%%%%%%%%%%%%%%%lc%-kjwhdil`aHja,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Hdwn%qmlv%dv%d%a`u`ka`kf|%cjw%qmlv%uipblk)%vj%lq%%%%%%%%%%%%%%%%%%%%%%%%%%%%**fdk%g`%qwdf`a%cjw%f|fi`v+%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`uHduv+upvm-kjwhdil`aHdu,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-qmlv+`s`kqv+`wwjw,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`aHja+jk-"`wwjw")%glka-qmlv)%cpkfqljk%-`ww,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+`hlq-"`wwjw")%`ww,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%kjwhdil`aHja+`kdgi`-,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%**Lc%d%udqmv%fjkclb)%qm`k%opvq%ijda%qmdq%cli`%lkvq`da%qj%%%%%%%%%%%%%%%%%%%%**w`vjis`%qm`%uipblk)%dv%lq%lv%gpliq%lkqj%qmdq%udqmv%id|`w+%%%%%%%%%%%%%%%%%%%%lc%-gpkai`La,%~%%%%%%%%%%%%%%%%%%%%%%%%qmlv+hdu+pwi%8%fjkq`}q+kdh`QjPwi-gpkai`La,>%%%%%%%%%%%%%%%%%%%%%%%%qmlv+ijda-,>%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%ijda%8%glka-qmlv)%cpkfqljk%-sdip`,%~%%%%%%%%%%%%%%%%%%%%%%%%qmlv+lklq-^X)%cpkfqljk%-,%~%w`qpwk%sdip`>%x)%kpii)%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%`kdgi`a?%qwp`%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%ijda+`wwjw%8%glka-qmlv)%cpkfqljk%-`ww,%~%%%%%%%%%%%%%%%%%%%%%%%%qmlv+lklq`a%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%qmlv+`wwjw%8%`ww>%%%%%%%%%%%%%%%%%%%%%%%%`ww+w`tplw`Hjapi`v%8%^laX>%%%%%%%%%%%%%%%%%%%%%%%%**W`hjs`%q`hu%pkkjwhdil`a%hjapi`v%cjw%qmlv%hjapi`)%%%%%%%%%%%%%%%%%%%%%%%%**vlkf`%qm`|%rlii%k`s`w%g`%w`vjis`a%jqm`wrlv`%kjr+%%%%%%%%%%%%%%%%%%%%%%%%`dfmUwju-w`blvqw|)%cpkfqljk%-hja,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-hja+hdu+la+lka`}Jc-la%.%"Zpkkjwhdil`a",%888%5,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%fi`dkW`blvqw|-hja+hdu+la,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%%%%%jk@wwjw-`ww,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%**Diijr%uipblkv%qj%ijda%jqm`w%fja`%rlqmjpq%mdslkb%qj%nkjr%qm`%%%%%%%%%%%%%%%%%%%%**fjkq`}q%jw%mjr%qj%"fjhui`q`"%qm`%ijda+%%%%%%%%%%%%%%%%%%%%ijda+cwjhQ`}q%8%glka-qmlv)%cpkfqljk%-q`}q)%q`}qDiq,%~%%%%%%%%%%%%%%%%%%%%%%%%*/ovilkq%`sli?%qwp`%/*%%%%%%%%%%%%%%%%%%%%%%%%sdw%hjapi`Kdh`%8%hdu+kdh`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%hjapi`Hdu%8%hdn`Hjapi`Hdu-hjapi`Kdh`,)%%%%%%%%%%%%%%%%%%%%%%%%%%%%mdvLkq`wdfqls`%8%pv`Lkq`wdfqls`>%%%%%%%%%%%%%%%%%%%%%%%%**Dv%jc%7+4+5)%vpuujwq%opvq%udvvlkb%qm`%q`}q)%qj%w`lkcjwf`%%%%%%%%%%%%%%%%%%%%%%%%**cwjhQ`}q%jki|%g`lkb%fdii`a%jkf`%u`w%w`vjpwf`+%Vqlii%%%%%%%%%%%%%%%%%%%%%%%%**vpuujwq%jia%vq|i`%jc%udvvlkb%hjapi`Kdh`%gpq%alvfdwa%%%%%%%%%%%%%%%%%%%%%%%%**qmdq%hjapi`Kdh`%lk%cdsjw%jc%qm`%lkq`wkdi%w`c+%%%%%%%%%%%%%%%%%%%%%%%%lc%-q`}qDiq,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%q`}q%8%q`}qDiq>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**Qpwk%jcc%lkq`wdfqls`%vfwluq%hdqfmlkb%cjw%L@%cjw%dk|%a`clk`%%%%%%%%%%%%%%%%%%%%%%%%**fdiiv%lk%qm`%q`}q)%qm`k%qpwk%lq%gdfn%jk%dq%qm`%`ka+%%%%%%%%%%%%%%%%%%%%%%%%lc%-mdvLkq`wdfqls`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%pv`Lkq`wdfqls`%8%cdiv`>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**Uwlh`%qm`%v|vq`h%g|%fw`dqlkb%d%hjapi`%lkvqdkf`%cjw%%%%%%%%%%%%%%%%%%%%%%%%**lq+%%%%%%%%%%%%%%%%%%%%%%%%b`qHjapi`-hjapi`Hdu,>%%%%%%%%%%%%%%%%%%%%%%%%**Qwdkvc`w%dk|%fjkclb%qj%qmlv%jqm`w%hjapi`+%%%%%%%%%%%%%%%%%%%%%%%%lc%-mdvUwju-fjkclb+fjkclb)%la,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%fjkclb+fjkclb^hjapi`Kdh`X%8%fjkclb+fjkclb^laX>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%qw|%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`t+`}`f-q`}q,>%%%%%%%%%%%%%%%%%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw-hdn`@wwjw-"cwjhq`}q`sdi")%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%"cwjhQ`}q%`sdi%cjw%"%.%la%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%"%cdli`a?%"%.%`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%^laX,,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%lc%-mdvLkq`wdfqls`,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%pv`Lkq`wdfqls`%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**Hdwn%qmlv%dv%d%a`u`ka`kf|%cjw%qm`%uipblk%%%%%%%%%%%%%%%%%%%%%%%%**w`vjpwf`%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`uHduv+upvm-hjapi`Hdu,>%%%%%%%%%%%%%%%%%%%%%%%%**Vpuujwq%dkjk|hjpv%hjapi`v+%%%%%%%%%%%%%%%%%%%%%%%%fjkq`}q+fjhui`q`Ijda-hjapi`Kdh`,>%%%%%%%%%%%%%%%%%%%%%%%%**Glka%qm`%sdip`%jc%qmdq%hjapi`%qj%qm`%sdip`%cjw%qmlv%%%%%%%%%%%%%%%%%%%%%%%%**w`vjpwf`%LA+%%%%%%%%%%%%%%%%%%%%%%%%ijfdiW`tplw`-^hjapi`Kdh`X)%ijda,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%**Pv`%udw`kqKdh`%m`w`%vlkf`%qm`%uipblk"v%kdh`%lv%kjq%w`ildgi`)%%%%%%%%%%%%%%%%%%%%**fjpia%g`%vjh`%r`lwa%vqwlkb%rlqm%kj%udqm%qmdq%dfqpdii|%rdkqv%qj%%%%%%%%%%%%%%%%%%%%**w`c`w`kf`%qm`%udw`kqKdh`"v%udqm+%%%%%%%%%%%%%%%%%%%%uipblk+ijda-hdu+kdh`)%ijfdiW`tplw`)%ijda)%fjkclb,>%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%fjkq`}q+`kdgi`-uipblkHdu)%qmlv,>%%%%%%%%%%%%%%%%qmlv+uipblkHduv^uipblkHdu+laX%8%uipblkHdu>%%%%%%%%%%%%x)%%%%%%%%%%%%`kdgi`?%cpkfqljk%-,%~%%%%%%%%%%%%%%%%`kdgi`aW`blvqw|^qmlv+hdu+laX%8%qmlv>%%%%%%%%%%%%%%%%qmlv+`kdgi`a%8%qwp`>%%%%%%%%%%%%%%%%**V`q%cidb%h`kqljklkb%qmdq%qm`%hjapi`%lv%`kdgilkb)%%%%%%%%%%%%%%%%**vj%qmdq%lhh`aldq`%fdiiv%qj%qm`%a`clk`a%fdiigdfnv%%%%%%%%%%%%%%%%**cjw%a`u`ka`kfl`v%aj%kjq%qwlbb`w%lkdas`wq`kq%ijda%%%%%%%%%%%%%%%%**rlqm%qm`%a`uFjpkq%vqlii%g`lkb%`wj+%%%%%%%%%%%%%%%%qmlv+`kdgilkb%8%qwp`>%%%%%%%%%%%%%%%%**@kdgi`%`dfm%a`u`ka`kf|%%%%%%%%%%%%%%%%`dfm-qmlv+a`uHduv)%glka-qmlv)%cpkfqljk%-a`uHdu)%l,%~%%%%%%%%%%%%%%%%%%%%sdw%la)%hja)%mdkai`w>%%%%%%%%%%%%%%%%%%%%lc%-q|u`jc%a`uHdu%888%"vqwlkb",%~%%%%%%%%%%%%%%%%%%%%%%%%**A`u`ka`kf|%k``av%qj%g`%fjks`wq`a%qj%d%a`uHdu%%%%%%%%%%%%%%%%%%%%%%%%**dka%rlw`a%pu%qj%qmlv%hjapi`+%%%%%%%%%%%%%%%%%%%%%%%%a`uHdu%8%hdn`Hjapi`Hdu-a`uHdu)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%-qmlv+hdu+lvA`clk`%:%qmlv+hdu%?%qmlv+hdu+udw`kqHdu,)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%cdiv`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%$qmlv+vnluHdu,>%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`uHduv^lX%8%a`uHdu>%%%%%%%%%%%%%%%%%%%%%%%%mdkai`w%8%b`qJrk-mdkai`wv)%a`uHdu+la,>%%%%%%%%%%%%%%%%%%%%%%%%lc%-mdkai`w,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`u@}ujwqv^lX%8%mdkai`w-qmlv,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`uFjpkq%.8%4>%%%%%%%%%%%%%%%%%%%%%%%%jk-a`uHdu)%"a`clk`a")%glka-qmlv)%cpkfqljk%-a`u@}ujwqv,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-qmlv+pka`c`a,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+a`clk`A`u-l)%a`u@}ujwqv,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+fm`fn-,>%%%%%%%%%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%%%%%%%%%lc%-qmlv+`wwgdfn,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%jk-a`uHdu)%"`wwjw")%glka-qmlv)%qmlv+`wwgdfn,,>%%%%%%%%%%%%%%%%%%%%%%%%x%`iv`%lc%-qmlv+`s`kqv+`wwjw,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**%Kj%alw`fq%`wwgdfn%jk%qmlv%hjapi`)%gpq%vjh`qmlkb%%%%%%%%%%%%%%%%%%%%%%%%%%%%**%`iv`%lv%ilvq`klkb%cjw%`wwjwv)%vj%g`%vpw`%qj%%%%%%%%%%%%%%%%%%%%%%%%%%%%**%uwjudbdq`%qm`%`wwjw%fjww`fqi|+%%%%%%%%%%%%%%%%%%%%%%%%%%%%jk-a`uHdu)%"`wwjw")%glka-qmlv)%cpkfqljk-`ww,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%qmlv+`hlq-"`wwjw")%`ww,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%la%8%a`uHdu+la>%%%%%%%%%%%%%%%%%%%%hja%8%w`blvqw|^laX>%%%%%%%%%%%%%%%%%%%%**Vnlu%vu`fldi%hjapi`v%iln`%"w`tplw`")%"`}ujwqv")%"hjapi`"%%%%%%%%%%%%%%%%%%%%**Divj)%ajk"q%fdii%`kdgi`%lc%lq%lv%diw`da|%`kdgi`a)%%%%%%%%%%%%%%%%%%%%**lhujwqdkq%lk%flwfpidw%a`u`ka`kf|%fdv`v+%%%%%%%%%%%%%%%%%%%%lc%-$mdvUwju-mdkai`wv)%la,%##%hja%##%$hja+`kdgi`a,%~%%%%%%%%%%%%%%%%%%%%%%%%fjkq`}q+`kdgi`-a`uHdu)%qmlv,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%**@kdgi`%`dfm%uipblk%qmdq%lv%pv`a%lk%%%%%%%%%%%%%%%%**d%a`u`ka`kf|%%%%%%%%%%%%%%%%`dfmUwju-qmlv+uipblkHduv)%glka-qmlv)%cpkfqljk%-uipblkHdu,%~%%%%%%%%%%%%%%%%%%%%sdw%hja%8%b`qJrk-w`blvqw|)%uipblkHdu+la,>%%%%%%%%%%%%%%%%%%%%lc%-hja%##%$hja+`kdgi`a,%~%%%%%%%%%%%%%%%%%%%%%%%%fjkq`}q+`kdgi`-uipblkHdu)%qmlv,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,,>%%%%%%%%%%%%%%%%qmlv+`kdgilkb%8%cdiv`>%%%%%%%%%%%%%%%%qmlv+fm`fn-,>%%%%%%%%%%%%x)%%%%%%%%%%%%jk?%cpkfqljk%-kdh`)%fg,%~%%%%%%%%%%%%%%%%sdw%fgv%8%qmlv+`s`kqv^kdh`X>%%%%%%%%%%%%%%%%lc%-$fgv,%~%%%%%%%%%%%%%%%%%%%%fgv%8%qmlv+`s`kqv^kdh`X%8%^X>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%fgv+upvm-fg,>%%%%%%%%%%%%x)%%%%%%%%%%%%`hlq?%cpkfqljk%-kdh`)%`sq,%~%%%%%%%%%%%%%%%%`dfm-qmlv+`s`kqv^kdh`X)%cpkfqljk%-fg,%~%%%%%%%%%%%%%%%%%%%%fg-`sq,>%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%lc%-kdh`%888%"`wwjw",%~%%%%%%%%%%%%%%%%%%%%**Kjr%qmdq%qm`%`wwjw%mdkai`w%rdv%qwlbb`w`a)%w`hjs`%%%%%%%%%%%%%%%%%%%%**qm`%ilvq`k`wv)%vlkf`%qmlv%gwjn`k%Hjapi`%lkvqdkf`%%%%%%%%%%%%%%%%%%%%**fdk%vqd|%dwjpka%cjw%d%rmli`%lk%qm`%w`blvqw|+%%%%%%%%%%%%%%%%%%%%a`i`q`%qmlv+`s`kqv^kdh`X>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x>%%%%%%%%cpkfqljk%fdiiB`qHjapi`-dwbv,%~%%%%%%%%%%%%**Vnlu%hjapi`v%diw`da|%a`clk`a+%%%%%%%%%%%%lc%-$mdvUwju-a`clk`a)%dwbv^5X,,%~%%%%%%%%%%%%%%%%b`qHjapi`-hdn`Hjapi`Hdu-dwbv^5X)%kpii)%qwp`,,+lklq-dwbv^4X)%dwbv^7X,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%cpkfqljk%w`hjs`Ilvq`k`w-kja`)%cpkf)%kdh`)%l`Kdh`,%~%%%%%%%%%%%%**Cdsjw%a`qdfm@s`kq%g`fdpv`%jc%L@<%%%%%%%%%%%%**lvvp`)%v``%dqqdfm@s`kq*daa@s`kqIlvq`k`w%fjhh`kq%`iv`rm`w`%%%%%%%%%%%%**lk%qmlv%cli`+%%%%%%%%%%%%lc%-kja`+a`qdfm@s`kq%##%$lvJu`wd,%~%%%%%%%%%%%%%%%%**Uwjgdgi|%L@+%Lc%kjq%lq%rlii%qmwjr%dk%`wwjw)%rmlfm%rlii%g`%%%%%%%%%%%%%%%%**pv`cpi%qj%nkjr+%%%%%%%%%%%%%%%%lc%-l`Kdh`,%~%%%%%%%%%%%%%%%%%%%%kja`+a`qdfm@s`kq-l`Kdh`)%cpkf,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%kja`+w`hjs`@s`kqIlvq`k`w-kdh`)%cpkf)%cdiv`,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%*//%%%%%%%%%/%Bls`k%dk%`s`kq%cwjh%d%vfwluq%kja`)%b`q%qm`%w`tplw`ov%lkcj%cwjh%lq)%%%%%%%%%/%dka%qm`k%w`hjs`v%qm`%`s`kq%ilvq`k`wv%jk%qm`%kja`+%%%%%%%%%/%Eudwdh%~@s`kqx%`sq%%%%%%%%%/%Ew`qpwkv%~Jgo`fqx%%%%%%%%%/*%%%%%%%%cpkfqljk%b`qVfwluqAdqd-`sq,%~%%%%%%%%%%%%**Pvlkb%fpww`kqQdwb`q%lkvq`da%jc%qdwb`q%cjw%Clw`cj}%7+5"v%vdn`+%Kjq%%%%%%%%%%%%**dii%jia%gwjrv`wv%rlii%g`%vpuujwq`a)%gpq%qmlv%jk`%rdv%`dv|%`kjpbm%%%%%%%%%%%%**qj%vpuujwq%dka%vqlii%hdn`v%v`kv`+%%%%%%%%%%%%sdw%kja`%8%`sq+fpww`kqQdwb`q%yy%`sq+vwf@i`h`kq>%%%%%%%%%%%%**W`hjs`%qm`%ilvq`k`wv%jkf`%m`w`+%%%%%%%%%%%%w`hjs`Ilvq`k`w-kja`)%fjkq`}q+jkVfwluqIjda)%"ijda")%"jkw`da|vqdq`fmdkb`",>%%%%%%%%%%%%w`hjs`Ilvq`k`w-kja`)%fjkq`}q+jkVfwluq@wwjw)%"`wwjw",>%%%%%%%%%%%%w`qpwk%~%%%%%%%%%%%%%%%%kja`?%kja`)%%%%%%%%%%%%%%%%la?%kja`%##%kja`+b`qDqqwlgpq`-"adqd(w`tplw`hjapi`",%%%%%%%%%%%%x>%%%%%%%%x%%%%%%%%cpkfqljk%lkqdn`A`clk`v-,%~%%%%%%%%%%%%sdw%dwbv>%%%%%%%%%%%%**Dk|%a`clk`a%hjapi`v%lk%qm`%bijgdi%tp`p`)%lkqdn`%qm`h%kjr+%%%%%%%%%%%%qdn`BijgdiTp`p`-,>%%%%%%%%%%%%**Hdn`%vpw`%dk|%w`hdlklkb%a`cTp`p`%lq`hv%b`q%uwju`wi|%uwjf`vv`a+%%%%%%%%%%%%rmli`%-a`cTp`p`+i`kbqm,%~%%%%%%%%%%%%%%%%dwbv%8%a`cTp`p`+vmlcq-,>%%%%%%%%%%%%%%%%lc%-dwbv^5X%888%kpii,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw-hdn`@wwjw-"hlvhdqfm")%"Hlvhdqfm`a%dkjk|hjpv%a`clk`-,%hjapi`?%"%.%%%%%%%%%%%%%%%%%%%%%%%%dwbv^dwbv+i`kbqm%(%4X,,>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%**dwbv%dw`%la)%a`uv)%cdfqjw|+%Vmjpia%g`%kjwhdil`a%g|%qm`%%%%%%%%%%%%%%%%%%%%**a`clk`-,%cpkfqljk+%%%%%%%%%%%%%%%%%%%%fdiiB`qHjapi`-dwbv,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%%%%%fjkq`}q+a`cTp`p`Hdu%8%~x>%%%%%%%%x%%%%%%%%fjkq`}q%8%~%%%%%%%%%%%%fjkclb?%fjkclb)%%%%%%%%%%%%fjkq`}qKdh`?%fjkq`}qKdh`)%%%%%%%%%%%%w`blvqw|?%w`blvqw|)%%%%%%%%%%%%a`clk`a?%a`clk`a)%%%%%%%%%%%%pwiC`qfm`a?%pwiC`qfm`a)%%%%%%%%%%%%a`cTp`p`?%a`cTp`p`)%%%%%%%%%%%%a`cTp`p`Hdu?%~x)%%%%%%%%%%%%Hjapi`?%Hjapi`)%%%%%%%%%%%%hdn`Hjapi`Hdu?%hdn`Hjapi`Hdu)%%%%%%%%%%%%k`}qQlfn?%w`t+k`}qQlfn)%%%%%%%%%%%%jk@wwjw?%jk@wwjw)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%V`q%d%fjkclbpwdqljk%cjw%qm`%fjkq`}q+%%%%%%%%%%%%%/%Eudwdh%~Jgo`fqx%fcb%fjkclb%jgo`fq%qj%lkq`bwdq`+%%%%%%%%%%%%%/*%%%%%%%%%%%%fjkclbpw`?%cpkfqljk%-fcb,%~%%%%%%%%%%%%%%%%**Hdn`%vpw`%qm`%gdv`Pwi%`kav%lk%d%vidvm+%%%%%%%%%%%%%%%%lc%-fcb+gdv`Pwi,%~%%%%%%%%%%%%%%%%%%%%lc%-fcb+gdv`Pwi+fmdwDq-fcb+gdv`Pwi+i`kbqm%(%4,%$88%"*",%~%%%%%%%%%%%%%%%%%%%%%%%%fcb+gdv`Pwi%.8%"*">%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**Vds`%jcc%qm`%udqmv%vlkf`%qm`|%w`tplw`%vu`fldi%uwjf`vvlkb)%%%%%%%%%%%%%%%%**qm`|%dw`%daalqls`+%%%%%%%%%%%%%%%%sdw%vmlh%8%fjkclb+vmlh)%%%%%%%%%%%%%%%%%%%%jgov%8%~%%%%%%%%%%%%%%%%%%%%%%%%udqmv?%qwp`)%%%%%%%%%%%%%%%%%%%%%%%%gpkai`v?%qwp`)%%%%%%%%%%%%%%%%%%%%%%%%fjkclb?%qwp`)%%%%%%%%%%%%%%%%%%%%%%%%hdu?%qwp`%%%%%%%%%%%%%%%%%%%%x>%%%%%%%%%%%%%%%%`dfmUwju-fcb)%cpkfqljk%-sdip`)%uwju,%~%%%%%%%%%%%%%%%%%%%%lc%-jgov^uwjuX,%~%%%%%%%%%%%%%%%%%%%%%%%%lc%-$fjkclb^uwjuX,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%fjkclb^uwjuX%8%~x>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%hl}lk-fjkclb^uwjuX)%sdip`)%qwp`)%qwp`,>%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%fjkclb^uwjuX%8%sdip`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%**W`s`wv`%hdu%qm`%gpkai`v%%%%%%%%%%%%%%%%lc%-fcb+gpkai`v,%~%%%%%%%%%%%%%%%%%%%%`dfmUwju-fcb+gpkai`v)%cpkfqljk%-sdip`)%uwju,%~%%%%%%%%%%%%%%%%%%%%%%%%`dfm-sdip`)%cpkfqljk%-s,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-s%$88%uwju,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%gpkai`vHdu^sX%8%uwju>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**H`wb`%vmlh%%%%%%%%%%%%%%%%lc%-fcb+vmlh,%~%%%%%%%%%%%%%%%%%%%%`dfmUwju-fcb+vmlh)%cpkfqljk%-sdip`)%la,%~%%%%%%%%%%%%%%%%%%%%%%%%**Kjwhdil`%qm`%vqwpfqpw`%%%%%%%%%%%%%%%%%%%%%%%%lc%-lvDwwd|-sdip`,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%sdip`%8%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%a`uv?%sdip`%%%%%%%%%%%%%%%%%%%%%%%%%%%%x>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%lc%--sdip`+`}ujwqv%yy%sdip`+lklq,%##%$sdip`+`}ujwqvCk,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%sdip`+`}ujwqvCk%8%fjkq`}q+hdn`Vmlh@}ujwqv-sdip`,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%vmlh^laX%8%sdip`>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%fjkclb+vmlh%8%vmlh>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**Daopvq%udfndb`v%lc%k`f`vvdw|+%%%%%%%%%%%%%%%%lc%-fcb+udfndb`v,%~%%%%%%%%%%%%%%%%%%%%`dfm-fcb+udfndb`v)%cpkfqljk%-unbJgo,%~%%%%%%%%%%%%%%%%%%%%%%%%sdw%ijfdqljk)%kdh`>%%%%%%%%%%%%%%%%%%%%%%%%unbJgo%8%q|u`jc%unbJgo%888%"vqwlkb"%:%~kdh`?%unbJgox%?%unbJgo>%%%%%%%%%%%%%%%%%%%%%%%%kdh`%8%unbJgo+kdh`>%%%%%%%%%%%%%%%%%%%%%%%%ijfdqljk%8%unbJgo+ijfdqljk>%%%%%%%%%%%%%%%%%%%%%%%%lc%-ijfdqljk,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%fjkclb+udqmv^kdh`X%8%unbJgo+ijfdqljk>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**Vds`%ujlkq`w%qj%hdlk%hjapi`%LA%cjw%unb%kdh`+%%%%%%%%%%%%%%%%%%%%%%%%**W`hjs`%i`dalkb%ajq%lk%hdlk)%vj%hdlk%udqmv%dw`%kjwhdil`a)%%%%%%%%%%%%%%%%%%%%%%%%**dka%w`hjs`%dk|%qwdlilkb%+ov)%vlkf`%alcc`w`kq%udfndb`%%%%%%%%%%%%%%%%%%%%%%%%**`ksv%mds`%alcc`w`kq%fjks`kqljkv?%vjh`%pv`%d%hjapi`%kdh`)%%%%%%%%%%%%%%%%%%%%%%%%**vjh`%pv`%d%cli`%kdh`+%%%%%%%%%%%%%%%%%%%%%%%%fjkclb+unbv^kdh`X%8%unbJgo+kdh`%.%"*"%.%-unbJgo+hdlk%yy%"hdlk",%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%+w`uidf`-fpwwAlwW`b@}u)%"",%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%+w`uidf`-ovVpccl}W`b@}u)%"",>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**Lc%qm`w`%dw`%dk|%'rdlqlkb%qj%`}`fpq`'%hjapi`v%lk%qm`%w`blvqw|)%%%%%%%%%%%%%%%%**puadq`%qm`%hduv%cjw%qm`h)%vlkf`%qm`lw%lkcj)%iln`%PWIv%qj%ijda)%%%%%%%%%%%%%%%%**hd|%mds`%fmdkb`a+%%%%%%%%%%%%%%%%`dfmUwju-w`blvqw|)%cpkfqljk%-hja)%la,%~%%%%%%%%%%%%%%%%%%%%**Lc%hjapi`%diw`da|%mdv%lklq%fdii`a)%vlkf`%lq%lv%qjj%%%%%%%%%%%%%%%%%%%%**idq`%qj%hjalc|%qm`h)%dka%lbkjw`%pkkjwhdil`a%jk`v%%%%%%%%%%%%%%%%%%%%**vlkf`%qm`|%dw`%qwdkvl`kq+%%%%%%%%%%%%%%%%%%%%lc%-$hja+lklq`a%##%$hja+hdu+pkkjwhdil`a,%~%%%%%%%%%%%%%%%%%%%%%%%%hja+hdu%8%hdn`Hjapi`Hdu-la)%kpii)%qwp`,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%**Lc%d%a`uv%dwwd|%jw%d%fjkclb%fdiigdfn%lv%vu`flcl`a)%qm`k%fdii%%%%%%%%%%%%%%%%**w`tplw`%rlqm%qmjv`%dwbv+%Qmlv%lv%pv`cpi%rm`k%w`tplw`%lv%a`clk`a%dv%d%%%%%%%%%%%%%%%%**fjkclb%jgo`fq%g`cjw`%w`tplw`+ov%lv%ijda`a+%%%%%%%%%%%%%%%%lc%-fcb+a`uv%yy%fcb+fdiigdfn,%~%%%%%%%%%%%%%%%%%%%%fjkq`}q+w`tplw`-fcb+a`uv%yy%^X)%fcb+fdiigdfn,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%hdn`Vmlh@}ujwqv?%cpkfqljk%-sdip`,%~%%%%%%%%%%%%%%%%cpkfqljk%ck-,%~%%%%%%%%%%%%%%%%%%%%sdw%w`q>%%%%%%%%%%%%%%%%%%%%lc%-sdip`+lklq,%~%%%%%%%%%%%%%%%%%%%%%%%%w`q%8%sdip`+lklq+duui|-bijgdi)%dwbph`kqv,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%w`qpwk%w`q%yy%-sdip`+`}ujwqv%##%b`qBijgdi-sdip`+`}ujwqv,,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%ck>%%%%%%%%%%%%x)%%%%%%%%%%%%hdn`W`tplw`?%cpkfqljk%-w`iHdu)%juqljkv,%~%%%%%%%%%%%%%%%%juqljkv%8%juqljkv%yy%~x>%%%%%%%%%%%%%%%%cpkfqljk%ijfdiW`tplw`-a`uv)%fdiigdfn)%`wwgdfn,%~%%%%%%%%%%%%%%%%%%%%sdw%la)%hdu)%w`tplw`Hja>%%%%%%%%%%%%%%%%%%%%lc%-juqljkv+`kdgi`GpliaFdiigdfn%##%fdiigdfn%##%lvCpkfqljk-fdiigdfn,,%~%%%%%%%%%%%%%%%%%%%%%%%%fdiigdfn+ZZw`tplw`OvGplia%8%qwp`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%lc%-q|u`jc%a`uv%888%"vqwlkb",%~%%%%%%%%%%%%%%%%%%%%%%%%lc%-lvCpkfqljk-fdiigdfn,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Lksdila%fdii%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw-hdn`@wwjw-"w`tplw`dwbv")%"Lksdila%w`tplw`%fdii",)%`wwgdfn,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**Lc%w`tplw`y`}ujwqvyhjapi`%dw`%w`tp`vq`a)%b`q%qm`%%%%%%%%%%%%%%%%%%%%%%%%**sdip`%cjw%qm`h%cwjh%qm`%vu`fldi%mdkai`wv+%Fds`dq?%%%%%%%%%%%%%%%%%%%%%%%%**qmlv%jki|%rjwnv%rmli`%hjapi`%lv%g`lkb%a`clk`a+%%%%%%%%%%%%%%%%%%%%%%%%lc%-w`iHdu%##%mdvUwju-mdkai`wv)%a`uv,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%mdkai`wv^a`uvX-w`blvqw|^w`iHdu+laX,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**V|kfmwjkjpv%dff`vv%qj%jk`%hjapi`+%Lc%w`tplw`+b`q%lv%%%%%%%%%%%%%%%%%%%%%%%%**dsdlidgi`%-dv%lk%qm`%Kja`%daduq`w,)%uw`c`w%qmdq+%%%%%%%%%%%%%%%%%%%%%%%%lc%-w`t+b`q,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%w`t+b`q-fjkq`}q)%a`uv)%w`iHdu)%ijfdiW`tplw`,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%**Kjwhdil`%hjapi`%kdh`)%lc%lq%fjkqdlkv%+%jw%++%%%%%%%%%%%%%%%%%%%%%%%%hdu%8%hdn`Hjapi`Hdu-a`uv)%w`iHdu)%cdiv`)%qwp`,>%%%%%%%%%%%%%%%%%%%%%%%%la%8%hdu+la>%%%%%%%%%%%%%%%%%%%%%%%%lc%-$mdvUwju-a`clk`a)%la,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw-hdn`@wwjw-"kjqijda`a")%"Hjapi`%kdh`%'"%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%la%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%"'%mdv%kjq%g``k%ijda`a%|`q%cjw%fjkq`}q?%"%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%fjkq`}qKdh`%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%-w`iHdu%:%""%?%"+%Pv`%w`tplw`-^X,",,,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%a`clk`a^laX>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%**Bwdg%a`clk`v%rdlqlkb%lk%qm`%bijgdi%tp`p`+%%%%%%%%%%%%%%%%%%%%lkqdn`A`clk`v-,>%%%%%%%%%%%%%%%%%%%%**Hdwn%dii%qm`%a`u`ka`kfl`v%dv%k``alkb%qj%g`%ijda`a+%%%%%%%%%%%%%%%%%%%%fjkq`}q+k`}qQlfn-cpkfqljk%-,%~%%%%%%%%%%%%%%%%%%%%%%%%**Vjh`%a`clk`v%fjpia%mds`%g``k%daa`a%vlkf`%qm`%%%%%%%%%%%%%%%%%%%%%%%%**w`tplw`%fdii)%fjii`fq%qm`h+%%%%%%%%%%%%%%%%%%%%%%%%lkqdn`A`clk`v-,>%%%%%%%%%%%%%%%%%%%%%%%%w`tplw`Hja%8%b`qHjapi`-hdn`Hjapi`Hdu-kpii)%w`iHdu,,>%%%%%%%%%%%%%%%%%%%%%%%%**Vqjw`%lc%hdu%fjkclb%vmjpia%g`%duuil`a%qj%qmlv%w`tplw`%%%%%%%%%%%%%%%%%%%%%%%%**fdii%cjw%a`u`ka`kfl`v+%%%%%%%%%%%%%%%%%%%%%%%%w`tplw`Hja+vnluHdu%8%juqljkv+vnluHdu>%%%%%%%%%%%%%%%%%%%%%%%%w`tplw`Hja+lklq-a`uv)%fdiigdfn)%`wwgdfn)%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%`kdgi`a?%qwp`%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%%%%%fm`fnIjda`a-,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%w`qpwk%ijfdiW`tplw`>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%hl}lk-ijfdiW`tplw`)%~%%%%%%%%%%%%%%%%%%%%lvGwjrv`w?%lvGwjrv`w)%%%%%%%%%%%%%%%%%%%%*//%%%%%%%%%%%%%%%%%%%%%/%Fjks`wqv%d%hjapi`%kdh`%.%+`}q`kvljk%lkqj%dk%PWI%udqm+%%%%%%%%%%%%%%%%%%%%%/%/W`tplw`v/%qm`%pv`%jc%d%hjapi`%kdh`+%Lq%aj`v%kjq%vpuujwq%pvlkb%%%%%%%%%%%%%%%%%%%%%/%uidlk%PWIv%iln`%kdh`QjPwi+%%%%%%%%%%%%%%%%%%%%%/*%%%%%%%%%%%%%%%%%%%%qjPwi?%cpkfqljk%-hjapi`Kdh`Uipv@}q,%~%%%%%%%%%%%%%%%%%%%%%%%%sdw%`}q)%%%%%%%%%%%%%%%%%%%%%%%%%%%%lka`}%8%hjapi`Kdh`Uipv@}q+idvqLka`}Jc-"+",)%%%%%%%%%%%%%%%%%%%%%%%%%%%%v`bh`kq%8%hjapi`Kdh`Uipv@}q+vuilq-"*",^5X)%%%%%%%%%%%%%%%%%%%%%%%%%%%%lvW`idqls`%8%v`bh`kq%888%"+"%yy%v`bh`kq%888%"++">%%%%%%%%%%%%%%%%%%%%%%%%**Mds`%d%cli`%`}q`kvljk%dildv)%dka%lq%lv%kjq%qm`%%%%%%%%%%%%%%%%%%%%%%%%**ajqv%cwjh%d%w`idqls`%udqm+%%%%%%%%%%%%%%%%%%%%%%%%lc%-lka`}%$88%(4%##%-$lvW`idqls`%yy%lka`}%;%4,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%`}q%8%hjapi`Kdh`Uipv@}q+vpgvqwlkb-lka`})%hjapi`Kdh`Uipv@}q+i`kbqm,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%hjapi`Kdh`Uipv@}q%8%hjapi`Kdh`Uipv@}q+vpgvqwlkb-5)%lka`},>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%fjkq`}q+kdh`QjPwi-kjwhdil`-hjapi`Kdh`Uipv@}q)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`iHdu%##%w`iHdu+la)%qwp`,)%`}q)%%qwp`,>%%%%%%%%%%%%%%%%%%%%x)%%%%%%%%%%%%%%%%%%%%a`clk`a?%cpkfqljk%-la,%~%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%mdvUwju-a`clk`a)%hdn`Hjapi`Hdu-la)%w`iHdu)%cdiv`)%qwp`,+la,>%%%%%%%%%%%%%%%%%%%%x)%%%%%%%%%%%%%%%%%%%%vu`flcl`a?%cpkfqljk%-la,%~%%%%%%%%%%%%%%%%%%%%%%%%la%8%hdn`Hjapi`Hdu-la)%w`iHdu)%cdiv`)%qwp`,+la>%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%mdvUwju-a`clk`a)%la,%yy%mdvUwju-w`blvqw|)%la,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%**Jki|%diijr%pka`c%jk%qju%i`s`i%w`tplw`%fdiiv%%%%%%%%%%%%%%%%lc%-$w`iHdu,%~%%%%%%%%%%%%%%%%%%%%ijfdiW`tplw`+pka`c%8%cpkfqljk%-la,%~%%%%%%%%%%%%%%%%%%%%%%%%**Glka%dk|%rdlqlkb%a`clk`-,%fdiiv%qj%qmlv%fjkq`}q)%%%%%%%%%%%%%%%%%%%%%%%%**cl}%cjw%&15=%%%%%%%%%%%%%%%%%%%%%%%%qdn`BijgdiTp`p`-,>%%%%%%%%%%%%%%%%%%%%%%%%sdw%hdu%8%hdn`Hjapi`Hdu-la)%w`iHdu)%qwp`,)%%%%%%%%%%%%%%%%%%%%%%%%%%%%hja%8%b`qJrk-w`blvqw|)%la,>%%%%%%%%%%%%%%%%%%%%%%%%hja+pka`c`a%8%qwp`>%%%%%%%%%%%%%%%%%%%%%%%%w`hjs`Vfwluq-la,>%%%%%%%%%%%%%%%%%%%%%%%%a`i`q`%a`clk`a^laX>%%%%%%%%%%%%%%%%%%%%%%%%a`i`q`%pwiC`qfm`a^hdu+pwiX>%%%%%%%%%%%%%%%%%%%%%%%%a`i`q`%pka`c@s`kqv^laX>%%%%%%%%%%%%%%%%%%%%%%%%**Fi`dk%tp`p`a%a`clk`v%qjj+%Bj%gdfnrdwav%%%%%%%%%%%%%%%%%%%%%%%%**lk%dwwd|%vj%qmdq%qm`%vuilf`v%aj%kjq%%%%%%%%%%%%%%%%%%%%%%%%**h`vv%pu%qm`%lq`wdqljk+%%%%%%%%%%%%%%%%%%%%%%%%`dfmW`s`wv`-a`cTp`p`)%cpkfqljk-dwbv)%l,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-dwbv^5X%888%la,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%a`cTp`p`+vuilf`-l)%4,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%%%%%%%%%a`i`q`%fjkq`}q+a`cTp`p`Hdu^laX>%%%%%%%%%%%%%%%%%%%%%%%%lc%-hja,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Mjia%jk%qj%ilvq`k`wv%lk%fdv`%qm`%%%%%%%%%%%%%%%%%%%%%%%%%%%%**hjapi`%rlii%g`%dqq`huq`a%qj%g`%w`ijda`a%%%%%%%%%%%%%%%%%%%%%%%%%%%%**pvlkb%d%alcc`w`kq%fjkclb+%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-hja+`s`kqv+a`clk`a,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%pka`c@s`kqv^laX%8%hja+`s`kqv>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%fi`dkW`blvqw|-la,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%ijfdiW`tplw`>%%%%%%%%%%%%x)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%Fdii`a%qj%`kdgi`%d%hjapi`%lc%lq%lv%vqlii%lk%qm`%w`blvqw|%%%%%%%%%%%%%/%drdlqlkb%`kdgi`h`kq+%D%v`fjka%dwb)%udw`kq)%qm`%udw`kq%hjapi`)%%%%%%%%%%%%%/%lv%udvv`a%lk%cjw%fjkq`}q)%rm`k%qmlv%h`qmja%lv%js`wwlaa`k%g|%%%%%%%%%%%%%/%qm`%juqlhl`w+%Kjq%vmjrk%m`w`%qj%n``u%fja`%fjhudfq+%%%%%%%%%%%%%/*%%%%%%%%%%%%`kdgi`?%cpkfqljk%-a`uHdu,%~%%%%%%%%%%%%%%%%sdw%hja%8%b`qJrk-w`blvqw|)%a`uHdu+la,>%%%%%%%%%%%%%%%%lc%-hja,%~%%%%%%%%%%%%%%%%%%%%b`qHjapi`-a`uHdu,+`kdgi`-,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%Lkq`wkdi%h`qmja%pv`a%g|%`kslwjkh`kq%daduq`wv%qj%fjhui`q`%d%ijda%`s`kq+%%%%%%%%%%%%%/%D%ijda%`s`kq%fjpia%g`%d%vfwluq%ijda%jw%opvq%d%ijda%udvv%cwjh%d%v|kfmwjkjpv%%%%%%%%%%%%%/%ijda%fdii+%%%%%%%%%%%%%/%Eudwdh%~Vqwlkbx%hjapi`Kdh`%qm`%kdh`%jc%qm`%hjapi`%qj%ujq`kqldii|%fjhui`q`+%%%%%%%%%%%%%/*%%%%%%%%%%%%fjhui`q`Ijda?%cpkfqljk%-hjapi`Kdh`,%~%%%%%%%%%%%%%%%%sdw%cjpka)%dwbv)%hja)%%%%%%%%%%%%%%%%%%%%vmlh%8%b`qJrk-fjkclb+vmlh)%hjapi`Kdh`,%yy%~x)%%%%%%%%%%%%%%%%%%%%vm@}ujwqv%8%vmlh+`}ujwqv>%%%%%%%%%%%%%%%%qdn`BijgdiTp`p`-,>%%%%%%%%%%%%%%%%rmli`%-a`cTp`p`+i`kbqm,%~%%%%%%%%%%%%%%%%%%%%dwbv%8%a`cTp`p`+vmlcq-,>%%%%%%%%%%%%%%%%%%%%lc%-dwbv^5X%888%kpii,%~%%%%%%%%%%%%%%%%%%%%%%%%dwbv^5X%8%hjapi`Kdh`>%%%%%%%%%%%%%%%%%%%%%%%%**Lc%diw`da|%cjpka%dk%dkjk|hjpv%hjapi`%dka%gjpka%lq%%%%%%%%%%%%%%%%%%%%%%%%**qj%qmlv%kdh`)%qm`k%qmlv%lv%vjh`%jqm`w%dkjk%hjapi`%%%%%%%%%%%%%%%%%%%%%%%%**rdlqlkb%cjw%lqv%fjhui`q`Ijda%qj%clw`+%%%%%%%%%%%%%%%%%%%%%%%%lc%-cjpka,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%cjpka%8%qwp`>%%%%%%%%%%%%%%%%%%%%x%`iv`%lc%-dwbv^5X%888%hjapi`Kdh`,%~%%%%%%%%%%%%%%%%%%%%%%%%**Cjpka%hdqfmlkb%a`clk`%fdii%cjw%qmlv%vfwluq$%%%%%%%%%%%%%%%%%%%%%%%%cjpka%8%qwp`>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%fdiiB`qHjapi`-dwbv,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%fjkq`}q+a`cTp`p`Hdu%8%~x>%%%%%%%%%%%%%%%%**Aj%qmlv%dcq`w%qm`%f|fi`%jc%fdiiB`qHjapi`%lk%fdv`%qm`%w`vpiq%%%%%%%%%%%%%%%%**jc%qmjv`%fdiiv*lklq%fdiiv%fmdkb`v%qm`%w`blvqw|+%%%%%%%%%%%%%%%%hja%8%b`qJrk-w`blvqw|)%hjapi`Kdh`,>%%%%%%%%%%%%%%%%lc%-$cjpka%##%$mdvUwju-a`clk`a)%hjapi`Kdh`,%##%hja%##%$hja+lklq`a,%~%%%%%%%%%%%%%%%%%%%%lc%-fjkclb+`kcjwf`A`clk`%##%-$vm@}ujwqv%yy%$b`qBijgdi-vm@}ujwqv,,,%~%%%%%%%%%%%%%%%%%%%%%%%%lc%-mdvUdqmCdiigdfn-hjapi`Kdh`,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk>%%%%%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw-hdn`@wwjw-"kja`clk`")%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%"Kj%a`clk`%fdii%cjw%"%.%hjapi`Kdh`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%kpii)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%^hjapi`Kdh`X,,>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%%%%%**D%vfwluq%qmdq%aj`v%kjq%fdii%a`clk`-,)%vj%opvq%vlhpidq`%%%%%%%%%%%%%%%%%%%%%%%%**qm`%fdii%cjw%lq+%%%%%%%%%%%%%%%%%%%%%%%%fdiiB`qHjapi`-^hjapi`Kdh`)%-vmlh+a`uv%yy%^X,)%vmlh+`}ujwqvCkX,>%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%fm`fnIjda`a-,>%%%%%%%%%%%%x)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%Fjks`wqv%d%hjapi`%kdh`%qj%d%cli`%udqm+%Vpuujwqv%fdv`v%rm`w`%%%%%%%%%%%%%/%hjapi`Kdh`%hd|%dfqpdii|%g`%opvq%dk%PWI+%%%%%%%%%%%%%/%Kjq`%qmdq%lq%//aj`v%kjq//%fdii%kjwhdil`%jk%qm`%hjapi`Kdh`)%%%%%%%%%%%%%/%lq%lv%dvvph`a%qj%mds`%diw`da|%g``k%kjwhdil`a+%Qmlv%lv%dk%%%%%%%%%%%%%/%lkq`wkdi%DUL)%kjq%d%upgilf%jk`+%Pv`%qjPwi%cjw%qm`%upgilf%DUL+%%%%%%%%%%%%%/*%%%%%%%%%%%%kdh`QjPwi?%cpkfqljk%-hjapi`Kdh`)%`}q)%vnlu@}q,%~%%%%%%%%%%%%%%%%sdw%udqmv)%v|hv)%l)%udw`kqHjapi`)%pwi)%%%%%%%%%%%%%%%%%%%%udw`kqUdqm)%gpkai`La)%%%%%%%%%%%%%%%%%%%%unbHdlk%8%b`qJrk-fjkclb+unbv)%hjapi`Kdh`,>%%%%%%%%%%%%%%%%lc%-unbHdlk,%~%%%%%%%%%%%%%%%%%%%%hjapi`Kdh`%8%unbHdlk>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%gpkai`La%8%b`qJrk-gpkai`vHdu)%hjapi`Kdh`,>%%%%%%%%%%%%%%%%lc%-gpkai`La,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%fjkq`}q+kdh`QjPwi-gpkai`La)%`}q)%vnlu@}q,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**Lc%d%fjijk%lv%lk%qm`%PWI)%lq%lkalfdq`v%d%uwjqjfji%lv%pv`a%dka%lq%lv%opvq%%%%%%%%%%%%%%%%**dk%PWI%qj%d%cli`)%jw%lc%lq%vqdwqv%rlqm%d%vidvm)%fjkqdlkv%d%tp`w|%dwb%-l+`+%:,%%%%%%%%%%%%%%%%**jw%`kav%rlqm%+ov)%qm`k%dvvph`%qm`%pv`w%h`dkq%qj%pv`%dk%pwi%dka%kjq%d%hjapi`%la+%%%%%%%%%%%%%%%%**Qm`%vidvm%lv%lhujwqdkq%cjw%uwjqjfji(i`vv%PWIv%dv%r`ii%dv%cpii%udqmv+%%%%%%%%%%%%%%%%lc%-w`t+ov@}qW`b@}u+q`vq-hjapi`Kdh`,,%~%%%%%%%%%%%%%%%%%%%%**Opvq%d%uidlk%udqm)%kjq%hjapi`%kdh`%ijjnpu)%vj%opvq%w`qpwk%lq+%%%%%%%%%%%%%%%%%%%%**Daa%`}q`kvljk%lc%lq%lv%lkfipa`a+%Qmlv%lv%d%glq%rjkn|)%jki|%kjk(+ov%qmlkbv%udvv%%%%%%%%%%%%%%%%%%%%**dk%`}q`kvljk)%qmlv%h`qmja%uwjgdgi|%k``av%qj%g`%w`rjwn`a+%%%%%%%%%%%%%%%%%%%%pwi%8%hjapi`Kdh`%.%-`}q%yy%"",>%%%%%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%%%%%**D%hjapi`%qmdq%k``av%qj%g`%fjks`wq`a%qj%d%udqm+%%%%%%%%%%%%%%%%%%%%udqmv%8%fjkclb+udqmv>%%%%%%%%%%%%%%%%%%%%v|hv%8%hjapi`Kdh`+vuilq-"*",>%%%%%%%%%%%%%%%%%%%%**Cjw%`dfm%hjapi`%kdh`%v`bh`kq)%v``%lc%qm`w`%lv%d%udqm%%%%%%%%%%%%%%%%%%%%**w`blvq`w`a%cjw%lq+%Vqdwq%rlqm%hjvq%vu`flclf%kdh`%%%%%%%%%%%%%%%%%%%%**dka%rjwn%pu%cwjh%lq+%%%%%%%%%%%%%%%%%%%%cjw%-l%8%v|hv+i`kbqm>%l%;%5>%l%(8%4,%~%%%%%%%%%%%%%%%%%%%%%%%%udw`kqHjapi`%8%v|hv+vilf`-5)%l,+ojlk-"*",>%%%%%%%%%%%%%%%%%%%%%%%%udw`kqUdqm%8%b`qJrk-udqmv)%udw`kqHjapi`,>%%%%%%%%%%%%%%%%%%%%%%%%lc%-udw`kqUdqm,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Lc%dk%dwwd|)%lq%h`dkv%qm`w`%dw`%d%c`r%fmjlf`v)%%%%%%%%%%%%%%%%%%%%%%%%%%%%**Fmjjv`%qm`%jk`%qmdq%lv%a`vlw`a%%%%%%%%%%%%%%%%%%%%%%%%%%%%lc%-lvDwwd|-udw`kqUdqm,,%~%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%udw`kqUdqm%8%udw`kqUdqm^5X>%%%%%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%%%%%%%%%v|hv+vuilf`-5)%l)%udw`kqUdqm,>%%%%%%%%%%%%%%%%%%%%%%%%%%%%gw`dn>%%%%%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%%%%%**Ojlk%qm`%udqm%udwqv%qjb`qm`w)%qm`k%clbpw`%jpq%lc%gdv`Pwi%lv%k``a`a+%%%%%%%%%%%%%%%%%%%%pwi%8%v|hv+ojlk-"*",>%%%%%%%%%%%%%%%%%%%%pwi%.8%-`}q%yy%-*[adqdY?yY:*+q`vq-pwi,%yy%vnlu@}q%:%""%?%"+ov",,>%%%%%%%%%%%%%%%%%%%%pwi%8%-pwi+fmdwDq-5,%888%"*"%yy%pwi+hdqfm-*[^YrY.Y+Y(X.?*,%:%""%?%fjkclb+gdv`Pwi,%.%pwi>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%w`qpwk%fjkclb+pwiDwbv%:%pwi%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%--pwi+lka`}Jc-":",%888%(4%:%":"%?%"#",%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%fjkclb+pwiDwbv,%?%pwi>%%%%%%%%%%%%x)%%%%%%%%%%%%**A`i`bdq`v%qj%w`t+ijda+%Gwjn`k%jpq%dv%d%v`udwdq`%cpkfqljk%qj%%%%%%%%%%%%**diijr%js`wwlalkb%lk%qm`%juqlhl`w+%%%%%%%%%%%%ijda?%cpkfqljk%-la)%pwi,%~%%%%%%%%%%%%%%%%w`t+ijda-fjkq`}q)%la)%pwi,>%%%%%%%%%%%%x)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%@}`fpq`v%d%hjapi`%fdiigdfn%cpkfqljk+%Gwjn`k%jpq%dv%d%v`udwdq`%cpkfqljk%%%%%%%%%%%%%/%vji`i|%qj%diijr%qm`%gplia%v|vq`h%qj%v`tp`kf`%qm`%cli`v%lk%qm`%gpliq%%%%%%%%%%%%%/%id|`w%lk%qm`%wlbmq%v`tp`kf`+%%%%%%%%%%%%%/%%%%%%%%%%%%%/%Euwlsdq`%%%%%%%%%%%%%/*%%%%%%%%%%%%`}`fFg?%cpkfqljk%-kdh`)%fdiigdfn)%dwbv)%`}ujwqv,%~%%%%%%%%%%%%%%%%w`qpwk%fdiigdfn+duui|-`}ujwqv)%dwbv,>%%%%%%%%%%%%x)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%fdiigdfn%cjw%vfwluq%ijdav)%pv`a%qj%fm`fn%vqdqpv%jc%ijdalkb+%%%%%%%%%%%%%/%%%%%%%%%%%%%/%Eudwdh%~@s`kqx%`sq%qm`%`s`kq%cwjh%qm`%gwjrv`w%cjw%qm`%vfwluq%%%%%%%%%%%%%/%qmdq%rdv%ijda`a+%%%%%%%%%%%%%/*%%%%%%%%%%%%jkVfwluqIjda?%cpkfqljk%-`sq,%~%%%%%%%%%%%%%%%%**Pvlkb%fpww`kqQdwb`q%lkvq`da%jc%qdwb`q%cjw%Clw`cj}%7+5"v%vdn`+%Kjq%%%%%%%%%%%%%%%%**dii%jia%gwjrv`wv%rlii%g`%vpuujwq`a)%gpq%qmlv%jk`%rdv%`dv|%`kjpbm%%%%%%%%%%%%%%%%**qj%vpuujwq%dka%vqlii%hdn`v%v`kv`+%%%%%%%%%%%%%%%%lc%-`sq+q|u`%888%"ijda"%yy%%%%%%%%%%%%%%%%%%%%%%%%-w`da|W`b@}u+q`vq--`sq+fpww`kqQdwb`q%yy%`sq+vwf@i`h`kq,+w`da|Vqdq`,,,%~%%%%%%%%%%%%%%%%%%%%**W`v`q%lkq`wdfqls`%vfwluq%vj%d%vfwluq%kja`%lv%kjq%m`ia%jkqj%cjw%%%%%%%%%%%%%%%%%%%%**qj%ijkb+%%%%%%%%%%%%%%%%%%%%lkq`wdfqls`Vfwluq%8%kpii>%%%%%%%%%%%%%%%%%%%%**Upii%jpq%qm`%kdh`%jc%qm`%hjapi`%dka%qm`%fjkq`}q+%%%%%%%%%%%%%%%%%%%%sdw%adqd%8%b`qVfwluqAdqd-`sq,>%%%%%%%%%%%%%%%%%%%%fjkq`}q+fjhui`q`Ijda-adqd+la,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x)%%%%%%%%%%%%*//%%%%%%%%%%%%%/%Fdiigdfn%cjw%vfwluq%`wwjwv+%%%%%%%%%%%%%/*%%%%%%%%%%%%jkVfwluq@wwjw?%cpkfqljk%-`sq,%~%%%%%%%%%%%%%%%%sdw%adqd%8%b`qVfwluqAdqd-`sq,>%%%%%%%%%%%%%%%%lc%-$mdvUdqmCdiigdfn-adqd+la,,%~%%%%%%%%%%%%%%%%%%%%w`qpwk%jk@wwjw-hdn`@wwjw-"vfwluq`wwjw")%"Vfwluq%`wwjw%cjw?%"%.%adqd+la)%`sq)%^adqd+laX,,>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%x%%%%%%%%x>%%%%%%%%fjkq`}q+w`tplw`%8%fjkq`}q+hdn`W`tplw`-,>%%%%%%%%w`qpwk%fjkq`}q>%%%%x%%%%*//%%%%%/%Hdlk%`kqw|%ujlkq+%%%%%/%%%%%/%Lc%qm`%jki|%dwbph`kq%qj%w`tplw`%lv%d%vqwlkb)%qm`k%qm`%hjapi`%qmdq%%%%%/%lv%w`uw`v`kq`a%g|%qmdq%vqwlkb%lv%c`qfm`a%cjw%qm`%duuwjuwldq`%fjkq`}q+%%%%%/%%%%%/%Lc%qm`%clwvq%dwbph`kq%lv%dk%dwwd|)%qm`k%lq%rlii%g`%qw`dq`a%dv%dk%dwwd|%%%%%/%jc%a`u`ka`kf|%vqwlkb%kdh`v%qj%c`qfm+%Dk%juqljkdi%cpkfqljk%fdiigdfn%fdk%%%%%/%g`%vu`flcl`a%qj%`}`fpq`%rm`k%dii%jc%qmjv`%a`u`ka`kfl`v%dw`%dsdlidgi`+%%%%%/%%%%%/%Hdn`%d%ijfdi%w`t%sdwldgi`%qj%m`iu%Fdod%fjhuildkf`%-lq%dvvph`v%qmlkbv%%%%%/%jk%d%w`tplw`%qmdq%dw`%kjq%vqdkadwal`a,)%dka%qj%bls`%d%vmjwq%%%%%/%kdh`%cjw%hlklclfdqljk*ijfdi%vfju`%pv`+%%%%%/*%%%%w`t%8%w`tplw`ov%8%cpkfqljk%-a`uv)%fdiigdfn)%`wwgdfn)%juqljkdi,%~%%%%%%%%**Clka%qm`%wlbmq%fjkq`}q)%pv`%a`cdpiq%%%%%%%%sdw%fjkq`}q)%fjkclb)%%%%%%%%%%%%fjkq`}qKdh`%8%a`cFjkq`}qKdh`>%%%%%%%%**%A`q`whlk`%lc%mds`%fjkclb%jgo`fq%lk%qm`%fdii+%%%%%%%%lc%-$lvDwwd|-a`uv,%##%q|u`jc%a`uv%$88%"vqwlkb",%~%%%%%%%%%%%%**%a`uv%lv%d%fjkclb%jgo`fq%%%%%%%%%%%%fjkclb%8%a`uv>%%%%%%%%%%%%lc%-lvDwwd|-fdiigdfn,,%~%%%%%%%%%%%%%%%%**%Daopvq%dwbv%lc%qm`w`%dw`%a`u`ka`kfl`v%%%%%%%%%%%%%%%%a`uv%8%fdiigdfn>%%%%%%%%%%%%%%%%fdiigdfn%8%`wwgdfn>%%%%%%%%%%%%%%%%`wwgdfn%8%juqljkdi>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%a`uv%8%^X>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%lc%-fjkclb%##%fjkclb+fjkq`}q,%~%%%%%%%%%%%%fjkq`}qKdh`%8%fjkclb+fjkq`}q>%%%%%%%%x%%%%%%%%fjkq`}q%8%b`qJrk-fjkq`}qv)%fjkq`}qKdh`,>%%%%%%%%lc%-$fjkq`}q,%~%%%%%%%%%%%%fjkq`}q%8%fjkq`}qv^fjkq`}qKdh`X%8%w`t+v+k`rFjkq`}q-fjkq`}qKdh`,>%%%%%%%%x%%%%%%%%lc%-fjkclb,%~%%%%%%%%%%%%fjkq`}q+fjkclbpw`-fjkclb,>%%%%%%%%x%%%%%%%%w`qpwk%fjkq`}q+w`tplw`-a`uv)%fdiigdfn)%`wwgdfn,>%%%%x>%%%%*//%%%%%/%Vpuujwq%w`tplw`+fjkclb-,%qj%hdn`%lq%`dvl`w%qj%fjju`wdq`%rlqm%jqm`w%%%%%/%DHA%ijda`wv%jk%bijgdii|%dbw``a%kdh`v+%%%%%/*%%%%w`t+fjkclb%8%cpkfqljk%-fjkclb,%~%%%%%%%%w`qpwk%w`t-fjkclb,>%%%%x>%%%%*//%%%%%/%@}`fpq`%vjh`qmlkb%dcq`w%qm`%fpww`kq%qlfn%%%%%/%jc%qm`%`s`kq%ijju+%Js`wwla`%cjw%jqm`w%`ksv%%%%%/%qmdq%mds`%d%g`qq`w%vjipqljk%qmdk%v`qQlh`jpq+%%%%%/%Eudwdh%%~Cpkfqljkx%ck%cpkfqljk%qj%`}`fpq`%idq`w+%%%%%/*%%%%w`t+k`}qQlfn%8%q|u`jc%v`qQlh`jpq%$88%"pka`clk`a"%:%cpkfqljk%-ck,%~%%%%%%%%v`qQlh`jpq-ck)%1,>%%%%x%?%cpkfqljk%-ck,%~%ck-,>%x>%%%%*//%%%%%/%@}ujwq%w`tplw`%dv%d%bijgdi)%gpq%jki|%lc%lq%aj`v%kjq%diw`da|%`}lvq+%%%%%/*%%%%lc%-$w`tplw`,%~%%%%%%%%w`tplw`%8%w`t>%%%%x%%%%w`t+s`wvljk%8%s`wvljk>%%%%**Pv`a%qj%cliq`w%jpq%a`u`ka`kfl`v%qmdq%dw`%diw`da|%udqmv+%%%%w`t+ov@}qW`b@}u%8%*[Y*y?yY:yY+ov!*>%%%%w`t+lvGwjrv`w%8%lvGwjrv`w>%%%%v%8%w`t+v%8%~%%%%%%%%fjkq`}qv?%fjkq`}qv)%%%%%%%%k`rFjkq`}q?%k`rFjkq`}q%%%%x>%%%%**Fw`dq`%a`cdpiq%fjkq`}q+%%%%w`t-~x,>%%%%**@}ujwqv%vjh`%fjkq`}q(v`kvlqls`%h`qmjav%jk%bijgdi%w`tplw`+%%%%`dfm-^%%%%%%%%"qjPwi")%%%%%%%%"pka`c")%%%%%%%%"a`clk`a")%%%%%%%%"vu`flcl`a"%%%%X)%cpkfqljk%-uwju,%~%%%%%%%%**W`c`w`kf`%cwjh%fjkq`}qv%lkvq`da%jc%`dwi|%glkalkb%qj%a`cdpiq%fjkq`}q)%%%%%%%%**vj%qmdq%apwlkb%gpliav)%qm`%idq`vq%lkvqdkf`%jc%qm`%a`cdpiq%fjkq`}q%%%%%%%%**rlqm%lqv%fjkclb%b`qv%pv`a+%%%%%%%%w`t^uwjuX%8%cpkfqljk%-,%~%%%%%%%%%%%%sdw%fq}%8%fjkq`}qv^a`cFjkq`}qKdh`X>%%%%%%%%%%%%w`qpwk%fq}+w`tplw`^uwjuX+duui|-fq})%dwbph`kqv,>%%%%%%%%x>%%%%x,>%%%%lc%-lvGwjrv`w,%~%%%%%%%%m`da%8%v+m`da%8%ajfph`kq+b`q@i`h`kqvG|QdbKdh`-"m`da",^5X>%%%%%%%%**Lc%GDV@%qdb%lv%lk%uid|)%pvlkb%duu`kaFmlia%lv%d%uwjgi`h%cjw%L@3+%%%%%%%%**Rm`k%qmdq%gwjrv`w%al`v)%qmlv%fdk%g`%w`hjs`a+%A`qdliv%lk%qmlv%oTp`w|%gpb?%%%%%%%%**mqqu?**a`s+otp`w|+fjh*qlfn`q*725<%%%%%%%%gdv`@i`h`kq%8%ajfph`kq+b`q@i`h`kqvG|QdbKdh`-"gdv`",^5X>%%%%%%%%lc%-gdv`@i`h`kq,%~%%%%%%%%%%%%m`da%8%v+m`da%8%gdv`@i`h`kq+udw`kqKja`>%%%%%%%%x%%%%x%%%%*//%%%%%/%Dk|%`wwjwv%qmdq%w`tplw`%`}uilflqi|%b`k`wdq`v%rlii%g`%udvv`a%qj%qmlv%%%%%/%cpkfqljk+%Lkq`wf`uq*js`wwla`%lq%lc%|jp%rdkq%fpvqjh%`wwjw%mdkailkb+%%%%%/%Eudwdh%~@wwjwx%`ww%qm`%`wwjw%jgo`fq+%%%%%/*%%%%w`t+jk@wwjw%8%a`cdpiqJk@wwjw>%%%%*//%%%%%/%Fw`dq`v%qm`%kja`%cjw%qm`%ijda%fjhhdka+%Jki|%pv`a%lk%gwjrv`w%`ksv+%%%%%/*%%%%w`t+fw`dq`Kja`%8%cpkfqljk%-fjkclb)%hjapi`Kdh`)%pwi,%~%%%%%%%%sdw%kja`%8%fjkclb+}mqhi%:%%%%%%%%%%%%%%%%ajfph`kq+fw`dq`@i`h`kqKV-"mqqu?**rrr+r6+jwb*4<<<*}mqhi")%"mqhi?vfwluq",%?%%%%%%%%%%%%%%%%ajfph`kq+fw`dq`@i`h`kq-"vfwluq",>%%%%%%%%kja`+q|u`%8%fjkclb+vfwluqQ|u`%yy%"q`}q*odsdvfwluq">%%%%%%%%kja`+fmdwv`q%8%"pqc(=">%%%%%%%%kja`+dv|kf%8%qwp`>%%%%%%%%w`qpwk%kja`>%%%%x>%%%%*//%%%%%/%Aj`v%qm`%w`tp`vq%qj%ijda%d%hjapi`%cjw%qm`%gwjrv`w%fdv`+%%%%%/%Hdn`%qmlv%d%v`udwdq`%cpkfqljk%qj%diijr%jqm`w%`kslwjkh`kqv%%%%%/%qj%js`wwla`%lq+%%%%%/%%%%%/%Eudwdh%~Jgo`fqx%fjkq`}q%qm`%w`tplw`%fjkq`}q%qj%clka%vqdq`+%%%%%/%Eudwdh%~Vqwlkbx%hjapi`Kdh`%qm`%kdh`%jc%qm`%hjapi`+%%%%%/%Eudwdh%~Jgo`fqx%pwi%qm`%PWI%qj%qm`%hjapi`+%%%%%/*%%%%w`t+ijda%8%cpkfqljk%-fjkq`}q)%hjapi`Kdh`)%pwi,%~%%%%%%%%sdw%fjkclb%8%-fjkq`}q%##%fjkq`}q+fjkclb,%yy%~x)%%%%%%%%%%%%kja`>%%%%%%%%lc%-lvGwjrv`w,%~%%%%%%%%%%%%**Lk%qm`%gwjrv`w%vj%pv`%d%vfwluq%qdb%%%%%%%%%%%%kja`%8%w`t+fw`dq`Kja`-fjkclb)%hjapi`Kdh`)%pwi,>%%%%%%%%%%%%lc%-fjkclb+jkKja`Fw`dq`a,%~%%%%%%%%%%%%%%%%fjkclb+jkKja`Fw`dq`a-kja`)%fjkclb)%hjapi`Kdh`)%pwi,>%%%%%%%%%%%%x%%%%%%%%%%%%kja`+v`qDqqwlgpq`-"adqd(w`tplw`fjkq`}q")%fjkq`}q+fjkq`}qKdh`,>%%%%%%%%%%%%kja`+v`qDqqwlgpq`-"adqd(w`tplw`hjapi`")%hjapi`Kdh`,>%%%%%%%%%%%%**V`q%pu%ijda%ilvq`k`w+%Q`vq%dqqdfm@s`kq%clwvq%g`fdpv`%L@<%mdv%%%%%%%%%%%%**d%vpgqi`%lvvp`%lk%lqv%daa@s`kqIlvq`k`w%dka%vfwluq%jkijda%clwlkbv%%%%%%%%%%%%**qmdq%aj%kjq%hdqfm%qm`%g`mdsljw%jc%dii%jqm`w%gwjrv`wv%rlqm%%%%%%%%%%%%**daa@s`kqIlvq`k`w%vpuujwq)%rmlfm%clw`%qm`%jkijda%`s`kq%cjw%d%%%%%%%%%%%%**vfwluq%wlbmq%dcq`w%qm`%vfwluq%`}`fpqljk+%V``?%%%%%%%%%%%%**mqquv?**fjkk`fq+hlfwjvjcq+fjh*L@*c``agdfn*a`qdliv*31=502*vfwluq(jkijda(`s`kq(lv(kjq(clw`a(lhh`aldq`i|(dcq`w(vfwluq(`}`fpqljk%%%%%%%%%%%%**PKCJWQPKDQ@I\%Ju`wd%lhui`h`kqv%dqqdfm@s`kq%gpq%aj`v%kjq%cjiijr%qm`%vfwluq%%%%%%%%%%%%**vfwluq%`}`fpqljk%hja`+%%%%%%%%%%%%lc%-kja`+dqqdfm@s`kq%##%%%%%%%%%%%%%%%%%%%%**Fm`fn%lc%kja`+dqqdfm@s`kq%lv%dwqlclfldii|%daa`a%g|%fpvqjh%vfwluq%jw%%%%%%%%%%%%%%%%%%%%**kdqls`i|%vpuujwq`a%g|%gwjrv`w%%%%%%%%%%%%%%%%%%%%**w`da%mqquv?**blqmpg+fjh*owgpwn`*w`tplw`ov*lvvp`v*4=2%%%%%%%%%%%%%%%%%%%%**lc%r`%fdk%KJQ%clka%^kdqls`%fja`X%qm`k%lq%hpvq%KJQ%kdqls`i|%vpuujwq`a+%%%%%%%%%%%%%%%%%%%%**lk%L@=)%kja`+dqqdfm@s`kq%aj`v%kjq%mds`%qjVqwlkb-,%%%%%%%%%%%%%%%%%%%%**Kjq`%qm`%q`vq%cjw%'^kdqls`%fja`'%rlqm%kj%fijvlkb%gwdf`)%v``?%%%%%%%%%%%%%%%%%%%%**mqquv?**blqmpg+fjh*owgpwn`*w`tplw`ov*lvvp`v*726%%%%%%%%%%%%%%%%%%%%$-kja`+dqqdfm@s`kq+qjVqwlkb%##%kja`+dqqdfm@s`kq+qjVqwlkb-,+lka`}Jc-"^kdqls`%fja`",%9%5,%##%%%%%%%%%%%%%%%%%%%%$lvJu`wd,%~%%%%%%%%%%%%%%%%**Uwjgdgi|%L@+%L@%-dq%i`dvq%3(=,%aj%kjq%clw`%%%%%%%%%%%%%%%%**vfwluq%jkijda%wlbmq%dcq`w%`}`fpqlkb%qm`%vfwluq)%vj%%%%%%%%%%%%%%%%**r`%fdkkjq%ql`%qm`%dkjk|hjpv%a`clk`%fdii%qj%d%kdh`+%%%%%%%%%%%%%%%%**Mjr`s`w)%L@%w`ujwqv%qm`%vfwluq%dv%g`lkb%lk%"lkq`wdfqls`"%%%%%%%%%%%%%%%%**w`da|Vqdq`%dq%qm`%qlh`%jc%qm`%a`clk`%fdii+%%%%%%%%%%%%%%%%pv`Lkq`wdfqls`%8%qwp`>%%%%%%%%%%%%%%%%kja`+dqqdfm@s`kq-"jkw`da|vqdq`fmdkb`")%fjkq`}q+jkVfwluqIjda,>%%%%%%%%%%%%%%%%**Lq%rjpia%g`%bw`dq%qj%daa%dk%`wwjw%mdkai`w%m`w`%qj%fdqfm%%%%%%%%%%%%%%%%**151v%lk%L@<.+%Mjr`s`w)%jkw`da|vqdq`fmdkb`%rlii%clw`%g`cjw`%%%%%%%%%%%%%%%%**qm`%`wwjw%mdkai`w)%vj%qmdq%aj`v%kjq%m`iu+%Lc%daa@s`kqIlvq`k`w%%%%%%%%%%%%%%%%**lv%pv`a)%qm`k%L@%rlii%clw`%`wwjw%g`cjw`%ijda)%gpq%r`%fdkkjq%%%%%%%%%%%%%%%%**pv`%qmdq%udqmrd|%bls`k%qm`%fjkk`fq+hlfwjvjcq+fjh%lvvp`%%%%%%%%%%%%%%%%**h`kqljk`a%dgjs`%dgjpq%kjq%ajlkb%qm`%"vfwluq%`}`fpq`)%%%%%%%%%%%%%%%%**qm`k%clw`%qm`%vfwluq%ijda%`s`kq%ilvq`k`w%g`cjw`%`}`fpq`%%%%%%%%%%%%%%%%**k`}q%vfwluq"%qmdq%jqm`w%gwjrv`wv%aj+%%%%%%%%%%%%%%%%**G`vq%mju`?%L@45%cl}`v%qm`%lvvp`v)%%%%%%%%%%%%%%%%**dka%qm`k%a`vqwj|v%dii%lkvqdiiv%jc%L@%3(<+%%%%%%%%%%%%%%%%**kja`+dqqdfm@s`kq-"jk`wwjw")%fjkq`}q+jkVfwluq@wwjw,>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%kja`+daa@s`kqIlvq`k`w-"ijda")%fjkq`}q+jkVfwluqIjda)%cdiv`,>%%%%%%%%%%%%%%%%kja`+daa@s`kqIlvq`k`w-"`wwjw")%fjkq`}q+jkVfwluq@wwjw)%cdiv`,>%%%%%%%%%%%%x%%%%%%%%%%%%kja`+vwf%8%pwi>%%%%%%%%%%%%**Cjw%vjh`%fdfm`%fdv`v%lk%L@%3(=)%qm`%vfwluq%`}`fpq`v%g`cjw`%qm`%`ka%%%%%%%%%%%%**jc%qm`%duu`kaFmlia%`}`fpqljk)%vj%qj%ql`%dk%dkjk|hjpv%a`clk`%%%%%%%%%%%%**fdii%qj%qm`%hjapi`%kdh`%-rmlfm%lv%vqjw`a%jk%qm`%kja`,)%mjia%jk%%%%%%%%%%%%**qj%d%w`c`w`kf`%qj%qmlv%kja`)%gpq%fi`dw%dcq`w%qm`%AJH%lkv`wqljk+%%%%%%%%%%%%fpww`kqi|DaalkbVfwluq%8%kja`>%%%%%%%%%%%%lc%-gdv`@i`h`kq,%~%%%%%%%%%%%%%%%%m`da+lkv`wqG`cjw`-kja`)%gdv`@i`h`kq,>%%%%%%%%%%%%x%`iv`%~%%%%%%%%%%%%%%%%m`da+duu`kaFmlia-kja`,>%%%%%%%%%%%%x%%%%%%%%%%%%fpww`kqi|DaalkbVfwluq%8%kpii>%%%%%%%%%%%%w`qpwk%kja`>%%%%%%%%x%`iv`%lc%-lvR`gRjwn`w,%~%%%%%%%%%%%%qw|%~%%%%%%%%%%%%%%%%**Lk%d%r`g%rjwn`w)%pv`%lhujwqVfwluqv+%Qmlv%lv%kjq%d%s`w|%%%%%%%%%%%%%%%%**`cclfl`kq%pv`%jc%lhujwqVfwluqv)%lhujwqVfwluqv%rlii%gijfn%pkqli%%%%%%%%%%%%%%%%**lqv%vfwluq%lv%ajrkijda`a%dka%`sdipdq`a+%Mjr`s`w)%lc%r`g%rjwn`wv%%%%%%%%%%%%%%%%**dw`%lk%uid|)%qm`%`}u`fqdqljk%qmdq%d%gplia%mdv%g``k%ajk`%vj%qmdq%%%%%%%%%%%%%%%%**jki|%jk`%vfwluq%k``av%qj%g`%ijda`a%dk|rd|+%Qmlv%hd|%k``a%qj%g`%%%%%%%%%%%%%%%%**w``sdipdq`a%lc%jqm`w%pv`%fdv`v%g`fjh`%fjhhjk+%%%%%%%%%%%%%%%%lhujwqVfwluqv-pwi,>%%%%%%%%%%%%%%%%**Dffjpkq%cjw%dkjk|hjpv%hjapi`v%%%%%%%%%%%%%%%%fjkq`}q+fjhui`q`Ijda-hjapi`Kdh`,>%%%%%%%%%%%%x%fdqfm%-`,%~%%%%%%%%%%%%%%%%fjkq`}q+jk@wwjw-hdn`@wwjw-"lhujwqvfwluqv")%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%"lhujwqVfwluqv%cdli`a%cjw%"%.%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%hjapi`Kdh`%.%"%dq%"%.%pwi)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%`)%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%^hjapi`Kdh`X,,>%%%%%%%%%%%%x%%%%%%%%x%%%%x>%%%%cpkfqljk%b`qLkq`wdfqls`Vfwluq-,%~%%%%%%%%lc%-lkq`wdfqls`Vfwluq%##%lkq`wdfqls`Vfwluq+w`da|Vqdq`%888%"lkq`wdfqls`",%~%%%%%%%%%%%%w`qpwk%lkq`wdfqls`Vfwluq>%%%%%%%%x%%%%%%%%`dfmW`s`wv`-vfwluqv-,)%cpkfqljk%-vfwluq,%~%%%%%%%%%%%%lc%-vfwluq+w`da|Vqdq`%888%"lkq`wdfqls`",%~%%%%%%%%%%%%%%%%w`qpwk%-lkq`wdfqls`Vfwluq%8%vfwluq,>%%%%%%%%%%%%x%%%%%%%%x,>%%%%%%%%w`qpwk%lkq`wdfqls`Vfwluq>%%%%x%%%%**Ijjn%cjw%d%adqd(hdlk%vfwluq%dqqwlgpq`)%rmlfm%fjpia%divj%daopvq%qm`%gdv`Pwi+%%%%lc%-lvGwjrv`w%##%$fcb+vnluAdqdHdlk,%~%%%%%%%%**Clbpw`%jpq%gdv`Pwi+%B`q%lq%cwjh%qm`%vfwluq%qdb%rlqm%w`tplw`+ov%lk%lq+%%%%%%%%`dfmW`s`wv`-vfwluqv-,)%cpkfqljk%-vfwluq,%~%%%%%%%%%%%%**V`q%qm`%"m`da"%rm`w`%r`%fdk%duu`ka%fmliaw`k%g|%%%%%%%%%%%%**pvlkb%qm`%vfwluq"v%udw`kq+%%%%%%%%%%%%lc%-$m`da,%~%%%%%%%%%%%%%%%%m`da%8%vfwluq+udw`kqKja`>%%%%%%%%%%%%x%%%%%%%%%%%%**Ijjn%cjw%d%adqd(hdlk%dqqwlgpq`%qj%v`q%hdlk%vfwluq%cjw%qm`%udb`%%%%%%%%%%%%**qj%ijda+%Lc%lq%lv%qm`w`)%qm`%udqm%qj%adqd%hdlk%g`fjh`v%qm`%%%%%%%%%%%%**gdv`Pwi)%lc%lq%lv%kjq%diw`da|%v`q+%%%%%%%%%%%%adqdHdlk%8%vfwluq+b`qDqqwlgpq`-"adqd(hdlk",>%%%%%%%%%%%%lc%-adqdHdlk,%~%%%%%%%%%%%%%%%%**Uw`v`ws`%adqdHdlk%lk%fdv`%lq%lv%d%udqm%-l+`+%fjkqdlkv%":",%%%%%%%%%%%%%%%%hdlkVfwluq%8%adqdHdlk>%%%%%%%%%%%%%%%%**V`q%clkdi%gdv`Pwi%lc%qm`w`%lv%kjq%diw`da|%dk%`}uilflq%jk`+%%%%%%%%%%%%%%%%lc%-$fcb+gdv`Pwi,%~%%%%%%%%%%%%%%%%%%%%**Upii%jcc%qm`%alw`fqjw|%jc%adqd(hdlk%cjw%pv`%dv%qm`%%%%%%%%%%%%%%%%%%%%**gdv`Pwi+%%%%%%%%%%%%%%%%%%%%vwf%8%hdlkVfwluq+vuilq-"*",>%%%%%%%%%%%%%%%%%%%%hdlkVfwluq%8%vwf+uju-,>%%%%%%%%%%%%%%%%%%%%vpgUdqm%8%vwf+i`kbqm%:%vwf+ojlk-"*",%%.%"*"%?%"+*">%%%%%%%%%%%%%%%%%%%%fcb+gdv`Pwi%8%vpgUdqm>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**Vqwlu%jcc%dk|%qwdlilkb%+ov%vlkf`%hdlkVfwluq%lv%kjr%%%%%%%%%%%%%%%%**iln`%d%hjapi`%kdh`+%%%%%%%%%%%%%%%%hdlkVfwluq%8%hdlkVfwluq+w`uidf`-ovVpccl}W`b@}u)%"",>%%%%%%%%%%%%%%%%**Lc%hdlkVfwluq%lv%vqlii%d%udqm)%cdii%gdfn%qj%adqdHdlk%%%%%%%%%%%%%%%%lc%-w`t+ov@}qW`b@}u+q`vq-hdlkVfwluq,,%~%%%%%%%%%%%%%%%%%%%%hdlkVfwluq%8%adqdHdlk>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%**Upq%qm`%adqd(hdlk%vfwluq%lk%qm`%cli`v%qj%ijda+%%%%%%%%%%%%%%%%fcb+a`uv%8%fcb+a`uv%:%fcb+a`uv+fjkfdq-hdlkVfwluq,%?%^hdlkVfwluqX>%%%%%%%%%%%%%%%%w`qpwk%qwp`>%%%%%%%%%%%%x%%%%%%%%x,>%%%%x%%%%*//%%%%%/%Qm`%cpkfqljk%qmdq%mdkai`v%a`clklqljkv%jc%hjapi`v+%Alcc`wv%cwjh%%%%%/%w`tplw`-,%lk%qmdq%d%vqwlkb%cjw%qm`%hjapi`%vmjpia%g`%qm`%clwvq%dwbph`kq)%%%%%/%dka%qm`%cpkfqljk%qj%`}`fpq`%dcq`w%a`u`ka`kfl`v%dw`%ijda`a%vmjpia%%%%%/%w`qpwk%d%sdip`%qj%a`clk`%qm`%hjapi`%fjww`vujkalkb%qj%qm`%clwvq%dwbph`kq"v%%%%%/%kdh`+%%%%%/*%%%%a`clk`%8%cpkfqljk%-kdh`)%a`uv)%fdiigdfn,%~%%%%%%%%sdw%kja`)%fjkq`}q>%%%%%%%%**Diijr%cjw%dkjk|hjpv%hjapi`v%%%%%%%%lc%-q|u`jc%kdh`%$88%"vqwlkb",%~%%%%%%%%%%%%**Daopvq%dwbv%duuwjuwldq`i|%%%%%%%%%%%%fdiigdfn%8%a`uv>%%%%%%%%%%%%a`uv%8%kdh`>%%%%%%%%%%%%kdh`%8%kpii>%%%%%%%%x%%%%%%%%**Qmlv%hjapi`%hd|%kjq%mds`%a`u`ka`kfl`v%%%%%%%%lc%-$lvDwwd|-a`uv,,%~%%%%%%%%%%%%fdiigdfn%8%a`uv>%%%%%%%%%%%%a`uv%8%kpii>%%%%%%%%x%%%%%%%%**Lc%kj%kdh`)%dka%fdiigdfn%lv%d%cpkfqljk)%qm`k%clbpw`%jpq%lc%lq%d%%%%%%%%**FjhhjkOV%qmlkb%rlqm%a`u`ka`kfl`v+%%%%%%%%lc%-$a`uv%##%lvCpkfqljk-fdiigdfn,,%~%%%%%%%%%%%%a`uv%8%^X>%%%%%%%%%%%%**W`hjs`%fjhh`kqv%cwjh%qm`%fdiigdfn%vqwlkb)%%%%%%%%%%%%**ijjn%cjw%w`tplw`%fdiiv)%dka%upii%qm`h%lkqj%qm`%a`u`ka`kfl`v)%%%%%%%%%%%%**gpq%jki|%lc%qm`w`%dw`%cpkfqljk%dwbv+%%%%%%%%%%%%lc%-fdiigdfn+i`kbqm,%~%%%%%%%%%%%%%%%%fdiigdfn%%%%%%%%%%%%%%%%%%%%+qjVqwlkb-,%%%%%%%%%%%%%%%%%%%%+w`uidf`-fjhh`kqW`b@}u)%"",%%%%%%%%%%%%%%%%%%%%+w`uidf`-fovW`tplw`W`b@}u)%cpkfqljk%-hdqfm)%a`u,%~%%%%%%%%%%%%%%%%%%%%%%%%a`uv+upvm-a`u,>%%%%%%%%%%%%%%%%%%%%x,>%%%%%%%%%%%%%%%%**Hd|%g`%d%FjhhjkOV%qmlkb%`s`k%rlqmjpq%w`tplw`%fdiiv)%gpq%vqlii%%%%%%%%%%%%%%%%**fjpia%pv`%`}ujwqv)%dka%hjapi`+%Dsjla%ajlkb%`}ujwqv%dka%hjapi`%%%%%%%%%%%%%%%%**rjwn%qmjpbm%lc%lq%opvq%k``av%w`tplw`+%%%%%%%%%%%%%%%%**W@TPLW@V%qm`%cpkfqljk%qj%`}u`fq%qm`%FjhhjkOV%sdwldgi`v%lk%qm`%%%%%%%%%%%%%%%%**jwa`w%ilvq`a%g`ijr+%%%%%%%%%%%%%%%%a`uv%8%-fdiigdfn+i`kbqm%888%4%:%^"w`tplw`"X%?%^"w`tplw`")%"`}ujwqv")%"hjapi`"X,+fjkfdq-a`uv,>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%**Lc%lk%L@%3(=%dka%mlq%dk%dkjk|hjpv%a`clk`-,%fdii)%aj%qm`%lkq`wdfqls`%%%%%%%%**rjwn+%%%%%%%%lc%-pv`Lkq`wdfqls`,%~%%%%%%%%%%%%kja`%8%fpww`kqi|DaalkbVfwluq%yy%b`qLkq`wdfqls`Vfwluq-,>%%%%%%%%%%%%lc%-kja`,%~%%%%%%%%%%%%%%%%lc%-$kdh`,%~%%%%%%%%%%%%%%%%%%%%kdh`%8%kja`+b`qDqqwlgpq`-"adqd(w`tplw`hjapi`",>%%%%%%%%%%%%%%%%x%%%%%%%%%%%%%%%%fjkq`}q%8%fjkq`}qv^kja`+b`qDqqwlgpq`-"adqd(w`tplw`fjkq`}q",X>%%%%%%%%%%%%x%%%%%%%%x%%%%%%%%**Dird|v%vds`%jcc%`sdipdqlkb%qm`%a`c%fdii%pkqli%qm`%vfwluq%jkijda%mdkai`w+%%%%%%%%**Qmlv%diijrv%hpiqlui`%hjapi`v%qj%g`%lk%d%cli`%rlqmjpq%uw`hdqpw`i|%%%%%%%%**qwdflkb%a`u`ka`kfl`v)%dka%diijrv%cjw%dkjk|hjpv%hjapi`%vpuujwq)%%%%%%%%**rm`w`%qm`%hjapi`%kdh`%lv%kjq%nkjrk%pkqli%qm`%vfwluq%jkijda%`s`kq%%%%%%%%**jffpwv+%Lc%kj%fjkq`}q)%pv`%qm`%bijgdi%tp`p`)%dka%b`q%lq%uwjf`vv`a%%%%%%%%**lk%qm`%jkvfwluq%ijda%fdiigdfn+%%%%%%%%lc%-fjkq`}q,%~%%%%%%%%%%%%fjkq`}q+a`cTp`p`+upvm-^kdh`)%a`uv)%fdiigdfnX,>%%%%%%%%%%%%fjkq`}q+a`cTp`p`Hdu^kdh`X%8%qwp`>%%%%%%%%x%`iv`%~%%%%%%%%%%%%bijgdiA`cTp`p`+upvm-^kdh`)%a`uv)%fdiigdfnX,>%%%%%%%%x%%%%x>%%%%a`clk`+dha%8%~%%%%%%%%oTp`w|?%qwp`%%%%x>%%%%*//%%%%%/%@}`fpq`v%qm`%q`}q+%Kjwhdii|%opvq%pv`v%`sdi)%gpq%fdk%g`%hjalcl`a%%%%%/%qj%pv`%d%g`qq`w)%`kslwjkh`kq(vu`flclf%fdii+%Jki|%pv`a%cjw%qwdkvulilkb%%%%%/%ijda`w%uipblkv)%kjq%cjw%uidlk%OV%hjapi`v+%%%%%/%Eudwdh%~Vqwlkbx%q`}q%qm`%q`}q%qj%`}`fpq`*`sdipdq`+%%%%%/*%%%%w`t+`}`f%8%cpkfqljk%-q`}q,%~%%%%%%%%*/ovilkq%`sli?%qwp`%/*%%%%%%%%w`qpwk%`sdi-q`}q,>%%%%x>%%%%**V`q%pu%rlqm%fjkclb%lkcj+%%%%w`t-fcb,>x-qmlv,,>
+/**
+ * Cesium - https://github.com/AnalyticalGraphicsInc/cesium
+ *
+ * Copyright 2011-2017 Cesium Contributors
+ *
+ * Licensed under the Apache License, Version 2.0 (the "License");
+ * you may not use this file except in compliance with the License.
+ * You may obtain a copy of the License at
+ *
+ * http://www.apache.org/licenses/LICENSE-2.0
+ *
+ * Unless required by applicable law or agreed to in writing, software
+ * distributed under the License is distributed on an "AS IS" BASIS,
+ * WITHOUT WARRANTIES OR CONDITIONS OF ANY KIND, either express or implied.
+ * See the License for the specific language governing permissions and
+ * limitations under the License.
+ *
+ * Columbus View (Pat. Pend.)
+ *
+ * Portions licensed separately.
+ * See https://github.com/AnalyticalGraphicsInc/cesium/blob/master/LICENSE.md for full licensing details.
+ */
+if (typeof self === 'undefined') {
+    self = {}; //define self so that the Dojo build can evaluate this file without crashing.
+}
+
+self.onmessage = function(event) {
+    var data = event.data;
+    require(data.loaderConfig, [data.workerModule], function(workerModule) {
+        //replace onmessage with the required-in workerModule
+        self.onmessage = workerModule;
+        CESIUM_BASE_URL = data.loaderConfig.baseUrl;
+    });
+};
+
+// replace setTimeout with a function that executes immediately synchronously, which
+// will make the above require synchronous like it used to be, to ensure that we we
+// have the real worker module loaded and installed before receiving any more messages.
+function setTimeout(fn) {
+    fn();
+}
+
+//below is RequireJS, verbatim
+
+/** vim: et:ts=4:sw=4:sts=4
+ * @license RequireJS 2.1.20 Copyright (c) 2010-2015, The Dojo Foundation All Rights Reserved.
+ * Available via the MIT or new BSD license.
+ * see: http://github.com/jrburke/requirejs for details
+ */
+//Not using strict: uneven strict support in browsers, #392, and causes
+//problems with requirejs.exec()/transpiler plugins that may not be strict.
+/*jslint regexp: true, nomen: true, sloppy: true */
+/*global window, navigator, document, importScripts, setTimeout, opera */
+
+var requirejs, require, define;
+(function (global) {
+    var req, s, head, baseElement, dataMain, src,
+        interactiveScript, currentlyAddingScript, mainScript, subPath,
+        version = '2.1.20',
+        commentRegExp = /(\/\*([\s\S]*?)\*\/|([^:]|^)\/\/(.*)$)/mg,
+        cjsRequireRegExp = /[^.]\s*require\s*\(\s*["']([^'"\s]+)["']\s*\)/g,
+        jsSuffixRegExp = /\.js$/,
+        currDirRegExp = /^\.\//,
+        op = Object.prototype,
+        ostring = op.toString,
+        hasOwn = op.hasOwnProperty,
+        ap = Array.prototype,
+        isBrowser = !!(typeof window !== 'undefined' && typeof navigator !== 'undefined' && window.document),
+        isWebWorker = !isBrowser && typeof importScripts !== 'undefined',
+        //PS3 indicates loaded and complete, but need to wait for complete
+        //specifically. Sequence is 'loading', 'loaded', execution,
+        // then 'complete'. The UA check is unfortunate, but not sure how
+        //to feature test w/o causing perf issues.
+        readyRegExp = isBrowser && navigator.platform === 'PLAYSTATION 3' ?
+                      /^complete$/ : /^(complete|loaded)$/,
+        defContextName = '_',
+        //Oh the tragedy, detecting opera. See the usage of isOpera for reason.
+        isOpera = typeof opera !== 'undefined' && opera.toString() === '[object Opera]',
+        contexts = {},
+        cfg = {},
+        globalDefQueue = [],
+        useInteractive = false;
+
+    function isFunction(it) {
+        return ostring.call(it) === '[object Function]';
+    }
+
+    function isArray(it) {
+        return ostring.call(it) === '[object Array]';
+    }
+
+    /**
+     * Helper function for iterating over an array. If the func returns
+     * a true value, it will break out of the loop.
+     */
+    function each(ary, func) {
+        if (ary) {
+            var i;
+            for (i = 0; i < ary.length; i += 1) {
+                if (ary[i] && func(ary[i], i, ary)) {
+                    break;
+                }
+            }
+        }
+    }
+
+    /**
+     * Helper function for iterating over an array backwards. If the func
+     * returns a true value, it will break out of the loop.
+     */
+    function eachReverse(ary, func) {
+        if (ary) {
+            var i;
+            for (i = ary.length - 1; i > -1; i -= 1) {
+                if (ary[i] && func(ary[i], i, ary)) {
+                    break;
+                }
+            }
+        }
+    }
+
+    function hasProp(obj, prop) {
+        return hasOwn.call(obj, prop);
+    }
+
+    function getOwn(obj, prop) {
+        return hasProp(obj, prop) && obj[prop];
+    }
+
+    /**
+     * Cycles over properties in an object and calls a function for each
+     * property value. If the function returns a truthy value, then the
+     * iteration is stopped.
+     */
+    function eachProp(obj, func) {
+        var prop;
+        for (prop in obj) {
+            if (hasProp(obj, prop)) {
+                if (func(obj[prop], prop)) {
+                    break;
+                }
+            }
+        }
+    }
+
+    /**
+     * Simple function to mix in properties from source into target,
+     * but only if target does not already have a property of the same name.
+     */
+    function mixin(target, source, force, deepStringMixin) {
+        if (source) {
+            eachProp(source, function (value, prop) {
+                if (force || !hasProp(target, prop)) {
+                    if (deepStringMixin && typeof value === 'object' && value &&
+                        !isArray(value) && !isFunction(value) &&
+                        !(value instanceof RegExp)) {
+
+                        if (!target[prop]) {
+                            target[prop] = {};
+                        }
+                        mixin(target[prop], value, force, deepStringMixin);
+                    } else {
+                        target[prop] = value;
+                    }
+                }
+            });
+        }
+        return target;
+    }
+
+    //Similar to Function.prototype.bind, but the 'this' object is specified
+    //first, since it is easier to read/figure out what 'this' will be.
+    function bind(obj, fn) {
+        return function () {
+            return fn.apply(obj, arguments);
+        };
+    }
+
+    function scripts() {
+        return document.getElementsByTagName('script');
+    }
+
+    function defaultOnError(err) {
+        throw err;
+    }
+
+    //Allow getting a global that is expressed in
+    //dot notation, like 'a.b.c'.
+    function getGlobal(value) {
+        if (!value) {
+            return value;
+        }
+        var g = global;
+        each(value.split('.'), function (part) {
+            g = g[part];
+        });
+        return g;
+    }
+
+    /**
+     * Constructs an error with a pointer to an URL with more information.
+     * @param {String} id the error ID that maps to an ID on a web page.
+     * @param {String} msg human readable error.
+     * @param {Error} [err] the original error, if there is one.
+     * @param {RequireModules} requireModules The modules required but not found.
+     *
+     * @returns {Error}
+     */
+    function makeError(id, msg, err, requireModules) {
+        var e = new Error(msg + '\nhttp://requirejs.org/docs/errors.html#' + id);
+        e.requireType = id;
+        e.requireModules = requireModules;
+        if (err) {
+            e.originalError = err;
+        }
+        return e;
+    }
+
+    if (typeof define !== 'undefined') {
+        //If a define is already in play via another AMD loader,
+        //do not overwrite.
+        return;
+    }
+
+    if (typeof requirejs !== 'undefined') {
+        if (isFunction(requirejs)) {
+            //Do not overwrite an existing requirejs instance.
+            return;
+        }
+        cfg = requirejs;
+        requirejs = undefined;
+    }
+
+    //Allow for a require config object
+    if (typeof require !== 'undefined' && !isFunction(require)) {
+        //assume it is a config object.
+        cfg = require;
+        require = undefined;
+    }
+
+    function newContext(contextName) {
+        var inCheckLoaded, Module, context, handlers,
+            checkLoadedTimeoutId,
+            config = {
+                //Defaults. Do not set a default for map
+                //config to speed up normalize(), which
+                //will run faster if there is no default.
+                waitSeconds: 7,
+                baseUrl: './',
+                paths: {},
+                bundles: {},
+                pkgs: {},
+                shim: {},
+                config: {}
+            },
+            registry = {},
+            //registry of just enabled modules, to speed
+            //cycle breaking code when lots of modules
+            //are registered, but not activated.
+            enabledRegistry = {},
+            undefEvents = {},
+            defQueue = [],
+            defined = {},
+            urlFetched = {},
+            bundlesMap = {},
+            requireCounter = 1,
+            unnormalizedCounter = 1;
+
+        /**
+         * Trims the . and .. from an array of path segments.
+         * It will keep a leading path segment if a .. will become
+         * the first path segment, to help with module name lookups,
+         * which act like paths, but can be remapped. But the end result,
+         * all paths that use this function should look normalized.
+         * NOTE: this method MODIFIES the input array.
+         * @param {Array} ary the array of path segments.
+         */
+        function trimDots(ary) {
+            var i, part;
+            for (i = 0; i < ary.length; i++) {
+                part = ary[i];
+                if (part === '.') {
+                    ary.splice(i, 1);
+                    i -= 1;
+                } else if (part === '..') {
+                    // If at the start, or previous value is still ..,
+                    // keep them so that when converted to a path it may
+                    // still work when converted to a path, even though
+                    // as an ID it is less than ideal. In larger point
+                    // releases, may be better to just kick out an error.
+                    if (i === 0 || (i === 1 && ary[2] === '..') || ary[i - 1] === '..') {
+                        continue;
+                    } else if (i > 0) {
+                        ary.splice(i - 1, 2);
+                        i -= 2;
+                    }
+                }
+            }
+        }
+
+        /**
+         * Given a relative module name, like ./something, normalize it to
+         * a real name that can be mapped to a path.
+         * @param {String} name the relative name
+         * @param {String} baseName a real name that the name arg is relative
+         * to.
+         * @param {Boolean} applyMap apply the map config to the value. Should
+         * only be done if this normalization is for a dependency ID.
+         * @returns {String} normalized name
+         */
+        function normalize(name, baseName, applyMap) {
+            var pkgMain, mapValue, nameParts, i, j, nameSegment, lastIndex,
+                foundMap, foundI, foundStarMap, starI, normalizedBaseParts,
+                baseParts = (baseName && baseName.split('/')),
+                map = config.map,
+                starMap = map && map['*'];
+
+            //Adjust any relative paths.
+            if (name) {
+                name = name.split('/');
+                lastIndex = name.length - 1;
+
+                // If wanting node ID compatibility, strip .js from end
+                // of IDs. Have to do this here, and not in nameToUrl
+                // because node allows either .js or non .js to map
+                // to same file.
+                if (config.nodeIdCompat && jsSuffixRegExp.test(name[lastIndex])) {
+                    name[lastIndex] = name[lastIndex].replace(jsSuffixRegExp, '');
+                }
+
+                // Starts with a '.' so need the baseName
+                if (name[0].charAt(0) === '.' && baseParts) {
+                    //Convert baseName to array, and lop off the last part,
+                    //so that . matches that 'directory' and not name of the baseName's
+                    //module. For instance, baseName of 'one/two/three', maps to
+                    //'one/two/three.js', but we want the directory, 'one/two' for
+                    //this normalization.
+                    normalizedBaseParts = baseParts.slice(0, baseParts.length - 1);
+                    name = normalizedBaseParts.concat(name);
+                }
+
+                trimDots(name);
+                name = name.join('/');
+            }
+
+            //Apply map config if available.
+            if (applyMap && map && (baseParts || starMap)) {
+                nameParts = name.split('/');
+
+                outerLoop: for (i = nameParts.length; i > 0; i -= 1) {
+                    nameSegment = nameParts.slice(0, i).join('/');
+
+                    if (baseParts) {
+                        //Find the longest baseName segment match in the config.
+                        //So, do joins on the biggest to smallest lengths of baseParts.
+                        for (j = baseParts.length; j > 0; j -= 1) {
+                            mapValue = getOwn(map, baseParts.slice(0, j).join('/'));
+
+                            //baseName segment has config, find if it has one for
+                            //this name.
+                            if (mapValue) {
+                                mapValue = getOwn(mapValue, nameSegment);
+                                if (mapValue) {
+                                    //Match, update name to the new value.
+                                    foundMap = mapValue;
+                                    foundI = i;
+                                    break outerLoop;
+                                }
+                            }
+                        }
+                    }
+
+                    //Check for a star map match, but just hold on to it,
+                    //if there is a shorter segment match later in a matching
+                    //config, then favor over this star map.
+                    if (!foundStarMap && starMap && getOwn(starMap, nameSegment)) {
+                        foundStarMap = getOwn(starMap, nameSegment);
+                        starI = i;
+                    }
+                }
+
+                if (!foundMap && foundStarMap) {
+                    foundMap = foundStarMap;
+                    foundI = starI;
+                }
+
+                if (foundMap) {
+                    nameParts.splice(0, foundI, foundMap);
+                    name = nameParts.join('/');
+                }
+            }
+
+            // If the name points to a package's name, use
+            // the package main instead.
+            pkgMain = getOwn(config.pkgs, name);
+
+            return pkgMain ? pkgMain : name;
+        }
+
+        function removeScript(name) {
+            if (isBrowser) {
+                each(scripts(), function (scriptNode) {
+                    if (scriptNode.getAttribute('data-requiremodule') === name &&
+                            scriptNode.getAttribute('data-requirecontext') === context.contextName) {
+                        scriptNode.parentNode.removeChild(scriptNode);
+                        return true;
+                    }
+                });
+            }
+        }
+
+        function hasPathFallback(id) {
+            var pathConfig = getOwn(config.paths, id);
+            if (pathConfig && isArray(pathConfig) && pathConfig.length > 1) {
+                //Pop off the first array value, since it failed, and
+                //retry
+                pathConfig.shift();
+                context.require.undef(id);
+
+                //Custom require that does not do map translation, since
+                //ID is "absolute", already mapped/resolved.
+                context.makeRequire(null, {
+                    skipMap: true
+                })([id]);
+
+                return true;
+            }
+        }
+
+        //Turns a plugin!resource to [plugin, resource]
+        //with the plugin being undefined if the name
+        //did not have a plugin prefix.
+        function splitPrefix(name) {
+            var prefix,
+                index = name ? name.indexOf('!') : -1;
+            if (index > -1) {
+                prefix = name.substring(0, index);
+                name = name.substring(index + 1, name.length);
+            }
+            return [prefix, name];
+        }
+
+        /**
+         * Creates a module mapping that includes plugin prefix, module
+         * name, and path. If parentModuleMap is provided it will
+         * also normalize the name via require.normalize()
+         *
+         * @param {String} name the module name
+         * @param {String} [parentModuleMap] parent module map
+         * for the module name, used to resolve relative names.
+         * @param {Boolean} isNormalized: is the ID already normalized.
+         * This is true if this call is done for a define() module ID.
+         * @param {Boolean} applyMap: apply the map config to the ID.
+         * Should only be true if this map is for a dependency.
+         *
+         * @returns {Object}
+         */
+        function makeModuleMap(name, parentModuleMap, isNormalized, applyMap) {
+            var url, pluginModule, suffix, nameParts,
+                prefix = null,
+                parentName = parentModuleMap ? parentModuleMap.name : null,
+                originalName = name,
+                isDefine = true,
+                normalizedName = '';
+
+            //If no name, then it means it is a require call, generate an
+            //internal name.
+            if (!name) {
+                isDefine = false;
+                name = '_@r' + (requireCounter += 1);
+            }
+
+            nameParts = splitPrefix(name);
+            prefix = nameParts[0];
+            name = nameParts[1];
+
+            if (prefix) {
+                prefix = normalize(prefix, parentName, applyMap);
+                pluginModule = getOwn(defined, prefix);
+            }
+
+            //Account for relative paths if there is a base name.
+            if (name) {
+                if (prefix) {
+                    if (pluginModule && pluginModule.normalize) {
+                        //Plugin is loaded, use its normalize method.
+                        normalizedName = pluginModule.normalize(name, function (name) {
+                            return normalize(name, parentName, applyMap);
+                        });
+                    } else {
+                        // If nested plugin references, then do not try to
+                        // normalize, as it will not normalize correctly. This
+                        // places a restriction on resourceIds, and the longer
+                        // term solution is not to normalize until plugins are
+                        // loaded and all normalizations to allow for async
+                        // loading of a loader plugin. But for now, fixes the
+                        // common uses. Details in #1131
+                        normalizedName = name.indexOf('!') === -1 ?
+                                         normalize(name, parentName, applyMap) :
+                                         name;
+                    }
+                } else {
+                    //A regular module.
+                    normalizedName = normalize(name, parentName, applyMap);
+
+                    //Normalized name may be a plugin ID due to map config
+                    //application in normalize. The map config values must
+                    //already be normalized, so do not need to redo that part.
+                    nameParts = splitPrefix(normalizedName);
+                    prefix = nameParts[0];
+                    normalizedName = nameParts[1];
+                    isNormalized = true;
+
+                    url = context.nameToUrl(normalizedName);
+                }
+            }
+
+            //If the id is a plugin id that cannot be determined if it needs
+            //normalization, stamp it with a unique ID so two matching relative
+            //ids that may conflict can be separate.
+            suffix = prefix && !pluginModule && !isNormalized ?
+                     '_unnormalized' + (unnormalizedCounter += 1) :
+                     '';
+
+            return {
+                prefix: prefix,
+                name: normalizedName,
+                parentMap: parentModuleMap,
+                unnormalized: !!suffix,
+                url: url,
+                originalName: originalName,
+                isDefine: isDefine,
+                id: (prefix ?
+                        prefix + '!' + normalizedName :
+                        normalizedName) + suffix
+            };
+        }
+
+        function getModule(depMap) {
+            var id = depMap.id,
+                mod = getOwn(registry, id);
+
+            if (!mod) {
+                mod = registry[id] = new context.Module(depMap);
+            }
+
+            return mod;
+        }
+
+        function on(depMap, name, fn) {
+            var id = depMap.id,
+                mod = getOwn(registry, id);
+
+            if (hasProp(defined, id) &&
+                    (!mod || mod.defineEmitComplete)) {
+                if (name === 'defined') {
+                    fn(defined[id]);
+                }
+            } else {
+                mod = getModule(depMap);
+                if (mod.error && name === 'error') {
+                    fn(mod.error);
+                } else {
+                    mod.on(name, fn);
+                }
+            }
+        }
+
+        function onError(err, errback) {
+            var ids = err.requireModules,
+                notified = false;
+
+            if (errback) {
+                errback(err);
+            } else {
+                each(ids, function (id) {
+                    var mod = getOwn(registry, id);
+                    if (mod) {
+                        //Set error on module, so it skips timeout checks.
+                        mod.error = err;
+                        if (mod.events.error) {
+                            notified = true;
+                            mod.emit('error', err);
+                        }
+                    }
+                });
+
+                if (!notified) {
+                    req.onError(err);
+                }
+            }
+        }
+
+        /**
+         * Internal method to transfer globalQueue items to this context's
+         * defQueue.
+         */
+        function takeGlobalQueue() {
+            //Push all the globalDefQueue items into the context's defQueue
+            if (globalDefQueue.length) {
+                each(globalDefQueue, function(queueItem) {
+                    var id = queueItem[0];
+                    if (typeof id === 'string') {
+                        context.defQueueMap[id] = true;
+                    }
+                    defQueue.push(queueItem);
+                });
+                globalDefQueue = [];
+            }
+        }
+
+        handlers = {
+            'require': function (mod) {
+                if (mod.require) {
+                    return mod.require;
+                } else {
+                    return (mod.require = context.makeRequire(mod.map));
+                }
+            },
+            'exports': function (mod) {
+                mod.usingExports = true;
+                if (mod.map.isDefine) {
+                    if (mod.exports) {
+                        return (defined[mod.map.id] = mod.exports);
+                    } else {
+                        return (mod.exports = defined[mod.map.id] = {});
+                    }
+                }
+            },
+            'module': function (mod) {
+                if (mod.module) {
+                    return mod.module;
+                } else {
+                    return (mod.module = {
+                        id: mod.map.id,
+                        uri: mod.map.url,
+                        config: function () {
+                            return getOwn(config.config, mod.map.id) || {};
+                        },
+                        exports: mod.exports || (mod.exports = {})
+                    });
+                }
+            }
+        };
+
+        function cleanRegistry(id) {
+            //Clean up machinery used for waiting modules.
+            delete registry[id];
+            delete enabledRegistry[id];
+        }
+
+        function breakCycle(mod, traced, processed) {
+            var id = mod.map.id;
+
+            if (mod.error) {
+                mod.emit('error', mod.error);
+            } else {
+                traced[id] = true;
+                each(mod.depMaps, function (depMap, i) {
+                    var depId = depMap.id,
+                        dep = getOwn(registry, depId);
+
+                    //Only force things that have not completed
+                    //being defined, so still in the registry,
+                    //and only if it has not been matched up
+                    //in the module already.
+                    if (dep && !mod.depMatched[i] && !processed[depId]) {
+                        if (getOwn(traced, depId)) {
+                            mod.defineDep(i, defined[depId]);
+                            mod.check(); //pass false?
+                        } else {
+                            breakCycle(dep, traced, processed);
+                        }
+                    }
+                });
+                processed[id] = true;
+            }
+        }
+
+        function checkLoaded() {
+            var err, usingPathFallback,
+                waitInterval = config.waitSeconds * 1000,
+                //It is possible to disable the wait interval by using waitSeconds of 0.
+                expired = waitInterval && (context.startTime + waitInterval) < new Date().getTime(),
+                noLoads = [],
+                reqCalls = [],
+                stillLoading = false,
+                needCycleCheck = true;
+
+            //Do not bother if this call was a result of a cycle break.
+            if (inCheckLoaded) {
+                return;
+            }
+
+            inCheckLoaded = true;
+
+            //Figure out the state of all the modules.
+            eachProp(enabledRegistry, function (mod) {
+                var map = mod.map,
+                    modId = map.id;
+
+                //Skip things that are not enabled or in error state.
+                if (!mod.enabled) {
+                    return;
+                }
+
+                if (!map.isDefine) {
+                    reqCalls.push(mod);
+                }
+
+                if (!mod.error) {
+                    //If the module should be executed, and it has not
+                    //been inited and time is up, remember it.
+                    if (!mod.inited && expired) {
+                        if (hasPathFallback(modId)) {
+                            usingPathFallback = true;
+                            stillLoading = true;
+                        } else {
+                            noLoads.push(modId);
+                            removeScript(modId);
+                        }
+                    } else if (!mod.inited && mod.fetched && map.isDefine) {
+                        stillLoading = true;
+                        if (!map.prefix) {
+                            //No reason to keep looking for unfinished
+                            //loading. If the only stillLoading is a
+                            //plugin resource though, keep going,
+                            //because it may be that a plugin resource
+                            //is waiting on a non-plugin cycle.
+                            return (needCycleCheck = false);
+                        }
+                    }
+                }
+            });
+
+            if (expired && noLoads.length) {
+                //If wait time expired, throw error of unloaded modules.
+                err = makeError('timeout', 'Load timeout for modules: ' + noLoads, null, noLoads);
+                err.contextName = context.contextName;
+                return onError(err);
+            }
+
+            //Not expired, check for a cycle.
+            if (needCycleCheck) {
+                each(reqCalls, function (mod) {
+                    breakCycle(mod, {}, {});
+                });
+            }
+
+            //If still waiting on loads, and the waiting load is something
+            //other than a plugin resource, or there are still outstanding
+            //scripts, then just try back later.
+            if ((!expired || usingPathFallback) && stillLoading) {
+                //Something is still waiting to load. Wait for it, but only
+                //if a timeout is not already in effect.
+                if ((isBrowser || isWebWorker) && !checkLoadedTimeoutId) {
+                    checkLoadedTimeoutId = setTimeout(function () {
+                        checkLoadedTimeoutId = 0;
+                        checkLoaded();
+                    }, 50);
+                }
+            }
+
+            inCheckLoaded = false;
+        }
+
+        Module = function (map) {
+            this.events = getOwn(undefEvents, map.id) || {};
+            this.map = map;
+            this.shim = getOwn(config.shim, map.id);
+            this.depExports = [];
+            this.depMaps = [];
+            this.depMatched = [];
+            this.pluginMaps = {};
+            this.depCount = 0;
+
+            /* this.exports this.factory
+               this.depMaps = [],
+               this.enabled, this.fetched
+            */
+        };
+
+        Module.prototype = {
+            init: function (depMaps, factory, errback, options) {
+                options = options || {};
+
+                //Do not do more inits if already done. Can happen if there
+                //are multiple define calls for the same module. That is not
+                //a normal, common case, but it is also not unexpected.
+                if (this.inited) {
+                    return;
+                }
+
+                this.factory = factory;
+
+                if (errback) {
+                    //Register for errors on this module.
+                    this.on('error', errback);
+                } else if (this.events.error) {
+                    //If no errback already, but there are error listeners
+                    //on this module, set up an errback to pass to the deps.
+                    errback = bind(this, function (err) {
+                        this.emit('error', err);
+                    });
+                }
+
+                //Do a copy of the dependency array, so that
+                //source inputs are not modified. For example
+                //"shim" deps are passed in here directly, and
+                //doing a direct modification of the depMaps array
+                //would affect that config.
+                this.depMaps = depMaps && depMaps.slice(0);
+
+                this.errback = errback;
+
+                //Indicate this module has be initialized
+                this.inited = true;
+
+                this.ignore = options.ignore;
+
+                //Could have option to init this module in enabled mode,
+                //or could have been previously marked as enabled. However,
+                //the dependencies are not known until init is called. So
+                //if enabled previously, now trigger dependencies as enabled.
+                if (options.enabled || this.enabled) {
+                    //Enable this module and dependencies.
+                    //Will call this.check()
+                    this.enable();
+                } else {
+                    this.check();
+                }
+            },
+
+            defineDep: function (i, depExports) {
+                //Because of cycles, defined callback for a given
+                //export can be called more than once.
+                if (!this.depMatched[i]) {
+                    this.depMatched[i] = true;
+                    this.depCount -= 1;
+                    this.depExports[i] = depExports;
+                }
+            },
+
+            fetch: function () {
+                if (this.fetched) {
+                    return;
+                }
+                this.fetched = true;
+
+                context.startTime = (new Date()).getTime();
+
+                var map = this.map;
+
+                //If the manager is for a plugin managed resource,
+                //ask the plugin to load it now.
+                if (this.shim) {
+                    context.makeRequire(this.map, {
+                        enableBuildCallback: true
+                    })(this.shim.deps || [], bind(this, function () {
+                        return map.prefix ? this.callPlugin() : this.load();
+                    }));
+                } else {
+                    //Regular dependency.
+                    return map.prefix ? this.callPlugin() : this.load();
+                }
+            },
+
+            load: function () {
+                var url = this.map.url;
+
+                //Regular dependency.
+                if (!urlFetched[url]) {
+                    urlFetched[url] = true;
+                    context.load(this.map.id, url);
+                }
+            },
+
+            /**
+             * Checks if the module is ready to define itself, and if so,
+             * define it.
+             */
+            check: function () {
+                if (!this.enabled || this.enabling) {
+                    return;
+                }
+
+                var err, cjsModule,
+                    id = this.map.id,
+                    depExports = this.depExports,
+                    exports = this.exports,
+                    factory = this.factory;
+
+                if (!this.inited) {
+                    // Only fetch if not already in the defQueue.
+                    if (!hasProp(context.defQueueMap, id)) {
+                        this.fetch();
+                    }
+                } else if (this.error) {
+                    this.emit('error', this.error);
+                } else if (!this.defining) {
+                    //The factory could trigger another require call
+                    //that would result in checking this module to
+                    //define itself again. If already in the process
+                    //of doing that, skip this work.
+                    this.defining = true;
+
+                    if (this.depCount < 1 && !this.defined) {
+                        if (isFunction(factory)) {
+                            //If there is an error listener, favor passing
+                            //to that instead of throwing an error. However,
+                            //only do it for define()'d  modules. require
+                            //errbacks should not be called for failures in
+                            //their callbacks (#699). However if a global
+                            //onError is set, use that.
+                            if ((this.events.error && this.map.isDefine) ||
+                                req.onError !== defaultOnError) {
+                                try {
+                                    exports = context.execCb(id, factory, depExports, exports);
+                                } catch (e) {
+                                    err = e;
+                                }
+                            } else {
+                                exports = context.execCb(id, factory, depExports, exports);
+                            }
+
+                            // Favor return value over exports. If node/cjs in play,
+                            // then will not have a return value anyway. Favor
+                            // module.exports assignment over exports object.
+                            if (this.map.isDefine && exports === undefined) {
+                                cjsModule = this.module;
+                                if (cjsModule) {
+                                    exports = cjsModule.exports;
+                                } else if (this.usingExports) {
+                                    //exports already set the defined value.
+                                    exports = this.exports;
+                                }
+                            }
+
+                            if (err) {
+                                err.requireMap = this.map;
+                                err.requireModules = this.map.isDefine ? [this.map.id] : null;
+                                err.requireType = this.map.isDefine ? 'define' : 'require';
+                                return onError((this.error = err));
+                            }
+
+                        } else {
+                            //Just a literal value
+                            exports = factory;
+                        }
+
+                        this.exports = exports;
+
+                        if (this.map.isDefine && !this.ignore) {
+                            defined[id] = exports;
+
+                            if (req.onResourceLoad) {
+                                req.onResourceLoad(context, this.map, this.depMaps);
+                            }
+                        }
+
+                        //Clean up
+                        cleanRegistry(id);
+
+                        this.defined = true;
+                    }
+
+                    //Finished the define stage. Allow calling check again
+                    //to allow define notifications below in the case of a
+                    //cycle.
+                    this.defining = false;
+
+                    if (this.defined && !this.defineEmitted) {
+                        this.defineEmitted = true;
+                        this.emit('defined', this.exports);
+                        this.defineEmitComplete = true;
+                    }
+
+                }
+            },
+
+            callPlugin: function () {
+                var map = this.map,
+                    id = map.id,
+                    //Map already normalized the prefix.
+                    pluginMap = makeModuleMap(map.prefix);
+
+                //Mark this as a dependency for this plugin, so it
+                //can be traced for cycles.
+                this.depMaps.push(pluginMap);
+
+                on(pluginMap, 'defined', bind(this, function (plugin) {
+                    var load, normalizedMap, normalizedMod,
+                        bundleId = getOwn(bundlesMap, this.map.id),
+                        name = this.map.name,
+                        parentName = this.map.parentMap ? this.map.parentMap.name : null,
+                        localRequire = context.makeRequire(map.parentMap, {
+                            enableBuildCallback: true
+                        });
+
+                    //If current map is not normalized, wait for that
+                    //normalized name to load instead of continuing.
+                    if (this.map.unnormalized) {
+                        //Normalize the ID if the plugin allows it.
+                        if (plugin.normalize) {
+                            name = plugin.normalize(name, function (name) {
+                                return normalize(name, parentName, true);
+                            }) || '';
+                        }
+
+                        //prefix and name should already be normalized, no need
+                        //for applying map config again either.
+                        normalizedMap = makeModuleMap(map.prefix + '!' + name,
+                                                      this.map.parentMap);
+                        on(normalizedMap,
+                            'defined', bind(this, function (value) {
+                                this.init([], function () { return value; }, null, {
+                                    enabled: true,
+                                    ignore: true
+                                });
+                            }));
+
+                        normalizedMod = getOwn(registry, normalizedMap.id);
+                        if (normalizedMod) {
+                            //Mark this as a dependency for this plugin, so it
+                            //can be traced for cycles.
+                            this.depMaps.push(normalizedMap);
+
+                            if (this.events.error) {
+                                normalizedMod.on('error', bind(this, function (err) {
+                                    this.emit('error', err);
+                                }));
+                            }
+                            normalizedMod.enable();
+                        }
+
+                        return;
+                    }
+
+                    //If a paths config, then just load that file instead to
+                    //resolve the plugin, as it is built into that paths layer.
+                    if (bundleId) {
+                        this.map.url = context.nameToUrl(bundleId);
+                        this.load();
+                        return;
+                    }
+
+                    load = bind(this, function (value) {
+                        this.init([], function () { return value; }, null, {
+                            enabled: true
+                        });
+                    });
+
+                    load.error = bind(this, function (err) {
+                        this.inited = true;
+                        this.error = err;
+                        err.requireModules = [id];
+
+                        //Remove temp unnormalized modules for this module,
+                        //since they will never be resolved otherwise now.
+                        eachProp(registry, function (mod) {
+                            if (mod.map.id.indexOf(id + '_unnormalized') === 0) {
+                                cleanRegistry(mod.map.id);
+                            }
+                        });
+
+                        onError(err);
+                    });
+
+                    //Allow plugins to load other code without having to know the
+                    //context or how to 'complete' the load.
+                    load.fromText = bind(this, function (text, textAlt) {
+                        /*jslint evil: true */
+                        var moduleName = map.name,
+                            moduleMap = makeModuleMap(moduleName),
+                            hasInteractive = useInteractive;
+
+                        //As of 2.1.0, support just passing the text, to reinforce
+                        //fromText only being called once per resource. Still
+                        //support old style of passing moduleName but discard
+                        //that moduleName in favor of the internal ref.
+                        if (textAlt) {
+                            text = textAlt;
+                        }
+
+                        //Turn off interactive script matching for IE for any define
+                        //calls in the text, then turn it back on at the end.
+                        if (hasInteractive) {
+                            useInteractive = false;
+                        }
+
+                        //Prime the system by creating a module instance for
+                        //it.
+                        getModule(moduleMap);
+
+                        //Transfer any config to this other module.
+                        if (hasProp(config.config, id)) {
+                            config.config[moduleName] = config.config[id];
+                        }
+
+                        try {
+                            req.exec(text);
+                        } catch (e) {
+                            return onError(makeError('fromtexteval',
+                                             'fromText eval for ' + id +
+                                            ' failed: ' + e,
+                                             e,
+                                             [id]));
+                        }
+
+                        if (hasInteractive) {
+                            useInteractive = true;
+                        }
+
+                        //Mark this as a dependency for the plugin
+                        //resource
+                        this.depMaps.push(moduleMap);
+
+                        //Support anonymous modules.
+                        context.completeLoad(moduleName);
+
+                        //Bind the value of that module to the value for this
+                        //resource ID.
+                        localRequire([moduleName], load);
+                    });
+
+                    //Use parentName here since the plugin's name is not reliable,
+                    //could be some weird string with no path that actually wants to
+                    //reference the parentName's path.
+                    plugin.load(map.name, localRequire, load, config);
+                }));
+
+                context.enable(pluginMap, this);
+                this.pluginMaps[pluginMap.id] = pluginMap;
+            },
+
+            enable: function () {
+                enabledRegistry[this.map.id] = this;
+                this.enabled = true;
+
+                //Set flag mentioning that the module is enabling,
+                //so that immediate calls to the defined callbacks
+                //for dependencies do not trigger inadvertent load
+                //with the depCount still being zero.
+                this.enabling = true;
+
+                //Enable each dependency
+                each(this.depMaps, bind(this, function (depMap, i) {
+                    var id, mod, handler;
+
+                    if (typeof depMap === 'string') {
+                        //Dependency needs to be converted to a depMap
+                        //and wired up to this module.
+                        depMap = makeModuleMap(depMap,
+                                               (this.map.isDefine ? this.map : this.map.parentMap),
+                                               false,
+                                               !this.skipMap);
+                        this.depMaps[i] = depMap;
+
+                        handler = getOwn(handlers, depMap.id);
+
+                        if (handler) {
+                            this.depExports[i] = handler(this);
+                            return;
+                        }
+
+                        this.depCount += 1;
+
+                        on(depMap, 'defined', bind(this, function (depExports) {
+                            if (this.undefed) {
+                                return;
+                            }
+                            this.defineDep(i, depExports);
+                            this.check();
+                        }));
+
+                        if (this.errback) {
+                            on(depMap, 'error', bind(this, this.errback));
+                        } else if (this.events.error) {
+                            // No direct errback on this module, but something
+                            // else is listening for errors, so be sure to
+                            // propagate the error correctly.
+                            on(depMap, 'error', bind(this, function(err) {
+                                this.emit('error', err);
+                            }));
+                        }
+                    }
+
+                    id = depMap.id;
+                    mod = registry[id];
+
+                    //Skip special modules like 'require', 'exports', 'module'
+                    //Also, don't call enable if it is already enabled,
+                    //important in circular dependency cases.
+                    if (!hasProp(handlers, id) && mod && !mod.enabled) {
+                        context.enable(depMap, this);
+                    }
+                }));
+
+                //Enable each plugin that is used in
+                //a dependency
+                eachProp(this.pluginMaps, bind(this, function (pluginMap) {
+                    var mod = getOwn(registry, pluginMap.id);
+                    if (mod && !mod.enabled) {
+                        context.enable(pluginMap, this);
+                    }
+                }));
+
+                this.enabling = false;
+
+                this.check();
+            },
+
+            on: function (name, cb) {
+                var cbs = this.events[name];
+                if (!cbs) {
+                    cbs = this.events[name] = [];
+                }
+                cbs.push(cb);
+            },
+
+            emit: function (name, evt) {
+                each(this.events[name], function (cb) {
+                    cb(evt);
+                });
+                if (name === 'error') {
+                    //Now that the error handler was triggered, remove
+                    //the listeners, since this broken Module instance
+                    //can stay around for a while in the registry.
+                    delete this.events[name];
+                }
+            }
+        };
+
+        function callGetModule(args) {
+            //Skip modules already defined.
+            if (!hasProp(defined, args[0])) {
+                getModule(makeModuleMap(args[0], null, true)).init(args[1], args[2]);
+            }
+        }
+
+        function removeListener(node, func, name, ieName) {
+            //Favor detachEvent because of IE9
+            //issue, see attachEvent/addEventListener comment elsewhere
+            //in this file.
+            if (node.detachEvent && !isOpera) {
+                //Probably IE. If not it will throw an error, which will be
+                //useful to know.
+                if (ieName) {
+                    node.detachEvent(ieName, func);
+                }
+            } else {
+                node.removeEventListener(name, func, false);
+            }
+        }
+
+        /**
+         * Given an event from a script node, get the requirejs info from it,
+         * and then removes the event listeners on the node.
+         * @param {Event} evt
+         * @returns {Object}
+         */
+        function getScriptData(evt) {
+            //Using currentTarget instead of target for Firefox 2.0's sake. Not
+            //all old browsers will be supported, but this one was easy enough
+            //to support and still makes sense.
+            var node = evt.currentTarget || evt.srcElement;
+
+            //Remove the listeners once here.
+            removeListener(node, context.onScriptLoad, 'load', 'onreadystatechange');
+            removeListener(node, context.onScriptError, 'error');
+
+            return {
+                node: node,
+                id: node && node.getAttribute('data-requiremodule')
+            };
+        }
+
+        function intakeDefines() {
+            var args;
+
+            //Any defined modules in the global queue, intake them now.
+            takeGlobalQueue();
+
+            //Make sure any remaining defQueue items get properly processed.
+            while (defQueue.length) {
+                args = defQueue.shift();
+                if (args[0] === null) {
+                    return onError(makeError('mismatch', 'Mismatched anonymous define() module: ' +
+                        args[args.length - 1]));
+                } else {
+                    //args are id, deps, factory. Should be normalized by the
+                    //define() function.
+                    callGetModule(args);
+                }
+            }
+            context.defQueueMap = {};
+        }
+
+        context = {
+            config: config,
+            contextName: contextName,
+            registry: registry,
+            defined: defined,
+            urlFetched: urlFetched,
+            defQueue: defQueue,
+            defQueueMap: {},
+            Module: Module,
+            makeModuleMap: makeModuleMap,
+            nextTick: req.nextTick,
+            onError: onError,
+
+            /**
+             * Set a configuration for the context.
+             * @param {Object} cfg config object to integrate.
+             */
+            configure: function (cfg) {
+                //Make sure the baseUrl ends in a slash.
+                if (cfg.baseUrl) {
+                    if (cfg.baseUrl.charAt(cfg.baseUrl.length - 1) !== '/') {
+                        cfg.baseUrl += '/';
+                    }
+                }
+
+                //Save off the paths since they require special processing,
+                //they are additive.
+                var shim = config.shim,
+                    objs = {
+                        paths: true,
+                        bundles: true,
+                        config: true,
+                        map: true
+                    };
+
+                eachProp(cfg, function (value, prop) {
+                    if (objs[prop]) {
+                        if (!config[prop]) {
+                            config[prop] = {};
+                        }
+                        mixin(config[prop], value, true, true);
+                    } else {
+                        config[prop] = value;
+                    }
+                });
+
+                //Reverse map the bundles
+                if (cfg.bundles) {
+                    eachProp(cfg.bundles, function (value, prop) {
+                        each(value, function (v) {
+                            if (v !== prop) {
+                                bundlesMap[v] = prop;
+                            }
+                        });
+                    });
+                }
+
+                //Merge shim
+                if (cfg.shim) {
+                    eachProp(cfg.shim, function (value, id) {
+                        //Normalize the structure
+                        if (isArray(value)) {
+                            value = {
+                                deps: value
+                            };
+                        }
+                        if ((value.exports || value.init) && !value.exportsFn) {
+                            value.exportsFn = context.makeShimExports(value);
+                        }
+                        shim[id] = value;
+                    });
+                    config.shim = shim;
+                }
+
+                //Adjust packages if necessary.
+                if (cfg.packages) {
+                    each(cfg.packages, function (pkgObj) {
+                        var location, name;
+
+                        pkgObj = typeof pkgObj === 'string' ? {name: pkgObj} : pkgObj;
+
+                        name = pkgObj.name;
+                        location = pkgObj.location;
+                        if (location) {
+                            config.paths[name] = pkgObj.location;
+                        }
+
+                        //Save pointer to main module ID for pkg name.
+                        //Remove leading dot in main, so main paths are normalized,
+                        //and remove any trailing .js, since different package
+                        //envs have different conventions: some use a module name,
+                        //some use a file name.
+                        config.pkgs[name] = pkgObj.name + '/' + (pkgObj.main || 'main')
+                                     .replace(currDirRegExp, '')
+                                     .replace(jsSuffixRegExp, '');
+                    });
+                }
+
+                //If there are any "waiting to execute" modules in the registry,
+                //update the maps for them, since their info, like URLs to load,
+                //may have changed.
+                eachProp(registry, function (mod, id) {
+                    //If module already has init called, since it is too
+                    //late to modify them, and ignore unnormalized ones
+                    //since they are transient.
+                    if (!mod.inited && !mod.map.unnormalized) {
+                        mod.map = makeModuleMap(id, null, true);
+                    }
+                });
+
+                //If a deps array or a config callback is specified, then call
+                //require with those args. This is useful when require is defined as a
+                //config object before require.js is loaded.
+                if (cfg.deps || cfg.callback) {
+                    context.require(cfg.deps || [], cfg.callback);
+                }
+            },
+
+            makeShimExports: function (value) {
+                function fn() {
+                    var ret;
+                    if (value.init) {
+                        ret = value.init.apply(global, arguments);
+                    }
+                    return ret || (value.exports && getGlobal(value.exports));
+                }
+                return fn;
+            },
+
+            makeRequire: function (relMap, options) {
+                options = options || {};
+
+                function localRequire(deps, callback, errback) {
+                    var id, map, requireMod;
+
+                    if (options.enableBuildCallback && callback && isFunction(callback)) {
+                        callback.__requireJsBuild = true;
+                    }
+
+                    if (typeof deps === 'string') {
+                        if (isFunction(callback)) {
+                            //Invalid call
+                            return onError(makeError('requireargs', 'Invalid require call'), errback);
+                        }
+
+                        //If require|exports|module are requested, get the
+                        //value for them from the special handlers. Caveat:
+                        //this only works while module is being defined.
+                        if (relMap && hasProp(handlers, deps)) {
+                            return handlers[deps](registry[relMap.id]);
+                        }
+
+                        //Synchronous access to one module. If require.get is
+                        //available (as in the Node adapter), prefer that.
+                        if (req.get) {
+                            return req.get(context, deps, relMap, localRequire);
+                        }
+
+                        //Normalize module name, if it contains . or ..
+                        map = makeModuleMap(deps, relMap, false, true);
+                        id = map.id;
+
+                        if (!hasProp(defined, id)) {
+                            return onError(makeError('notloaded', 'Module name "' +
+                                        id +
+                                        '" has not been loaded yet for context: ' +
+                                        contextName +
+                                        (relMap ? '' : '. Use require([])')));
+                        }
+                        return defined[id];
+                    }
+
+                    //Grab defines waiting in the global queue.
+                    intakeDefines();
+
+                    //Mark all the dependencies as needing to be loaded.
+                    context.nextTick(function () {
+                        //Some defines could have been added since the
+                        //require call, collect them.
+                        intakeDefines();
+
+                        requireMod = getModule(makeModuleMap(null, relMap));
+
+                        //Store if map config should be applied to this require
+                        //call for dependencies.
+                        requireMod.skipMap = options.skipMap;
+
+                        requireMod.init(deps, callback, errback, {
+                            enabled: true
+                        });
+
+                        checkLoaded();
+                    });
+
+                    return localRequire;
+                }
+
+                mixin(localRequire, {
+                    isBrowser: isBrowser,
+
+                    /**
+                     * Converts a module name + .extension into an URL path.
+                     * *Requires* the use of a module name. It does not support using
+                     * plain URLs like nameToUrl.
+                     */
+                    toUrl: function (moduleNamePlusExt) {
+                        var ext,
+                            index = moduleNamePlusExt.lastIndexOf('.'),
+                            segment = moduleNamePlusExt.split('/')[0],
+                            isRelative = segment === '.' || segment === '..';
+
+                        //Have a file extension alias, and it is not the
+                        //dots from a relative path.
+                        if (index !== -1 && (!isRelative || index > 1)) {
+                            ext = moduleNamePlusExt.substring(index, moduleNamePlusExt.length);
+                            moduleNamePlusExt = moduleNamePlusExt.substring(0, index);
+                        }
+
+                        return context.nameToUrl(normalize(moduleNamePlusExt,
+                                                relMap && relMap.id, true), ext,  true);
+                    },
+
+                    defined: function (id) {
+                        return hasProp(defined, makeModuleMap(id, relMap, false, true).id);
+                    },
+
+                    specified: function (id) {
+                        id = makeModuleMap(id, relMap, false, true).id;
+                        return hasProp(defined, id) || hasProp(registry, id);
+                    }
+                });
+
+                //Only allow undef on top level require calls
+                if (!relMap) {
+                    localRequire.undef = function (id) {
+                        //Bind any waiting define() calls to this context,
+                        //fix for #408
+                        takeGlobalQueue();
+
+                        var map = makeModuleMap(id, relMap, true),
+                            mod = getOwn(registry, id);
+
+                        mod.undefed = true;
+                        removeScript(id);
+
+                        delete defined[id];
+                        delete urlFetched[map.url];
+                        delete undefEvents[id];
+
+                        //Clean queued defines too. Go backwards
+                        //in array so that the splices do not
+                        //mess up the iteration.
+                        eachReverse(defQueue, function(args, i) {
+                            if (args[0] === id) {
+                                defQueue.splice(i, 1);
+                            }
+                        });
+                        delete context.defQueueMap[id];
+
+                        if (mod) {
+                            //Hold on to listeners in case the
+                            //module will be attempted to be reloaded
+                            //using a different config.
+                            if (mod.events.defined) {
+                                undefEvents[id] = mod.events;
+                            }
+
+                            cleanRegistry(id);
+                        }
+                    };
+                }
+
+                return localRequire;
+            },
+
+            /**
+             * Called to enable a module if it is still in the registry
+             * awaiting enablement. A second arg, parent, the parent module,
+             * is passed in for context, when this method is overridden by
+             * the optimizer. Not shown here to keep code compact.
+             */
+            enable: function (depMap) {
+                var mod = getOwn(registry, depMap.id);
+                if (mod) {
+                    getModule(depMap).enable();
+                }
+            },
+
+            /**
+             * Internal method used by environment adapters to complete a load event.
+             * A load event could be a script load or just a load pass from a synchronous
+             * load call.
+             * @param {String} moduleName the name of the module to potentially complete.
+             */
+            completeLoad: function (moduleName) {
+                var found, args, mod,
+                    shim = getOwn(config.shim, moduleName) || {},
+                    shExports = shim.exports;
+
+                takeGlobalQueue();
+
+                while (defQueue.length) {
+                    args = defQueue.shift();
+                    if (args[0] === null) {
+                        args[0] = moduleName;
+                        //If already found an anonymous module and bound it
+                        //to this name, then this is some other anon module
+                        //waiting for its completeLoad to fire.
+                        if (found) {
+                            break;
+                        }
+                        found = true;
+                    } else if (args[0] === moduleName) {
+                        //Found matching define call for this script!
+                        found = true;
+                    }
+
+                    callGetModule(args);
+                }
+                context.defQueueMap = {};
+
+                //Do this after the cycle of callGetModule in case the result
+                //of those calls/init calls changes the registry.
+                mod = getOwn(registry, moduleName);
+
+                if (!found && !hasProp(defined, moduleName) && mod && !mod.inited) {
+                    if (config.enforceDefine && (!shExports || !getGlobal(shExports))) {
+                        if (hasPathFallback(moduleName)) {
+                            return;
+                        } else {
+                            return onError(makeError('nodefine',
+                                             'No define call for ' + moduleName,
+                                             null,
+                                             [moduleName]));
+                        }
+                    } else {
+                        //A script that does not call define(), so just simulate
+                        //the call for it.
+                        callGetModule([moduleName, (shim.deps || []), shim.exportsFn]);
+                    }
+                }
+
+                checkLoaded();
+            },
+
+            /**
+             * Converts a module name to a file path. Supports cases where
+             * moduleName may actually be just an URL.
+             * Note that it **does not** call normalize on the moduleName,
+             * it is assumed to have already been normalized. This is an
+             * internal API, not a public one. Use toUrl for the public API.
+             */
+            nameToUrl: function (moduleName, ext, skipExt) {
+                var paths, syms, i, parentModule, url,
+                    parentPath, bundleId,
+                    pkgMain = getOwn(config.pkgs, moduleName);
+
+                if (pkgMain) {
+                    moduleName = pkgMain;
+                }
+
+                bundleId = getOwn(bundlesMap, moduleName);
+
+                if (bundleId) {
+                    return context.nameToUrl(bundleId, ext, skipExt);
+                }
+
+                //If a colon is in the URL, it indicates a protocol is used and it is just
+                //an URL to a file, or if it starts with a slash, contains a query arg (i.e. ?)
+                //or ends with .js, then assume the user meant to use an url and not a module id.
+                //The slash is important for protocol-less URLs as well as full paths.
+                if (req.jsExtRegExp.test(moduleName)) {
+                    //Just a plain path, not module name lookup, so just return it.
+                    //Add extension if it is included. This is a bit wonky, only non-.js things pass
+                    //an extension, this method probably needs to be reworked.
+                    url = moduleName + (ext || '');
+                } else {
+                    //A module that needs to be converted to a path.
+                    paths = config.paths;
+
+                    syms = moduleName.split('/');
+                    //For each module name segment, see if there is a path
+                    //registered for it. Start with most specific name
+                    //and work up from it.
+                    for (i = syms.length; i > 0; i -= 1) {
+                        parentModule = syms.slice(0, i).join('/');
+
+                        parentPath = getOwn(paths, parentModule);
+                        if (parentPath) {
+                            //If an array, it means there are a few choices,
+                            //Choose the one that is desired
+                            if (isArray(parentPath)) {
+                                parentPath = parentPath[0];
+                            }
+                            syms.splice(0, i, parentPath);
+                            break;
+                        }
+                    }
+
+                    //Join the path parts together, then figure out if baseUrl is needed.
+                    url = syms.join('/');
+                    url += (ext || (/^data\:|\?/.test(url) || skipExt ? '' : '.js'));
+                    url = (url.charAt(0) === '/' || url.match(/^[\w\+\.\-]+:/) ? '' : config.baseUrl) + url;
+                }
+
+                return config.urlArgs ? url +
+                                        ((url.indexOf('?') === -1 ? '?' : '&') +
+                                         config.urlArgs) : url;
+            },
+
+            //Delegates to req.load. Broken out as a separate function to
+            //allow overriding in the optimizer.
+            load: function (id, url) {
+                req.load(context, id, url);
+            },
+
+            /**
+             * Executes a module callback function. Broken out as a separate function
+             * solely to allow the build system to sequence the files in the built
+             * layer in the right sequence.
+             *
+             * @private
+             */
+            execCb: function (name, callback, args, exports) {
+                return callback.apply(exports, args);
+            },
+
+            /**
+             * callback for script loads, used to check status of loading.
+             *
+             * @param {Event} evt the event from the browser for the script
+             * that was loaded.
+             */
+            onScriptLoad: function (evt) {
+                //Using currentTarget instead of target for Firefox 2.0's sake. Not
+                //all old browsers will be supported, but this one was easy enough
+                //to support and still makes sense.
+                if (evt.type === 'load' ||
+                        (readyRegExp.test((evt.currentTarget || evt.srcElement).readyState))) {
+                    //Reset interactive script so a script node is not held onto for
+                    //to long.
+                    interactiveScript = null;
+
+                    //Pull out the name of the module and the context.
+                    var data = getScriptData(evt);
+                    context.completeLoad(data.id);
+                }
+            },
+
+            /**
+             * Callback for script errors.
+             */
+            onScriptError: function (evt) {
+                var data = getScriptData(evt);
+                if (!hasPathFallback(data.id)) {
+                    return onError(makeError('scripterror', 'Script error for: ' + data.id, evt, [data.id]));
+                }
+            }
+        };
+
+        context.require = context.makeRequire();
+        return context;
+    }
+
+    /**
+     * Main entry point.
+     *
+     * If the only argument to require is a string, then the module that
+     * is represented by that string is fetched for the appropriate context.
+     *
+     * If the first argument is an array, then it will be treated as an array
+     * of dependency string names to fetch. An optional function callback can
+     * be specified to execute when all of those dependencies are available.
+     *
+     * Make a local req variable to help Caja compliance (it assumes things
+     * on a require that are not standardized), and to give a short
+     * name for minification/local scope use.
+     */
+    req = requirejs = function (deps, callback, errback, optional) {
+
+        //Find the right context, use default
+        var context, config,
+            contextName = defContextName;
+
+        // Determine if have config object in the call.
+        if (!isArray(deps) && typeof deps !== 'string') {
+            // deps is a config object
+            config = deps;
+            if (isArray(callback)) {
+                // Adjust args if there are dependencies
+                deps = callback;
+                callback = errback;
+                errback = optional;
+            } else {
+                deps = [];
+            }
+        }
+
+        if (config && config.context) {
+            contextName = config.context;
+        }
+
+        context = getOwn(contexts, contextName);
+        if (!context) {
+            context = contexts[contextName] = req.s.newContext(contextName);
+        }
+
+        if (config) {
+            context.configure(config);
+        }
+
+        return context.require(deps, callback, errback);
+    };
+
+    /**
+     * Support require.config() to make it easier to cooperate with other
+     * AMD loaders on globally agreed names.
+     */
+    req.config = function (config) {
+        return req(config);
+    };
+
+    /**
+     * Execute something after the current tick
+     * of the event loop. Override for other envs
+     * that have a better solution than setTimeout.
+     * @param  {Function} fn function to execute later.
+     */
+    req.nextTick = typeof setTimeout !== 'undefined' ? function (fn) {
+        setTimeout(fn, 4);
+    } : function (fn) { fn(); };
+
+    /**
+     * Export require as a global, but only if it does not already exist.
+     */
+    if (!require) {
+        require = req;
+    }
+
+    req.version = version;
+
+    //Used to filter out dependencies that are already paths.
+    req.jsExtRegExp = /^\/|:|\?|\.js$/;
+    req.isBrowser = isBrowser;
+    s = req.s = {
+        contexts: contexts,
+        newContext: newContext
+    };
+
+    //Create default context.
+    req({});
+
+    //Exports some context-sensitive methods on global require.
+    each([
+        'toUrl',
+        'undef',
+        'defined',
+        'specified'
+    ], function (prop) {
+        //Reference from contexts instead of early binding to default context,
+        //so that during builds, the latest instance of the default context
+        //with its config gets used.
+        req[prop] = function () {
+            var ctx = contexts[defContextName];
+            return ctx.require[prop].apply(ctx, arguments);
+        };
+    });
+
+    if (isBrowser) {
+        head = s.head = document.getElementsByTagName('head')[0];
+        //If BASE tag is in play, using appendChild is a problem for IE6.
+        //When that browser dies, this can be removed. Details in this jQuery bug:
+        //http://dev.jquery.com/ticket/2709
+        baseElement = document.getElementsByTagName('base')[0];
+        if (baseElement) {
+            head = s.head = baseElement.parentNode;
+        }
+    }
+
+    /**
+     * Any errors that require explicitly generates will be passed to this
+     * function. Intercept/override it if you want custom error handling.
+     * @param {Error} err the error object.
+     */
+    req.onError = defaultOnError;
+
+    /**
+     * Creates the node for the load command. Only used in browser envs.
+     */
+    req.createNode = function (config, moduleName, url) {
+        var node = config.xhtml ?
+                document.createElementNS('http://www.w3.org/1999/xhtml', 'html:script') :
+                document.createElement('script');
+        node.type = config.scriptType || 'text/javascript';
+        node.charset = 'utf-8';
+        node.async = true;
+        return node;
+    };
+
+    /**
+     * Does the request to load a module for the browser case.
+     * Make this a separate function to allow other environments
+     * to override it.
+     *
+     * @param {Object} context the require context to find state.
+     * @param {String} moduleName the name of the module.
+     * @param {Object} url the URL to the module.
+     */
+    req.load = function (context, moduleName, url) {
+        var config = (context && context.config) || {},
+            node;
+        if (isBrowser) {
+            //In the browser so use a script tag
+            node = req.createNode(config, moduleName, url);
+            if (config.onNodeCreated) {
+                config.onNodeCreated(node, config, moduleName, url);
+            }
+
+            node.setAttribute('data-requirecontext', context.contextName);
+            node.setAttribute('data-requiremodule', moduleName);
+
+            //Set up load listener. Test attachEvent first because IE9 has
+            //a subtle issue in its addEventListener and script onload firings
+            //that do not match the behavior of all other browsers with
+            //addEventListener support, which fire the onload event for a
+            //script right after the script execution. See:
+            //https://connect.microsoft.com/IE/feedback/details/648057/script-onload-event-is-not-fired-immediately-after-script-execution
+            //UNFORTUNATELY Opera implements attachEvent but does not follow the script
+            //script execution mode.
+            if (node.attachEvent &&
+                    //Check if node.attachEvent is artificially added by custom script or
+                    //natively supported by browser
+                    //read https://github.com/jrburke/requirejs/issues/187
+                    //if we can NOT find [native code] then it must NOT natively supported.
+                    //in IE8, node.attachEvent does not have toString()
+                    //Note the test for "[native code" with no closing brace, see:
+                    //https://github.com/jrburke/requirejs/issues/273
+                    !(node.attachEvent.toString && node.attachEvent.toString().indexOf('[native code') < 0) &&
+                    !isOpera) {
+                //Probably IE. IE (at least 6-8) do not fire
+                //script onload right after executing the script, so
+                //we cannot tie the anonymous define call to a name.
+                //However, IE reports the script as being in 'interactive'
+                //readyState at the time of the define call.
+                useInteractive = true;
+
+                node.attachEvent('onreadystatechange', context.onScriptLoad);
+                //It would be great to add an error handler here to catch
+                //404s in IE9+. However, onreadystatechange will fire before
+                //the error handler, so that does not help. If addEventListener
+                //is used, then IE will fire error before load, but we cannot
+                //use that pathway given the connect.microsoft.com issue
+                //mentioned above about not doing the 'script execute,
+                //then fire the script load event listener before execute
+                //next script' that other browsers do.
+                //Best hope: IE10 fixes the issues,
+                //and then destroys all installs of IE 6-9.
+                //node.attachEvent('onerror', context.onScriptError);
+            } else {
+                node.addEventListener('load', context.onScriptLoad, false);
+                node.addEventListener('error', context.onScriptError, false);
+            }
+            node.src = url;
+
+            //For some cache cases in IE 6-8, the script executes before the end
+            //of the appendChild execution, so to tie an anonymous define
+            //call to the module name (which is stored on the node), hold on
+            //to a reference to this node, but clear after the DOM insertion.
+            currentlyAddingScript = node;
+            if (baseElement) {
+                head.insertBefore(node, baseElement);
+            } else {
+                head.appendChild(node);
+            }
+            currentlyAddingScript = null;
+
+            return node;
+        } else if (isWebWorker) {
+            try {
+                //In a web worker, use importScripts. This is not a very
+                //efficient use of importScripts, importScripts will block until
+                //its script is downloaded and evaluated. However, if web workers
+                //are in play, the expectation that a build has been done so that
+                //only one script needs to be loaded anyway. This may need to be
+                //reevaluated if other use cases become common.
+                importScripts(url);
+
+                //Account for anonymous modules
+                context.completeLoad(moduleName);
+            } catch (e) {
+                context.onError(makeError('importscripts',
+                                'importScripts failed for ' +
+                                    moduleName + ' at ' + url,
+                                e,
+                                [moduleName]));
+            }
+        }
+    };
+
+    function getInteractiveScript() {
+        if (interactiveScript && interactiveScript.readyState === 'interactive') {
+            return interactiveScript;
+        }
+
+        eachReverse(scripts(), function (script) {
+            if (script.readyState === 'interactive') {
+                return (interactiveScript = script);
+            }
+        });
+        return interactiveScript;
+    }
+
+    //Look for a data-main script attribute, which could also adjust the baseUrl.
+    if (isBrowser && !cfg.skipDataMain) {
+        //Figure out baseUrl. Get it from the script tag with require.js in it.
+        eachReverse(scripts(), function (script) {
+            //Set the 'head' where we can append children by
+            //using the script's parent.
+            if (!head) {
+                head = script.parentNode;
+            }
+
+            //Look for a data-main attribute to set main script for the page
+            //to load. If it is there, the path to data main becomes the
+            //baseUrl, if it is not already set.
+            dataMain = script.getAttribute('data-main');
+            if (dataMain) {
+                //Preserve dataMain in case it is a path (i.e. contains '?')
+                mainScript = dataMain;
+
+                //Set final baseUrl if there is not already an explicit one.
+                if (!cfg.baseUrl) {
+                    //Pull off the directory of data-main for use as the
+                    //baseUrl.
+                    src = mainScript.split('/');
+                    mainScript = src.pop();
+                    subPath = src.length ? src.join('/')  + '/' : './';
+
+                    cfg.baseUrl = subPath;
+                }
+
+                //Strip off any trailing .js since mainScript is now
+                //like a module name.
+                mainScript = mainScript.replace(jsSuffixRegExp, '');
+
+                //If mainScript is still a path, fall back to dataMain
+                if (req.jsExtRegExp.test(mainScript)) {
+                    mainScript = dataMain;
+                }
+
+                //Put the data-main script in the files to load.
+                cfg.deps = cfg.deps ? cfg.deps.concat(mainScript) : [mainScript];
+
+                return true;
+            }
+        });
+    }
+
+    /**
+     * The function that handles definitions of modules. Differs from
+     * require() in that a string for the module should be the first argument,
+     * and the function to execute after dependencies are loaded should
+     * return a value to define the module corresponding to the first argument's
+     * name.
+     */
+    define = function (name, deps, callback) {
+        var node, context;
+
+        //Allow for anonymous modules
+        if (typeof name !== 'string') {
+            //Adjust args appropriately
+            callback = deps;
+            deps = name;
+            name = null;
+        }
+
+        //This module may not have dependencies
+        if (!isArray(deps)) {
+            callback = deps;
+            deps = null;
+        }
+
+        //If no name, and callback is a function, then figure out if it a
+        //CommonJS thing with dependencies.
+        if (!deps && isFunction(callback)) {
+            deps = [];
+            //Remove comments from the callback string,
+            //look for require calls, and pull them into the dependencies,
+            //but only if there are function args.
+            if (callback.length) {
+                callback
+                    .toString()
+                    .replace(commentRegExp, '')
+                    .replace(cjsRequireRegExp, function (match, dep) {
+                        deps.push(dep);
+                    });
+
+                //May be a CommonJS thing even without require calls, but still
+                //could use exports, and module. Avoid doing exports and module
+                //work though if it just needs require.
+                //REQUIRES the function to expect the CommonJS variables in the
+                //order listed below.
+                deps = (callback.length === 1 ? ['require'] : ['require', 'exports', 'module']).concat(deps);
+            }
+        }
+
+        //If in IE 6-8 and hit an anonymous define() call, do the interactive
+        //work.
+        if (useInteractive) {
+            node = currentlyAddingScript || getInteractiveScript();
+            if (node) {
+                if (!name) {
+                    name = node.getAttribute('data-requiremodule');
+                }
+                context = contexts[node.getAttribute('data-requirecontext')];
+            }
+        }
+
+        //Always save off evaluating the def call until the script onload handler.
+        //This allows multiple modules to be in a file without prematurely
+        //tracing dependencies, and allows for anonymous module support,
+        //where the module name is not known until the script onload event
+        //occurs. If no context, use the global queue, and get it processed
+        //in the onscript load callback.
+        if (context) {
+            context.defQueue.push([name, deps, callback]);
+            context.defQueueMap[name] = true;
+        } else {
+            globalDefQueue.push([name, deps, callback]);
+        }
+    };
+
+    define.amd = {
+        jQuery: true
+    };
+
+    /**
+     * Executes the text. Normally just uses eval, but can be modified
+     * to use a better, environment-specific call. Only used for transpiling
+     * loader plugins, not for plain JS modules.
+     * @param {String} text the text to execute/evaluate.
+     */
+    req.exec = function (text) {
+        /*jslint evil: true */
+        return eval(text);
+    };
+
+    //Set up with config info.
+    req(cfg);
+}(this));
+

@@ -1,0 +1,26 @@
+{
+  "sourceFile": "E:\\processor\\work\\632741329e5141a7bfece908c95b712a_5f1ba679cbb148089e1170f8487e8eac_999_转换中\\MAX\\25000风机.maxbk0.max",
+  "gltfFiles": [
+    "72TH80E9137OUZ24OP8YEU2TZU62TZUXZ.model"
+  ],
+  "texFiles": {
+    "PQDT3N1OH6WQU02YQUNRJYC5FJCTQUKE9": ".bin",
+    "8S5QPNG3H2KGE7CQ3DQCQ41PZ2O592NGZ": "smd_1.jpg",
+    "60YHU0I33W6XF07OW11MAY6QEZ0Y9T8DF": "smd_2.jpg",
+    "8UTEN6M3T4OI1T7470NQ94KXH664T02O3": "smd_3_f_png.jpg"
+  },
+  "size": [
+    2.51111,
+    2.51111,
+    2.4743
+  ],
+  "faces": 1204,
+  "verts": 696,
+  "nodes": 1,
+  "createTime": "2024-07-22 9:55:50",
+  "author": "",
+  "computer": "BJ-226",
+  "max": "#(22000, 55, 0, 22, 0, 0, 757, 2020, \"\")",
+  "version": "2.1",
+  "extensionsFile": "extensions.ext"
+}
