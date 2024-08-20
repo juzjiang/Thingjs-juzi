@@ -1,1 +1,0 @@
-{"name":"修改白天08","type":"theme","id":"72e64c584baa441c8162ba34889c92be","version":"1.0.0","author":"969828","description":"","main":"frame.js","dependencies":{},"external":{"use-standard":"0","encrypt-files":["frame.js","^model/[^]*(.json$)"],"thingjs-x":{"extend":{"r-type-group":"园区","theme":"","r-type":""},"plugin-type":"theme","theme":""}}}
